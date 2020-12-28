@@ -223,3 +223,34 @@ yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah-
 read more :
 https://facebook.com/story.php?story_fbid=1987392251328402&id=100001729388129
 ___ 
+- [ ] 23-11-20
+
+### Tertutup oleh penyakit
+___
+Malik ibn Dinar -rahimahullah- berkata,
+“Sesungguhnya badan apabila terkena penyakit maka akan sulit untuk menelan makanan dan minuman, demikian pula hati apabila telah tertutup dengan kecintaan kepada dunia, maka akan sulit menerima nasihat.” 
+
+Sifatus Shafwah 2/172
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sakit badan tidak merasakan lezatnya makanan, penyakit hati juga demikian"
+yang ditulis Ustadz dr. Raehanul Bahraen, Sp.Pk M.Sc -Hafizhahullah-
+
+read more :
+https://muslim.or.id/45299-sakit-badan-tidak-merasakan-lezatnya-makanan-penyakit-hati-juga-demikian.html
+___
+- [ ] 24-11-20
+
+### Manisnya Iman
+___
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+"Ada tiga perkara yang apabila perkara tersebut ada pada seseorang, maka ia akan mendapatkan manisnya iman, yaitu,
+1. Barangsiapa yang Allah dan Rasul-Nya lebih ia cintai dari selain keduanya.
+2. Apabila ia mencintai seseorang, ia hanya mencintainya karena Allah.
+3. Ia benci untuk kembali kepada kekufuran setelah Allah menyelamatkannya sebagaimana ia benci untuk dilemparkan ke dalam Neraka"
+
+HR Bukhari & Muslim
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sakit badan tidak merasakan lezatnya makanan, penyakit hati juga demikian"
+yang ditulis Ustadz dr. Raehanul Bahraen, Sp.Pk M.Sc -Hafizhahullah-
+
+read more :
+https://muslim.or.id/45299-sakit-badan-tidak-merasakan-lezatnya-makanan-penyakit-hati-juga-demikian.html
+___
