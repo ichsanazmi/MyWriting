@@ -264,7 +264,7 @@ ___
 - [ ] 23-10-20
 ## Teman Karib
 ___
-Abu Hurairah radhiyallahu ‘anhu, Rasulullah shallallahu ‘alaihi wa sallam bersabda,
+Abu Hurairah -radhiyallahu ‘anhu-, Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
 الْمَرْءُ عَلَى دِينِ خَلِيلِهِ فَلْيَنْظُرْ أَحَدُكُمْ مَنْ يُخَالِلُ
 
@@ -281,7 +281,7 @@ ___
 - [ ] 26-10-20
 ## Nikmat berupa Sahabat
 ___
-Umar ibn Khattab berkata,
+Umar ibn Khattab -Radhiallahu 'anhu-' berkata,
 
 ما أعطي العبد بعد الإسلام نعمة خيراً من أخ صالح فإذا وجد أحدكم وداً من أخيه فليتمسك به
 
@@ -316,7 +316,7 @@ ___
 - [ ] 28-10-20
 ## Pegang Erat
 ___
-Imam Syafi’i rahimahullah berkata :
+Imam Syafi’i -rahimahullah- berkata,
 
 إذا كان لك صديق يعينك على الطاعة فشد يديك به، فإن اتخاذ الصديق صعب ومفارقته سهل.
 “Apabila engkau memiliki teman yang membantumu dalam melakukan ketaatan maka peganglah dia erat-erat dengan kedua tanganmu. Karena sungguh mencari teman itu sangatlah sulit. Namun berpisah dengannya sangatlah mudah.”
@@ -331,7 +331,7 @@ ___
 - [ ] 29-10-20
 ## Doa agar tidak malas, disucikan jiwa, dan diberikan hati yang khusyuk
 ___
-Rasulullah shallallahu ‘alaihi wa sallam bersabda,
+Rasulullah -shallallahu ‘alaihi wa sallam- berdoa,
 
 اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ العَجْزِ وَالكَسَلِ ، والبُخْلِ والهَرَمِ ، وَعَذَابِ القَبْرِ ، اللَّهُمَّ آتِ نَفْسِي تَقْوَاهَا ، وَزَكِّها أَنْتَ خَيْرُ مَنْ زَكَّاهَا ، أَنْتَ وَلِيُّهَا وَمَوْلاَهَا ، اللَّهُمَّ إنِّي أَعُوذُ بِكَ مِنْ عِلْمٍ لا يَنْفَعُ؛ وَمِنْ قَلْبٍ لاَ يَخْشَعُ ، وَمِنْ نَفْسٍ لاَ تَشْبَعُ ؛ وَمِنْ دَعْوَةٍ لاَ يُسْتَجَابُ لَهَا
 
@@ -370,6 +370,6 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Puasa Sunnah"
 yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more :
- https://muslim.or.id/294-puasa-sunnah.html
+https://muslim.or.id/294-puasa-sunnah.html
 
 ___

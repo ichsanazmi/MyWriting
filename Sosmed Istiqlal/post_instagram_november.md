@@ -9,7 +9,7 @@ diantar menuju kesendirian.
 sambil menunggu dibangkitkan, juga kelak dalam keadaan sendirian. 
 lalu dimintai pertanggung jawaban atas kehidupan kita secara sendiri-sendiri. maka persiapkanlah bekal.
 
-Faidah kajian dengan judul "Pada Akhirnya Engkau Akan Sendiri" oleh Ustadz Dr Syafiq Riza Basalamah, Lc. MA -Hafizhahullah-
+Faidah catatan kajian dengan judul "Pada Akhirnya Engkau Akan Sendiri" oleh Ustadz Dr Syafiq Riza Basalamah, Lc. MA -Hafizhahullah-
 
 read more : 
 https://youtu.be/TG9JAlFty78
@@ -156,7 +156,7 @@ Nasehat Imam Ibnul Qayyim rahimahullah kepada setiap orang yang membaca Alqur'an
 📚 الداء والدواء .
 
 "Wahai anak Adam, bagaimana hatimu akan menjadi terenyuh (lembut) jika ternyata sebenarnya semangatmu (saat membaca) hanya ada di akhir surat."
-Maksudnya semangat ingin cepat-cepat selesai saja dan bukan semata ingin tilawah dgn mentadabbur.
+Maksudnya semangat ingin cepat-cepat selesai saja dan bukan semata ingin tilawah dgn mentadabbur.""
 
 Ad Daa Wad Dawaa
 Dinukil dari status facebook
@@ -253,4 +253,31 @@ yang ditulis Ustadz dr. Raehanul Bahraen, Sp.Pk M.Sc -Hafizhahullah-
 
 read more :
 https://muslim.or.id/45299-sakit-badan-tidak-merasakan-lezatnya-makanan-penyakit-hati-juga-demikian.html
+___
+- [ ] 25-11-20
+
+### Perayaan Tahun Baru
+___
+Pertanyaan : Apakah boleh bagi kaum muslimin mengucapkan ucapan selamat satu sama lain dalam moment tahun baru? Tentu saja mereka lakukan itu tidak dengan niat merayakannya. 
+
+Jawaban : 
+
+Alhamdulillah.
+
+Tidak dibolehkan bagi kaum muslimin saling mengucapkan selamat tahun baru, sebagaimana tidak boleh merayakannya. Berdasarkan dua perkara;
+
+- Menyerupai orang kafir dan kita telah dilarang dari perkara tersebut.
+Dishahihkan oleh Al-Albany dalam shahih Sunan Abu Daud, no. 4031, Rasulullah shallallahu alaihi wa sallam bersabda, 
+
+مَنْ تَشَبَّهَ بِقَوْمٍ فَهُوَ مِنْهُمْ (رواه أبو داود)
+
+“Siapa yang menyerupai suatu kaum, maka dia termasuk bagian darinya.” HR. Abu Dawud
+
+- Kemudian, mengucapkan selamat kepada hari yang dirayakan setiap tahun masuk dalam bab merayakannya dan menjadikannya sebagai hari Id. Maka diapun dilarang juga.
+Wallahua’lam.
+
+Dinukil dari laman Islamqa dalam pertanyaan yang berjudul "Hukum Kaum Muslimin Mengucapkan Selamat Tahun Baru Satu Sama Lain" dengan sedikit penyesuaian
+
+read more :
+https://islamqa.info/id/answers/177460/hukum-kaum-muslimin-mengucapkan-selamat-tahun-baru-satu-sama-lain
 ___
