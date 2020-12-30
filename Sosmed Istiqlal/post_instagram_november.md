@@ -281,3 +281,50 @@ Dinukil dari laman Islamqa dalam pertanyaan yang berjudul "Hukum Kaum Muslimin M
 read more :
 https://islamqa.info/id/answers/177460/hukum-kaum-muslimin-mengucapkan-selamat-tahun-baru-satu-sama-lain
 ___
+- [ ] 26-11-20
+
+### Cara Bersyukur
+___
+Syaikh Abdurrahman As-Sa’diy -rahimahullah- berkata,
+
+والشكر: هو اعتراف القلب بنعم الله والثناء على الله بها وصرفها في مرضاة الله تعالى. وكفر النعمة ضد ذلك
+
+“Bersyukur adalah mengakui dengan hati atas nikmat Allah, memuji Allah atas nikmat serta menggunakan nikmat untuk mencari ridha Allah. Kufur nikmat adalah kebalikan dari hal ini.” 
+
+Tafsir As-Sa’diy
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keadaan susah atau stres tetap perhatikan kebutuhan hidup dan keadaan diri" dengan sedikit penyesuaian
+
+read more :
+https://muslim.or.id/43833-keadaan-susah-atau-stres-tetap-perhatikan-kebutuhan-hidup-dan-keadaan-diri.html
+___
+- [ ] 27-11-20
+
+### Cara Bersyukur
+___
+Syaikh Abdurrahman As-Sa’diy -rahimahullah- berkata,
+
+والشكر: هو اعتراف القلب بنعم الله والثناء على الله بها وصرفها في مرضاة الله تعالى. وكفر النعمة ضد ذلك
+
+“Bersyukur adalah mengakui dengan hati atas nikmat Allah, memuji Allah atas nikmat serta menggunakan nikmat untuk mencari ridha Allah. Kufur nikmat adalah kebalikan dari hal ini.” 
+
+Tafsir As-Sa’diy
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keadaan susah atau stres tetap perhatikan kebutuhan hidup dan keadaan diri" yang ditulis Ustadz dr. Raehanul Bahraen, Sp.Pk M.Sc -Hafizhahullah- dengan sedikit penyesuaian
+
+read more :
+https://muslim.or.id/43833-keadaan-susah-atau-stres-tetap-perhatikan-kebutuhan-hidup-dan-keadaan-diri.html
+___
+- [ ] 30-11-20
+
+### Berdoa Dengan Sepenuh Hati
+___
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+ادْعُوا اللَّهَ وَأَنْتُمْ مُوقِنُونَ بِالإِجَابَةِ وَاعْلَمُوا أَنَّ اللَّهَ لاَ يَسْتَجِيبُ دُعَاءً مِنْ قَلْبٍ غَافِلٍ لاَهٍ
+
+Berdoalah kepada Allah dalam keadaan yakin akan dikabulkan, dan ketahuilah bahwa Allah tidak mengabulkan doa dari hati yang lalai.
+
+HR. Tirmidzi, no. 3479. Syaikh Al-Albani mengatakan bahwa hadits ini hasan
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "7 Catatan mengenai adab doa" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
+
+read more :
+https://rumaysho.com/16893-7-catatan-mengenai-adab-doa.html
+___
