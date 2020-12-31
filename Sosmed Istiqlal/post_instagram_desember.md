@@ -2,7 +2,7 @@
 
 ### 1. Doa Ketika Turun Hujan
 ___
-Rasulullah -shallallahu 'alaihi wasallam- ketika melihat turunnya hujan, ia berdoa :
+Rasulullah -shallallahu 'alaihi wasallam- ketika melihat turunnya hujan, ia berdoa,
 اللَّهُمَّ صَيِّباً نَافِعاً
 "Allahumma Shoyyiban Naafi'an"
 Ya Allah Turunkanlah Hujan Yang Bermanfaat
@@ -22,7 +22,7 @@ ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 sesungguhnya ada seorang hamba benar-benar berbicara dengan satu kalimat yang termasuk keridhaan Allah, dia tidak menganggapnya penting, dengan sebab satu kalimat itu Allah menaikkannya beberapa derajat.
 dan sesungguhnya ada seorang hamba benar-benar berbicara dengan satu kalimat yang termasuk kemurkaan Allah, dia tidak menganggapnya penting,
-dengan sebab satu kalimat itu dia terjungkal di dalam neraka jahannam"
+dengan sebab satu kalimat itu dia terjungkal di dalam neraka jahannam
 
 HR. Bukhari no. 6478
 Dinukil dari laman Almanhaj dalam artikel yang berjudul "Mengendalikan Lidah"
