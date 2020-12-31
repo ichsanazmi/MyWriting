@@ -263,9 +263,7 @@ Pertanyaan : Apakah boleh bagi kaum muslimin mengucapkan ucapan selamat satu sam
 Jawaban : 
 
 Alhamdulillah.
-
 Tidak dibolehkan bagi kaum muslimin saling mengucapkan selamat tahun baru, sebagaimana tidak boleh merayakannya. Berdasarkan dua perkara;
-
 - Menyerupai orang kafir dan kita telah dilarang dari perkara tersebut.
 Dishahihkan oleh Al-Albany dalam shahih Sunan Abu Daud, no. 4031, Rasulullah shallallahu alaihi wa sallam bersabda, 
 

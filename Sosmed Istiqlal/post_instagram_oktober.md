@@ -261,7 +261,7 @@ read more :
 https://rumaysho.com/13311-manfaat-teman-yang-baik.html
 
 ___
-- [ ] 23-10-20
+* [x] 23-10-20
 ## Teman Karib
 ___
 Abu Hurairah -radhiyallahu ‘anhu-, Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
@@ -278,7 +278,7 @@ read more :
 https://rumaysho.com/13311-manfaat-teman-yang-baik.html
 
 ___
-- [ ] 26-10-20
+* [x] 26-10-20
 ## Nikmat berupa Sahabat
 ___
 Umar ibn Khattab -Radhiallahu 'anhu-' berkata,
@@ -295,7 +295,7 @@ read more :
 https://muslim.or.id/45173-persahabatan-yang-sampai-ke-surga-selamanya.html
 
 ___
-- [ ] 27-10-20
+* [x] 27-10-20
 ## Doa dalam Sepi
 ___
 Rasulullah shallallahu ‘alaihi wa sallam bersabda,
@@ -313,7 +313,7 @@ https://muslim.or.id/45173-persahabatan-yang-sampai-ke-surga-selamanya.html
 
 
 ___
-- [ ] 28-10-20
+* [x] 28-10-20
 ## Pegang Erat
 ___
 Imam Syafi’i -rahimahullah- berkata,
@@ -328,7 +328,7 @@ read more :
 https://shahihfiqih.com/tazkiyatun-nafz/carilah-teman-yang-shalih/
 
 ___
-- [ ] 29-10-20
+* [x] 29-10-20
 ## Doa agar tidak malas, disucikan jiwa, dan diberikan hati yang khusyuk
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- berdoa,
@@ -348,7 +348,7 @@ https://rumaysho.com/21000-doa-agar-tidak-malas-disucikan-jiwa-diberi-hati-yang-
 
 
 ___
-- [ ] 30-10-20 / repost 27-07-20
+* [x] 30-10-20 / repost 27-07-20
 ## Kedermawanan yang tercela
 ___
 Syaikhul Islam Ibnu Taimiyah rahimahullah berkata,
@@ -359,7 +359,7 @@ Dinukil dari status Ustadz Abu Razin Taufiq -Hafizhahullah-
 (https://www.facebook.com/abu.yusha/)
 
 ___
-- [ ] 31-10-20 / repost 27-07-20
+* [x] 31-10-20 / repost 27-07-20
 ## Sejarak 70 Tahun Perjalanan
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
@@ -373,3 +373,4 @@ read more :
 https://muslim.or.id/294-puasa-sunnah.html
 
 ___
+
