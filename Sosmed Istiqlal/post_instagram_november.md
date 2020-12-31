@@ -1,4 +1,4 @@
-Post Instagram November
+# Post Instagram November
 
 - [ ] 2-11-20 
 
@@ -290,26 +290,26 @@ Syaikh Abdurrahman As-Sa’diy -rahimahullah- berkata,
 “Bersyukur adalah mengakui dengan hati atas nikmat Allah, memuji Allah atas nikmat serta menggunakan nikmat untuk mencari ridha Allah. Kufur nikmat adalah kebalikan dari hal ini.” 
 
 Tafsir As-Sa’diy
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keadaan susah atau stres tetap perhatikan kebutuhan hidup dan keadaan diri" dengan sedikit penyesuaian
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keadaan susah atau stres tetap perhatikan kebutuhan hidup dan keadaan diri" yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah- dengan sedikit penyesuaian
 
 read more :
 https://muslim.or.id/43833-keadaan-susah-atau-stres-tetap-perhatikan-kebutuhan-hidup-dan-keadaan-diri.html
 ___
 - [ ] 27-11-20
 
-### Cara Bersyukur
+### Tiga Golongan Yang Ditolong Allah
 ___
-Syaikh Abdurrahman As-Sa’diy -rahimahullah- berkata,
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
-والشكر: هو اعتراف القلب بنعم الله والثناء على الله بها وصرفها في مرضاة الله تعالى. وكفر النعمة ضد ذلك
+ثَلَاثَةٌ حَقٌّ عَلَى اللهِ تَعَالَى عَوْنُهُمْ : الْمُجَاهِدُ فِيْ سَبِيْلِ اللهِ وَ الْمُكَاتَبُ الَّذِيْ يُرِيْدُ الْأَدَاءَ وَالنَّاكِحُ الَّذِيْ يُرِيْدُ الْعَفَافَ 
 
-“Bersyukur adalah mengakui dengan hati atas nikmat Allah, memuji Allah atas nikmat serta menggunakan nikmat untuk mencari ridha Allah. Kufur nikmat adalah kebalikan dari hal ini.” 
+“Ada tiga golongan, Allah mewajibkan atas Dzatnya untuk membantunya: (yaitu) Orang yang berjihad di jalan Allah, orang yang menikah untuk menjaga kehormatan diri dan budak yang berusaha membeli dirinya sendiri hingga menjadi orang merdeka “.
 
-Tafsir As-Sa’diy
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keadaan susah atau stres tetap perhatikan kebutuhan hidup dan keadaan diri" yang ditulis Ustadz dr. Raehanul Bahraen, Sp.Pk M.Sc -Hafizhahullah- dengan sedikit penyesuaian
+HR. Ahmad & at-Tirmidzi
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Janji Allah akan menolong orang yang menikah untuk menjaga kehormatan" yang ditulis Ustadz dr. Raehanul Bahraen, Sp.Pk M.Sc -Hafizhahullah- dengan sedikit penyesuaian
 
 read more :
-https://muslim.or.id/43833-keadaan-susah-atau-stres-tetap-perhatikan-kebutuhan-hidup-dan-keadaan-diri.html
+https://muslim.or.id/57637-janji-allah-akan-menolong-orang-yang-menikah-untuk-menjaga-kehormatan.html
 ___
 - [ ] 30-11-20
 
