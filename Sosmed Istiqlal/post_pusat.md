@@ -152,7 +152,8 @@ ___
 
 ### 12. Introspeksi Diri
 ___
-Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.” 
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+
 Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
 dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik" 
 

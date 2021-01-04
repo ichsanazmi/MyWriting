@@ -34,44 +34,79 @@ https://almanhaj.or.id/14033-mengendalikan-lidah-2.html
 - [ ] 2-12-20 / repost juli
 ___ 
 
-### 3. Judul
+### 3. Nikmat yang menipu
 ___
-teks
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+Dua nikmat,kebanyakan manusia tertipu dengan keduanya,
+yaitu kesehatan dan waktu luang
 
+HR. Bukhari
+Dinukil dari laman Muslimah.or.id dalam artikel yang berjudul "2 Nikmat yang Banyak dilalaikan"
+yang ditulis Wiwit Hardi P -Hafizhahullah- dengan sedikit penyesuaian
 
-- [ ] 3-12-20
+read more : https://muslimah.or.id/7233-2-nikmat-yang-banyak-dilalaikan.html
+
+- [ ] 3-12-20 // repost post juli
 ___ 
 
-### 4. Judul
+### 4. Hasil Kondisimu dengan Allah
 ___
-teks
+Boleh jadi engkau hidup diatas bumi selama 70 tahun.
+Namun engkau bisa jadi tinggal di kuburmu selama 5000 tahun.
+Maka bayangkanlah bahwasanya engkau termasuk orang-orang yang Allah ridho kepadanya.
+Maka jadilah kuburmu itu taman diantara taman-taman surga dan engkau merasakan nikmat selama tinggal disana, dengan sebab amal-amal sholihmu.
 
+Kehidupanmu dibawah bumi adalah hasil kondisimu bersama Allah diatas muka bumi.
+Nasehat yang menyentuh dari Syaikhunâ, Sulthan bin Abdillah al-'Āmiriy hafizhahullah
 
-- [ ] 4-12-20
+Dinukil dari status facebook
+yang ditulis oleh Ustadz Abu Sa'id Neno Triyono -Hafizhahullah- dengan sedikit penyesuaian
+
+read more :
+https://www.facebook.com/abu.s.triyono.5
+
+- [ ] 4-12-20 // repost post juli
 ___ 
 
-### 5. Judul
+### 5. Tanda Kebaikan Seseorang
 ___
-teks
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+Barangsiapa yang Allah kehendaki menjadi baik
+maka Allah faqihkan (memahamkan) dia terhadap agama
 
+HR. Bukhari
+Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
-- [ ] 7-12-20
+read more : https://hadits.in/bukhari/69
+
+- [ ] 7-12-20 // repost post juli
 ___ 
 
-### 6. Judul
+### 6. Bersabar dalam Do'a
 ___
-teks
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda :
+(Do'a) kalian akan diijabahi selagi tidak terburu-buru, dengan mengatakan : Aku telah berdo'a, namun tak kunjung diijabahi
 
+HR. Bukhari No. 5865
+Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
-- [ ] 8-12-20
+read more : https://hadits.in/bukhari/5865
+
+- [ ] 8-12-20 // repost post juli
 ___ 
 
-### 7. Judul
+### 7. Introspeksi Diri
 ___
-teks
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan,
+Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
 
+Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bisakah jadi Lebih Baik" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
 
-- [ ] 9-12-20
+read more :
+https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] 9-12-20 // repost post juli
 ___ 
 
 ### 8. Judul
@@ -98,12 +133,21 @@ teks
 - [ ] 14-12-20
 ___ 
 
-### 11. Judul
+### 11. Andai Ia Meninggalkan Bau
 ___
-teks
+Muhammad bin Wasi’ -rahimahullah- berkata,
 
+لَوْ كَانَ لِلذُّنُوْبِ رِيْحٌ مَا قَدَرَ أَحَدٌ أَنْ يَجْلِسَ إِلَيَّ
 
-- [ ] 15-12-20
+Andaikan dosa itu memiliki bau, tentu tidak ada dari seorang pun yang ingin duduk dekat-dekat denganku.
+
+Muhasabah An-Nafs, hlm. 37. Lihat A’mal Al-Qulub,hlm. 373
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bisakah jadi Lebih Baik" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+
+read more :
+https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] 15-12-20 // repost post juli
 ___ 
 
 ### 12. Judul

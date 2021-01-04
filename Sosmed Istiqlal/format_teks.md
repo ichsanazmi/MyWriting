@@ -75,3 +75,22 @@ yang ditulis Ustadz Abu Muslim Al-Atsari -Hafizhahullah-
 read more :
 https://almanhaj.or.id/14033-mengendalikan-lidah-2.html
 ___
+### Faidah Muslimah.or.id
+___
+teks
+
+HR. Bukhari
+Dinukil dari laman Muslimah.or.id dalam artikel yang berjudul "2 Nikmat yang Banyak dilalaikan"
+yang ditulis Wiwit Hardi P -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://muslimah.or.id/7233-2-nikmat-yang-banyak-dilalaikan.html
+___
+### Faidah Ensiklopedia Hadits
+___
+teks
+
+HR. Bukhari
+Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
+
+read more : https://hadits.in/muslim/2052
+___
