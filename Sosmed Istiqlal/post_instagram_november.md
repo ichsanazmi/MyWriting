@@ -194,7 +194,7 @@ https://facebook.com/story.php?story_fbid=10219034393231572&id=1257341801
 ___
 - [ ] 19-11-20
 
-### Introspeksi Diri
+### Merasa Agung
 ___
 Nasehat 'Utbah bin Ghazwan -Radhiyallahu 'Anhu- dalam sebuah khuthbahnya;
 
