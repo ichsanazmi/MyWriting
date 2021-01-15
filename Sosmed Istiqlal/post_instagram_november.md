@@ -1,6 +1,6 @@
 # Post Instagram November
 
-- [ ] 2-11-20 
+- [x] 2-11-20 
 
 ### Sendiri
 ___
@@ -14,7 +14,7 @@ Faidah catatan kajian dengan judul "Pada Akhirnya Engkau Akan Sendiri" oleh Usta
 read more : 
 https://youtu.be/TG9JAlFty78
 ___ 
-- [ ] 3-11-20 / repost 30-07-20
+- [x] 3-11-20 / repost 30-07-20
 
 ### Senin Kamis
 ___
@@ -28,7 +28,7 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 read more :
  https://muslim.or.id/17854-puasa-senin-kamis.html
 ___ 
-- [ ] 4-11-20 / repost 30-07-20
+- [x] 4-11-20 / repost 30-07-20
 
 ### Ibadah berupa memberi nafkah
 ___
@@ -42,7 +42,7 @@ yang ditulis Ustadz dr Raehanul Bahraen, M.Sc Sp.Pk. -Hafizhahullah-
 read more :
 https://muslim.or.id/58957-memberi-nafkah-kepada-anak-istri-juga-ibadah-yang-agung.html
 ___
-- [ ] 5-11-20
+- [x] 5-11-20
 
 ### Bukan Patokan Kebenaran
 ___
@@ -60,7 +60,7 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah-
 read more :
 https://kangaswad.wordpress.com/2020/03/12/kehebatan-duniawi-bukan-patokan-kebenaran-dan-kebahagiaan/
 ___ 
-- [ ] 6-11-20
+- [x] 6-11-20
 
 ### Jangan Mengeluh
 ___
@@ -77,7 +77,7 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah-
 read more :
 https://kangaswad.wordpress.com/2020/04/09/jangan-mengeluh-kepada-manusia/
 ___ 
-- [ ] 9-11-20
+- [x] 9-11-20
 
 ### Sebab Tercapainya Hajat
 ___
@@ -91,7 +91,7 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah-
 read more :
 https://kangaswad.wordpress.com/2016/08/11/tawakkal-adalah-sebab-tercapainya-hajat/
 ___ 
-- [ ] 10-11-20
+- [x] 10-11-20
 
 ### Nikmat yang Besar
 ___
