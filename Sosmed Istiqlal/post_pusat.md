@@ -177,23 +177,77 @@ https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
 - [ ] 04-08-20
 ___ 
-### 14.
+### 14. Seperti Puasa Sepanjang Tahun
 ___
+Dari ‘Abdullah bin ‘Amr bin Al ‘Ash, Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
+صَوْمُ ثَلاَثَةِ أَيَّامٍ صَوْمُ الدَّهْرِ كُلِّهِ
+
+“Puasa pada tiga hari setiap bulannya adalah seperti puasa sepanjang tahun.”
+
+HR. Bukhari no. 1979, Dinukil dari laman Rumaysho.com dalam artikel yang ditulis Ustadz
+Muhammad Abduh Tuasikal, M.Sc -hafizhahullah- yang berjudul "Lakukanlah Puasa Sunnah Minimal Sebulan 3 Kali"
 
 - [ ] 05-08-20
 ___ 
-### 15.
+### 15. Perbanyak doa di hari jumat
 ___
+Dari Abu Hurairah, Rasulullah shallallahu ‘alaihi wa sallam membicarakan mengenai hari Jum’at lalu ia bersabda,
 
+فِيهِ سَاعَةٌ لاَ يُوَافِقُهَا عَبْدٌ مُسْلِمٌ ، وَهْوَ قَائِمٌ يُصَلِّى ، يَسْأَلُ اللَّهَ تَعَالَى شَيْئًا إِلاَّ أَعْطَاهُ إِيَّاهُ
 
-- [ ] 06-08-20
-___ 
-### 16.
-___
+“Di dalamnya terdapat waktu. Jika seorang muslim berdoa ketika itu, pasti diberikan apa yang ia minta” Lalu beliau mengisyaratkan dengan tangannya tentang sebentarnya waktu tersebut.
+HR. Muslim no. 1144.
 
+Ibnu Hajar Al Asqalani dalam Fathul Baari ketika menjelaskan hadits ini beliau menyebutkan 42 pendapat ulama tentang waktu yang dimaksud. Namun secara umum terdapat 4 pendapat yang kuat.
+
+Pendapat pertama, yaitu waktu sejak imam naik mimbar sampai selesai shalat Jum’at, berdasarkan hadits:
+
+هي ما بين أن يجلس الإمام إلى أن تقضى الصلاة
+
+“Waktu tersebut adalah ketika imam naik mimbar sampai shalat Jum’at selesai”
+HR. Muslim, 853 dari sahabat Abu Musa Al Asy’ari Radhiallahu’anhu
+
+Pendapat ini dipilih oleh Imam Muslim, An Nawawi, Al Qurthubi, Ibnul Arabi dan Al Baihaqi.
+
+Pendapat kedua, yaitu setelah ashar sampai terbenamnya matahari. Berdasarkan hadits:
+
+يوم الجمعة ثنتا عشرة يريد ساعة لا يوجد مسلم يسأل الله عز وجل شيئا إلا أتاه الله عز وجل فالتمسوها آخر ساعة بعد العصر
+
+“Dalam 12 jam hari Jum’at ada satu waktu, jika seorang muslim meminta sesuatu kepada Allah Azza Wa Jalla pasti akan dikabulkan. Carilah waktu itu di waktu setelah ashar”
+HR. Abu Daud, no.1048 dari sahabat Jabir bin Abdillah Radhiallahu’anhu. Dishahihkan Al Albani di Shahih Abi Daud
+
+Pendapat ini dipilih oleh At Tirmidzi, dan Ibnu Qayyim Al Jauziyyah. Pendapat ini yang lebih masyhur dikalangan para ulama.
+
+Pendapat ketiga, yaitu setelah ashar, namun diakhir-akhir hari Jum’at. Pendapat ini didasari oleh riwayat dari Abi Salamah. Ishaq bin Rahawaih, At Thurthusi, Ibnul Zamlakani menguatkan pendapat ini.
+
+Pendapat keempat, yang juga dikuatkan oleh Ibnu Hajar sendiri, yaitu menggabungkan semua pendapat yang ada. Ibnu ‘Abdil Barr berkata: “Dianjurkan untuk bersungguh-sungguh dalam berdoa pada dua waktu yang disebutkan”.
+
+Dengan demikian seseorang akan lebih memperbanyak doanya di hari Jum’at tidak pada beberapa waktu tertentu saja. Pendapat ini dipilih oleh Imam Ahmad bin Hambal, Ibnu ‘Abdil Barr.
+Point ini dicuplik dari tulisan saudara kami Yulian Purnama di Buletin At Tauhid.
+
+Dinukil dari laman Rumaysho
+dalam artikel yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
+
+read more : https://rumaysho.com/917-amalan-istimewa-di-hari-jumat.html
 
 - [ ] 07-08-20
+___ 
+### 16. Warisan Para Nabi
+___
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda :
+إِنَّ الأَنْبِيَاءَ لَمْ يُوَرِّثُوا دِينَارًا وَلاَ دِرْهَمًا إِنَّمَا وَرَّثُوا الْعِلْمَ فَمَنْ أَخَذَ بِهِ أَخَذَ بِحَظٍّ وَافِرٍ
+
+“Sesungguhnya para Nabi tidak mewariskan dinar dan dirham, mereka hanyalah mewariskan ilmu. Barangsiapa yang mengambilnya, maka dia telah memperoleh keberuntungan yang banyak."
+HR Abu Dawud no. 3641 dan Tirmidzi no. 2682, Shahih
+
+Dinukil dari Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Islam"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
+
+read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
+
+- [ ] 10-08-20
 ___ 
 ### 17.
 ___

@@ -94,3 +94,20 @@ Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
 read more : https://hadits.in/muslim/2052
 ___
+### Faidah Whatsapp
+___
+teks
+
+Adab Asyyafi'i Wa Manaqibih karya Ibnu Abi Hatim Hal. 209
+Dinukil dari Ustadz Musa Mulyadi Luqman, Lc. via WhatsApp
+___
+### Faidah Kristal Ilmu
+___
+teks
+
+HR. Bukhari
+Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
+yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
+
+read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
+___

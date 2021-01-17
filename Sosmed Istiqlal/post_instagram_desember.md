@@ -109,28 +109,50 @@ https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 - [ ] 9-12-20 // repost post juli
 ___ 
 
-### 8. Judul
+### 8. Warisan Para Nabi
 ___
-teks
+Rasulullah -shallallahu 'alaihi wasallam- bersabda :
+إِنَّ الأَنْبِيَاءَ لَمْ يُوَرِّثُوا دِينَارًا وَلاَ دِرْهَمًا إِنَّمَا وَرَّثُوا الْعِلْمَ فَمَنْ أَخَذَ بِهِ أَخَذَ بِحَظٍّ وَافِرٍ
 
+“Sesungguhnya para Nabi tidak mewariskan dinar dan dirham, mereka hanyalah mewariskan ilmu. Barangsiapa yang mengambilnya, maka dia telah memperoleh keberuntungan yang banyak."
 
-- [ ] 10-12-20
+HR Abu Dawud no. 3641 dan Tirmidzi no. 2682, Shahih
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Islam"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
+
+read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
+
+- [ ] 10-12-20 // repost post agustus
 ___ 
 
-### 9. Judul
+### 9. Ilmu Sebelum Amal
 ___
-teks
+'Umar bin 'Abdul 'Aziz -rahimahullah- berkata :
+مَنْ عَبَدَ اللهَ بِغَيْرِ عِلْمٍ كَانَ مَا يُفْسِدُ أَكْثَرَ مِمَّا يُصْلِحُ
 
+“Barangsiapa yang beribadah kepada Allah tanpa ilmu, maka dia akan membuat banyak kerusakan daripada mendatangkan kebaikan.” 
 
-- [ ] 11-12-20
+Al Amru bil Ma’ruf, hal. 15
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Islam"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
+
+read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
+
+- [ ] 11-12-20 // repost post agustus
 ___ 
 
-### 10. Judul
+### 10. Tawakkal Kepada Allah
 ___
-teks
+Rasulullah -shallallahu 'alaihi wasallam- bersabda :
+Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.” 
 
+HR. Ahmad, Tirmidzi, An-Nasai, Ibnu Majah, Ibnu Hibban dalam kitab sahihnya, dan Al-Hakim. Tirmidzi mengatakan bahwa hadits ini hasan sahih
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Kunci Rezeki Itu Tawakkal Kepada Allah (Hadits Jami'ul 'Ulum wal Hikam #49"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
-- [ ] 14-12-20
+read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
+
+- [ ] 14-12-20 // repost post agustus
 ___ 
 
 ### 11. Andai Ia Meninggalkan Bau
@@ -150,50 +172,92 @@ https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 - [ ] 15-12-20 // repost post juli
 ___ 
 
-### 12. Judul
+### 12. Teman Seiman Selalu Berbaik Sangka
 ___
-teks
+Suatu ketika Imam Al-Syafi'i rahimahullah sakit, lalu sebagian teman-temannya datang membesuknya, ia berkata kepada Imam Asyyafi'i; "Semoga Allah menguatkan kelemahanmu". 
 
+Imam Asyyafi'i berkata; "Jika kelemahanku menguat niscaya akan membunuhku,"
+
+Ia berkata; "Wallahi tiadalah maksudku kecuali kebaikan,"
+
+Imam Asyyafi'i berkata; "Aku tahu itu, sesungguhnya jika kamu mencacimakiku sekalipun maka tiadalah yang kamu maksudkan kecuali kebaikan"
+
+Adab Asyyafi'i Wa Manaqibih karya Ibnu Abi Hatim Hal. 209
+Dinukil dari Ustadz Musa Mulyadi Luqman, Lc. via WhatsApp dengan sedikit penyesuaian
 
 - [ ] 16-12-20
 ___ 
 
-### 13. Judul
+### 13. Tanda Kebahagiaan
 ___
-teks
+Syaikh Muhammad At-Tamimy -rahimahullah- berkata tentang tanda kebaikan :
+1. Jika diberi kenikmatan, dia bersyukur
+2. Jika diuji dengan ditimpa musibah, dia bersabar
+3. dan jika melakukan dosa, dia beristighfar(bertaubat)
+Maka tiga hal ini adalah tanda kebahagiaan
 
+Matn Qowaidul Arba'
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "tanda-tanda kebahagiaan yang sejati"
+yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
+
+read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
 - [ ] 17-12-20
 ___ 
 
-### 14. Judul
+### 14. Kekayaan Sejati
 ___
-teks
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
+لَيْسَ الْغِنَى عَنْ كَثْرَةِ الْعَرَضِ ، وَلَكِنَّ الْغِنَى غِنَى النَّفْسِ
+
+Yang namanya kaya (ghina’), bukanlah dengan banyaknya harta (atau banyaknya kemewahan dunia). Namun yang namanya ghina’ adalah hati yang selalu merasa cukup
+
+HR. Bukhari dan Muslim
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "tanda-tanda kebahagiaan yang sejati"
+yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
+
+read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
 - [ ] 18-12-20
 ___ 
 
-### 15. Judul
+### 15. Membaca Al-Kahfi di Siang
 ___
-teks
+Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
+Siapa yang membaca surat Al-Kahfi pada hari Jumat, maka ia akan disinari cahaya di antara dua Jumat.
 
+HR. An-Nasa-i, dinilai sahih oleh Al-Albani di dalam Ash-Shahihah
+Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
+yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
+
+read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
 - [ ] 21-12-20
 ___ 
 
-### 16. Judul
+### 16. Membaca Al-Kahfi Di Malam
 ___
-teks
+Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
+Siapa yang membaca surat Al-Kahfi pada malam Jumat maka ia akan disinari cahaya antara dia dan Baitul Atiq (yaitu Kabah).
 
+HR. Ad-Darimi, dinyatakan sahih oleh Al-Albani di dalam Ash-Shahihah
+Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
+yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
+
+read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
 - [ ] 22-12-20
 ___ 
 
-### 17. Judul
+### 17. Makna Cahaya di Hadits Al-kahfi
 ___
-teks
+Yang dimaksud cahaya di dalam hadis tersebut sebagaimana yang dijelaskan dalam Misykah al-Mashabih dan kitab-kitab syarh hadis lainnya ialah cahaya hati, cahaya di alam kubur, atau cahaya kala dibangkitkan kelak. Ada juga yang berpendapat bahwa yang dimaksud adalah cahaya hidayah dan cahaya keimanan.
 
+Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
+yang ditulis Ustadz Roni Nuryusmansyah
+
+read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
 - [ ] 23-12-20
 ___ 
