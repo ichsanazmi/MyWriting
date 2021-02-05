@@ -164,7 +164,7 @@ Muhammad bin Wasi’ -rahimahullah- berkata,
 Andaikan dosa itu memiliki bau, tentu tidak ada dari seorang pun yang ingin duduk dekat-dekat denganku.
 
 Muhasabah An-Nafs, hlm. 37. Lihat A’mal Al-Qulub,hlm. 373
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bisakah jadi Lebih Baik" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+Dinukil dari laman Rumaysho.com dalam artikel yang berjudul "Bisakah jadi Lebih Baik" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
 
 read more :
 https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
@@ -174,13 +174,13 @@ ___
 
 ### 12. Teman Seiman Selalu Berbaik Sangka
 ___
-Suatu ketika Imam Al-Syafi'i rahimahullah sakit, lalu sebagian teman-temannya datang membesuknya, ia berkata kepada Imam Asyyafi'i; "Semoga Allah menguatkan kelemahanmu". 
+Suatu ketika Imam Asy-Syafi'i rahimahullah sakit, lalu sebagian teman-temannya datang membesuknya, ia berkata kepada Imam Asy-syafi'i; "Semoga Allah menguatkan kelemahanmu". 
 
-Imam Asyyafi'i berkata; "Jika kelemahanku menguat niscaya akan membunuhku,"
+Imam Asy-syafi'i berkata; "Jika kelemahanku menguat niscaya akan membunuhku,"
 
 Ia berkata; "Wallahi tiadalah maksudku kecuali kebaikan,"
 
-Imam Asyyafi'i berkata; "Aku tahu itu, sesungguhnya jika kamu mencacimakiku sekalipun maka tiadalah yang kamu maksudkan kecuali kebaikan"
+Imam Asy-syafi'i berkata; "Aku tahu itu, sesungguhnya jika kamu mencacimakiku sekalipun maka tiadalah yang kamu maksudkan kecuali kebaikan"
 
 Adab Asyyafi'i Wa Manaqibih karya Ibnu Abi Hatim Hal. 209
 Dinukil dari Ustadz Musa Mulyadi Luqman, Lc. via WhatsApp dengan sedikit penyesuaian
@@ -222,7 +222,7 @@ read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 - [ ] 18-12-20
 ___ 
 
-### 15. Membaca Al-Kahfi di Siang
+### 15. Membaca Al-Kahfi di Siang Hari
 ___
 Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
 Siapa yang membaca surat Al-Kahfi pada hari Jumat, maka ia akan disinari cahaya di antara dua Jumat.
@@ -236,7 +236,7 @@ read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 - [ ] 21-12-20
 ___ 
 
-### 16. Membaca Al-Kahfi Di Malam
+### 16. Membaca Al-Kahfi Di Malam Hari
 ___
 Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
 Siapa yang membaca surat Al-Kahfi pada malam Jumat maka ia akan disinari cahaya antara dia dan Baitul Atiq (yaitu Kabah).
