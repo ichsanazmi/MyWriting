@@ -1,98 +1,67 @@
 # Post Instagram Desember
 
-### 1. Doa Ketika Turun Hujan
+### 1. Telah Datang Waktunya
 ___
-Rasulullah -shallallahu 'alaihi wasallam- ketika melihat turunnya hujan, ia berdoa,
-اللَّهُمَّ صَيِّباً نَافِعاً
-"Allahumma Shoyyiban Naafi'an"
-Ya Allah Turunkanlah Hujan Yang Bermanfaat
-( Untuk Manusia, Tanaman dan Binatang )
+Telah datang waktunya, ajang untuk saling berlomba.
 
-HR. Bukhari no. 1032
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Doa Ketika Turun Hujan" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+Dimana tidak ada istilah kalah atau menang, yang ada hanyalah beruntung atau merugi
 
-read more :
-https://rumaysho.com/3759-doa-ketika-turun-hujan.html
-
-- [ ] 1-12-20 / repost post juli
+- [ ] 1 Ramadhan
 ___ 
 
-### 2. Fikir Sebelum Ucap
+### 2. Bersabar di Ramadhan
 ___
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-sesungguhnya ada seorang hamba benar-benar berbicara dengan satu kalimat yang termasuk keridhaan Allah, dia tidak menganggapnya penting, dengan sebab satu kalimat itu Allah menaikkannya beberapa derajat.
-dan sesungguhnya ada seorang hamba benar-benar berbicara dengan satu kalimat yang termasuk kemurkaan Allah, dia tidak menganggapnya penting,
-dengan sebab satu kalimat itu dia terjungkal di dalam neraka jahannam
+Alangkah butanya hati seorang yang tidak mampu bersabar sesaat, dan memilih untuk mereguk kehinaan abadi
 
-HR. Bukhari no. 6478
-Dinukil dari laman Almanhaj dalam artikel yang berjudul "Mengendalikan Lidah"
-yang ditulis Ustadz Abu Ismail Muslim Al-Atsari -Hafizhahullah-
+Bersemilah Ramadhan, Hal 63 Karya Ustadz Armen Halim Naro, Lc. -Rahimahullah-
 
-read more :
-https://almanhaj.or.id/14033-mengendalikan-lidah-2.html
-
-- [ ] 2-12-20 / repost juli
+- [ ] 2 Ramadhan
 ___ 
 
-### 3. Nikmat yang menipu
+### 3. Di Ampuni Yang Telah Lalu
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-Dua nikmat,kebanyakan manusia tertipu dengan keduanya,
-yaitu kesehatan dan waktu luang
+Barangsiapa yang berpuasa ramadhan atas dasar iman dan mengharap pahala dari Allah, maka dosanya yang telah lalu akan diampuni
 
-HR. Bukhari
-Dinukil dari laman Muslimah.or.id dalam artikel yang berjudul "2 Nikmat yang Banyak dilalaikan"
-yang ditulis Wiwit Hardi P -Hafizhahullah- dengan sedikit penyesuaian
+HR. Bukhari Muslim
 
-read more : https://muslimah.or.id/7233-2-nikmat-yang-banyak-dilalaikan.html
-
-- [ ] 3-12-20 // repost post juli
+- [ ] 3 Ramadhan
 ___ 
 
 ### 4. Hasil Kondisimu dengan Allah
 ___
-Boleh jadi engkau hidup diatas bumi selama 70 tahun.
-Namun engkau bisa jadi tinggal di kuburmu selama 5000 tahun.
-Maka bayangkanlah bahwasanya engkau termasuk orang-orang yang Allah ridho kepadanya.
-Maka jadilah kuburmu itu taman diantara taman-taman surga dan engkau merasakan nikmat selama tinggal disana, dengan sebab amal-amal sholihmu.
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+Barangsiapa sholat (tarawih) di bulan ramadhan atas dasar iman dan mengharap pahala dari Allah, maka dosanya yang telah lalu akan diampuni
 
-Kehidupanmu dibawah bumi adalah hasil kondisimu bersama Allah diatas muka bumi.
-Nasehat yang menyentuh dari Syaikhunâ, Sulthan bin Abdillah al-'Āmiriy hafizhahullah
+HR. Bukhari Muslim
 
-Dinukil dari status facebook
-yang ditulis oleh Ustadz Abu Sa'id Neno Triyono -Hafizhahullah- dengan sedikit penyesuaian
-
-read more :
-https://www.facebook.com/abu.s.triyono.5
-
-- [ ] 4-12-20 // repost post juli
+- [ ] 4 Ramadhan
 ___ 
 
-### 5. Tanda Kebaikan Seseorang
+### 5. Bersegera Dalam Berbuka
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-Barangsiapa yang Allah kehendaki menjadi baik
-maka Allah faqihkan (memahamkan) dia terhadap agama
+Manusia senantiasa dalam kebaikan selama mereka menyegerakan berbuka
 
 HR. Bukhari
-Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
-read more : https://hadits.in/bukhari/69
-
-- [ ] 7-12-20 // repost post juli
+- [ ] 5 Ramadhan
 ___ 
 
-### 6. Bersabar dalam Do'a
+### 6. Do'a Berbuka Puasa
 ___
-Rasulullah -shallallahu ‘alaihi wa sallam- bersabda :
-(Do'a) kalian akan diijabahi selagi tidak terburu-buru, dengan mengatakan : Aku telah berdo'a, namun tak kunjung diijabahi
+Rasulullah -shallallahu ‘alaihi wa sallam- ketika berbuka beliau membaca doa :
 
-HR. Bukhari No. 5865
-Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
+ذَهَبَ الظَّمَأُ وَابْتَلَّتِ الْعُرُوقُ وَثَبَتَ الأَجْرُ إِنْ شَاءَ اللَّهُ
+dzahabazh zhoma'u wab tallatil 'uruuqu wa
+tsabatal ajru insyaa' Allah
+artinya: rasa haus telah hilang dan urat-urat telah basah,
+dan pahala telah ditetapkan insya Allah
 
-read more : https://hadits.in/bukhari/5865
+HR Abu Daud no. 2357, dari Ibnu Umar, Syaikh Al-Albani berkata hadits ini
+hasan
 
-- [ ] 8-12-20 // repost post juli
+- [ ] 6 Ramadhan
 ___ 
 
 ### 7. Introspeksi Diri
@@ -262,88 +231,50 @@ read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 - [ ] 23-12-20
 ___ 
 
-### 18. Seperti Puasa Sepanjang Tahun
+### 18. Judul
 ___
-Dari ‘Abdullah bin ‘Amr bin Al ‘Ash, Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+teks
 
-صَوْمُ ثَلاَثَةِ أَيَّامٍ صَوْمُ الدَّهْرِ كُلِّهِ
 
-“Puasa pada tiga hari setiap bulannya adalah seperti puasa sepanjang tahun.”
-
-HR. Bukhari no. 1979,
-Dinukil dari laman Rumaysho.com dalam artikel yang berjudul "Lakukanlah Puasa Sunnah Minimal Sebulan 3 Kali" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhahullah- 
-
-read more : 
-https://rumaysho.com/863-lakukanlah-puasa-sunnah-minimal-sebulan-3-kali.html
-
-- [ ] 24-12-20 // repost 05-08-20
+- [ ] 24-12-20
 ___ 
 
-### 19. Sebab - Sebab Kebahagiaan
+### 19. Judul
 ___
-Kebahagiaan timbul dari kuatnya tauhid seseorang kepada Allah, besarnya ketergantungan hatinya pada Rabbnya,
-dia yakin bahwa kebahagiaannya Allah yang jamin
+teks
 
-Faidah catatan kajian dengan judul "7 Tips Bahagia di Zaman Now" oleh Ustadz Dr Firanda Andirja, Lc. MA -Hafizhahullah-
 
-watch more : https://www.youtube.com/watch?v=NW59PUoiWOo
-
-- [ ] 25-12-20 // repost 13-08-20
+- [ ] 25-12-20
 ___ 
 
-### 20. Menguasai Ucapan
+### 20. Judul
 ___
-ada kalimat bijak mengatakan,
-"omongan itu sebelum engkau ucapkan, engkau kuasai dia.
-begitu engkau ucapkan, dia menguasaimu."
+teks
 
-omongan seblum kita ucapkan kita bisa menguasainya, terserah diucapkan atau tidak dan kepada siapa.
-begitu sudah diucapkan dia bisa menguasai kita.
-
-Faidah catatan kajian dengan judul "Adab dan Akhlak Tips Memperbanyak Diam" oleh Ustadz Abdullah Zaen, Lc. MA -Hafizhahullah-
-
-watch more : 
-https://www.youtube.com/watch?v=TSi2PaqEGg8
 
 - [ ] 28-12-20
 ___ 
 
-### 21. Tips Memperbanyak Diam
+### 21. Judul
 ___
-1. Berbicara bila ada manfaat
-2. pilih momen yang pas
-3. berbicara sesuai kebutuhan (Secukupnya)
-4. pilihlah redaksi kalimat yang baik
+teks
 
-Faidah catatan kajian dengan judul "Adab dan Akhlak Tips Memperbanyak Diam" oleh Ustadz Abdullah Zaen, Lc. MA -Hafizhahullah-
-
-watch more : 
-https://www.youtube.com/watch?v=TSi2PaqEGg8
 
 - [ ] 29-12-20
 ___ 
 
-### 22. Jebakan Berupa Nikmat
+### 22. Judul
 ___
-Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
-“Bila kamu melihat Allah memberi pada hamba dari (perkara) dunia yang diinginkannya, padahal dia terus berada dalam kemaksiatan kepada-Nya, maka (ketahuilah) bahwa hal itu adalah istidraj (jebakan berupa nikmat yang disegerakan) dari Allah.” 
+teks
 
-HR. Ahmad 4: 145. Syaikh Syu’aib Al Arnauth mengatakan bahwa hadits ini hasan dilihat dari jalur lain
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Istidraj Jebakan Berupa Limpahan Rezeki Karena Bermaksiat" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
-
-read more :
-https://rumaysho.com/10828-istidraj-jebakan-berupa-limpahan-rezeki-karena-bermaksiat.html
 
 - [ ] 30-12-20
 ___ 
 
-### 23. Hasil dari Ilmu
+### 23. Judul
 ___
-“Barangsiapa yang mencari ilmu (agama) untuk diamalkan, Allah akan terus memberi taufik kepadanya, sedangkan barangsiapa yang mencari ilmu bukan untuk diamalkan, ilmu itu hanya akan menjadi kebanggaan saja.”
+teks
 
-Hilyatul Auliya’: 2/378
-Dinukil dari kanal telegram MaaHaadza, dengan sedikit perubahan
-source : https://t.me/MaaHaadzaa/17447
 
 - [ ] 31-12-20
 ___ 

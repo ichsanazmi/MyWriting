@@ -8,7 +8,7 @@ teks
 
 Faidah catatan kajian dengan judul "Pada Akhirnya Engkau Akan Sendiri" oleh Ustadz Dr Syafiq Riza Basalamah, Lc. MA -Hafizhahullah-
 
-read more : 
+watch more : 
 https://youtu.be/TG9JAlFty78
 ___
 - [ ] 2-11-20 
@@ -110,4 +110,9 @@ Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya 
 yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
 
 read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
+___
+### Faidah Telegram
+Hilyatul Auliya’: 2/378
+Dinukil dari kanal telegram MaaHaadza
+source : https://t.me/MaaHaadzaa/17447
 ___
