@@ -1,6 +1,6 @@
 # Post Instagram Januari
 
-### 1. Perkara
+### 1. Besar dan Kecil Perkara
 ___
 Perkara yang kecil akan nampak besar, dimata orang berjiwa kecil,
 Perkara yang besar akan nampaknya kecil, dimata orang berjiwa besar.
@@ -12,24 +12,22 @@ yang ditulis oleh Ustadz Muhamad Fajri, M.Pd.I -Hafizhahullah- dengan sedikit pe
 read more :
 https://www.facebook.com/fajri1411/posts/1412878952397650
 
-- [ ] 1-12-20 / repost post juli
+- [ ] 1-1-21
 ___ 
 
-### 2. Fikir Sebelum Ucap
+### 2. Syukuri yang Sedikit
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-sesungguhnya ada seorang hamba benar-benar berbicara dengan satu kalimat yang termasuk keridhaan Allah, dia tidak menganggapnya penting, dengan sebab satu kalimat itu Allah menaikkannya beberapa derajat.
-dan sesungguhnya ada seorang hamba benar-benar berbicara dengan satu kalimat yang termasuk kemurkaan Allah, dia tidak menganggapnya penting,
-dengan sebab satu kalimat itu dia terjungkal di dalam neraka jahannam
+Barang siapa yang tidak mensyukuri sesuatu yang sedikit, maka ia tidak akan mampu mensyukuri sesuatu yang banyak
 
-HR. Bukhari no. 6478
-Dinukil dari laman Almanhaj dalam artikel yang berjudul "Mengendalikan Lidah"
-yang ditulis Ustadz Abu Ismail Muslim Al-Atsari -Hafizhahullah-
+HR. Ahmad, 4:278. Syaikh Al-Albani mengatakan bahwa hadits ini hasan sebagaimana dalam Silsilah Al-Ahadits Ash-Shahihah, no. 667, 2:272
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Manfaat Bersyukur Kembali Kepada Yang Bersyukur"
+yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
 
 read more :
-https://almanhaj.or.id/14033-mengendalikan-lidah-2.html
+https://rumaysho.com/25932-manfaat-bersyukur-kembali-pada-yang-bersyukur.html
 
-- [ ] 2-12-20 / repost juli
+- [ ] 3-11-21
 ___ 
 
 ### 3. Nikmat yang menipu
@@ -307,4 +305,5 @@ teks
 
 - [ ] 31-12-20
 ___ 
+
 
