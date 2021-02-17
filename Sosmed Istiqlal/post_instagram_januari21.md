@@ -1,18 +1,16 @@
-# Post Instagram Desember
+# Post Instagram Januari
 
-### 1. Doa Ketika Turun Hujan
+### 1. Perkara
 ___
-Rasulullah -shallallahu 'alaihi wasallam- ketika melihat turunnya hujan, ia berdoa,
-اللَّهُمَّ صَيِّباً نَافِعاً
-"Allahumma Shoyyiban Naafi'an"
-Ya Allah Turunkanlah Hujan Yang Bermanfaat
-( Untuk Manusia, Tanaman dan Binatang )
+Perkara yang kecil akan nampak besar, dimata orang berjiwa kecil,
+Perkara yang besar akan nampaknya kecil, dimata orang berjiwa besar.
 
-HR. Bukhari no. 1032
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Doa Ketika Turun Hujan" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+Ta’lim al-Muta’allim Thariq al-Ta’allum, karya al-Zarnudji
+Dinukil dari status facebook
+yang ditulis oleh Ustadz Muhamad Fajri, M.Pd.I -Hafizhahullah- dengan sedikit penyesuaian
 
 read more :
-https://rumaysho.com/3759-doa-ketika-turun-hujan.html
+https://www.facebook.com/fajri1411/posts/1412878952397650
 
 - [ ] 1-12-20 / repost post juli
 ___ 
