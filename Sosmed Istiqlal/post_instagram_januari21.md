@@ -27,7 +27,7 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
 read more :
 https://rumaysho.com/25932-manfaat-bersyukur-kembali-pada-yang-bersyukur.html
 
-- [ ] 3-11-21
+- [ ] 3-1-21
 ___ 
 
 ### 3. Nikmat yang menipu

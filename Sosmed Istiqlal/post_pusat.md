@@ -150,7 +150,7 @@ read more : https://rumaysho.com/863-lakukanlah-puasa-sunnah-minimal-sebulan-3-k
 ___ 
 ## Agustus
 
-### 12. Introspeksi Diri
+### 1. Introspeksi Diri
 ___
 Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
 
@@ -161,7 +161,7 @@ read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
 - [ ] 03-08-20
 ___ 
-### 13. Andai Ia Meninggalkan Bau
+### 2. Andai Ia Meninggalkan Bau
 ___
 Muhammad bin Wasi’ -rahimahullah- berkata,
 
@@ -177,7 +177,7 @@ https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
 - [ ] 04-08-20
 ___ 
-### 14. Seperti Puasa Sepanjang Tahun
+### 3. Seperti Puasa Sepanjang Tahun
 ___
 Dari ‘Abdullah bin ‘Amr bin Al ‘Ash, Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -190,7 +190,7 @@ Muhammad Abduh Tuasikal, M.Sc -hafizhahullah- yang berjudul "Lakukanlah Puasa Su
 
 - [ ] 05-08-20
 ___ 
-### 15. Perbanyak doa di hari jumat
+### 4. Perbanyak doa di hari jumat
 ___
 Dari Abu Hurairah, Rasulullah shallallahu ‘alaihi wa sallam membicarakan mengenai hari Jum’at lalu ia bersabda,
 
@@ -233,7 +233,7 @@ read more : https://rumaysho.com/917-amalan-istimewa-di-hari-jumat.html
 
 - [ ] 07-08-20
 ___ 
-### 16. Warisan Para Nabi
+### 5. Warisan Para Nabi
 ___
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda :
@@ -249,7 +249,7 @@ read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 - [ ] 10-08-20
 ___ 
-### 17. Ilmu Sebelum Amal
+### 6. Ilmu Sebelum Amal
 ___
 'Umar bin 'Abdul 'Aziz -rahimahullah- berkata,
 
@@ -265,7 +265,7 @@ read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 - [ ] 11-08-20
 ___ 
-### 18. Tawakkal Kepada Allah
+### 7. Tawakkal Kepada Allah
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.” 
@@ -278,7 +278,7 @@ read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-
 
 - [ ] 12-08-20
 ___ 
-### 19. Akhlak Yang Dicintai Allah
+### 8. Akhlak Yang Dicintai Allah
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda tentang Al-Asyaj 'Abdul Qais -rahimahullah-,
 
@@ -299,7 +299,7 @@ read more : https://kangaswad.wordpress.com/2020/08/02/melatih-akhlak-mulia/
 
 - [ ] 13-08-20
 ___ 
-### 20. Sebab - Sebab Kebahagiaan
+### 9. Sebab - Sebab Kebahagiaan
 ___
 Kebahagiaan timbul dari kuatnya tauhid seseorang kepada Allah, besarnya ketergantungan hatinya pada Rabbnya,
 dia yakin bahwa kebahagiaannya Allah yang jamin
@@ -310,7 +310,7 @@ watch more : https://www.youtube.com/watch?v=NW59PUoiWOo
 
 - [ ] 14-08-20
 ___ 
-### 21. Puasa di Bulan Muharram
+### 10. Puasa di Bulan Muharram
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -328,7 +328,7 @@ read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tun
 
 - [ ] 17-08-20
 ___ 
-### 22. Puasa Asyuro
+### 11. Puasa Asyuro
 ___
 Abu Qotadah Al Anshoriy berkata,
 
@@ -344,7 +344,7 @@ read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tun
 
 - [ ] 18-08-20
 ___ 
-### 23. Puasa Tasu'a
+### 12. Puasa Tasu'a
 ___
 Ketika ada yang mengatakan bahwa 9 muharram adalah hari yang diagungkan yahudi dan nashrani, Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -367,7 +367,7 @@ read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tun
 
 - [ ] 19-08-20
 ___ 
-### 24. Bid'ah 10 Muharram
+### 13. Bid'ah 10 Muharram
 ___
 al-Hafizh Ibnu Rojab berkata,
  “Adapun menjadikan hari asyuro sebagai hari kesedihan/ratapan sebagaimana dilakukan oleh kaum Rofidhah karena terbunuhnya Husain bin Ali, maka hal itu termasuk perbuatan orang yang tersesat usahanya dalama kehidupan dunia sedangkan dia mengira berbuat baik. Allah dan rasulNya saja tidak pernah memerintahkan agar hari mushibah dan kematian para Nabi dijadikan ratapan, lantas bagaimana dengan orang yang selain mereka?!”
@@ -381,7 +381,7 @@ read more : https://muslim.or.id/23085-11-amalan-bidah-di-bulan-muharram.html
 
 - [ ] 20-08-20
 ___ 
-### 25. Adab Menghadiri Shalat Jum'at
+### 14. Adab Menghadiri Shalat Jum'at
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -397,7 +397,7 @@ read more : https://muslim.or.id/58161-memperbanyak-shalat-sunnah-sebelum-datang
 
 - [ ] 21-08-20
 ___ 
-### 26. Keutamaan Shaf Awal
+### 15. Keutamaan Shaf Awal
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -414,7 +414,7 @@ read more : https://rumaysho.com/17030-mengejar-shaf-pertama.html
 
 - [ ] 24-08-20
 ___ 
-### 27. Tidak Bersegera Dalam Beribadah
+### 16. Tidak Bersegera Dalam Beribadah
 ___
 Rasulullah -shallallahu 'alaihi wasallam- melihat diantara shahabat ada yang mengakhirkan berangkat ke masjid, maka beliau bersabda,
 
@@ -437,7 +437,7 @@ read more : https://muslim.or.id/7492-keutamaan-shaf-pertama.html
 
 - [ ] 25-08-20
 ___ 
-### 28. Karakter Wanita Shalihah
+### 17. Karakter Wanita Shalihah
 ___
 Allah Ta’ala berfirman,
 
@@ -454,7 +454,7 @@ read more : https://muslim.or.id/57256-para-wanita-perindu-surga.html
 
 - [ ] 26-08-20
 ___ 
-### 29. Berbanding Lurus
+### 18. Berbanding Lurus
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -470,7 +470,7 @@ read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
 - [ ] 27-08-20
 ___ 
-### 30. Istiqomahnya Lisan
+### 19. Istiqomahnya Lisan
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -486,7 +486,7 @@ read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
 - [ ] 28-08-20
 ___ 
-### 31. Kegembiraan Saudaramu
+### 20. Kegembiraan Saudaramu
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Seutama-utama amal shalih ialah hendaknya engkau memasukkan kegembiraan kepada saudaramu yang beriman" 
@@ -499,7 +499,111 @@ yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 ___ 
 ## September
 
-### 32. Introspeksi Diri
+### 1. Introspeksi Diri
+___
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+
+Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
+dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik" 
+
+read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] 03-08-20
+___ 
+## Oktober
+
+### 1. Introspeksi Diri
+___
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+
+Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
+dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik" 
+
+read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] 03-08-20
+___ 
+## November
+
+### 1. Introspeksi Diri
+___
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+
+Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
+dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik" 
+
+read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] 03-08-20
+___ 
+## Desember
+
+### 1. Introspeksi Diri
+___
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+
+Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
+dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik" 
+
+read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] 03-08-20
+___ 
+## Januari 21
+
+### 1. Introspeksi Diri
+___
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+
+Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
+dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik" 
+
+read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] 03-08-20
+___ 
+## Februari 21
+
+### 1. Introspeksi Diri
+___
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+
+Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
+dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik" 
+
+read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] 03-08-20
+___ 
+## Maret 21
+
+### 1. Introspeksi Diri
+___
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+
+Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
+dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik" 
+
+read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] 03-08-20
+___ 
+## April 21
+
+### 1. Introspeksi Diri
+___
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+
+Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
+dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik" 
+
+read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] 03-08-20
+___ 
+## Mei 21
+
+### 1. Introspeksi Diri
 ___
 Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
 
