@@ -2,7 +2,7 @@
 
 - [x] 2-11-20 
 
-### Sendiri
+### 1. Sendiri
 ___
 Kelak suatu saat, diri kita akan diantar oleh orang ramai. 
 diantar menuju kesendirian. 
@@ -16,7 +16,7 @@ https://youtu.be/TG9JAlFty78
 ___ 
 - [x] 3-11-20 / repost 30-07-20
 
-### Senin Kamis
+### 2. Senin Kamis
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Amal-amal ditampakan pada hari senin dan kamis, maka aku suka jika ditampakan amalku dan aku dalam keadaan berpuasa"
@@ -30,7 +30,7 @@ read more :
 ___ 
 - [x] 4-11-20 / repost 30-07-20
 
-### Ibadah berupa memberi nafkah
+### 3. Ibadah berupa memberi nafkah
 ___
 Syaikh Muhammad bin Shalih al-Utsaimin -rahimahullah- berkata :
 “Sebagian manusia ketika memberikan nafkah kepada keluarganya, ia tidak merasa bahwa ia sedang beribadah kepada Allah dengan nafkah ini. Ketika datang seorang yang miskin lalu ia memberikan satu rial, maka ia merasa sedang beribadah kepada Allah.”
@@ -44,7 +44,7 @@ https://muslim.or.id/58957-memberi-nafkah-kepada-anak-istri-juga-ibadah-yang-agu
 ___
 - [x] 5-11-20
 
-### Bukan Patokan Kebenaran
+### 4. Bukan Patokan Kebenaran
 ___
 Syaikh As Sa'di -rahimahullah- berkata :
 “Tidak semestinya seseorang tertipu tentang perkara duniawi. Sehingga ia menjadikan kenikmatan yang Allah berikan dalam urusan dunia sebagai indikasi bahwa Allah mencintainya atau patokan kebenarannya.
@@ -62,7 +62,7 @@ https://kangaswad.wordpress.com/2020/03/12/kehebatan-duniawi-bukan-patokan-keben
 ___ 
 - [x] 6-11-20
 
-### Jangan Mengeluh
+### 5. Jangan Mengeluh
 ___
 Imam Ibnu Qayyim -rahimahullah- bersyair :
 Jika engkau tertimpa musibah, maka bersabarlah…
@@ -79,7 +79,7 @@ https://kangaswad.wordpress.com/2020/04/09/jangan-mengeluh-kepada-manusia/
 ___ 
 - [x] 9-11-20
 
-### Sebab Tercapainya Hajat
+### 6. Sebab Tercapainya Hajat
 ___
 Imam Ibnu Rajab Al-Hanbali -rahimahullah- berkata :
 “Tawakkal kepada Allah adalah sebab terbesar tercapainya hajat-hajat. Karena Allah akan mencukupkan orang yang bertawakkal kepada Allah”
@@ -93,7 +93,7 @@ https://kangaswad.wordpress.com/2016/08/11/tawakkal-adalah-sebab-tercapainya-haj
 ___ 
 - [x] 10-11-20
 
-### Nikmat yang Besar
+### 7. Nikmat yang Besar
 ___
 Syaikh Sulaiman Ar-Ruhaili -hafizhahullah- berkata :
 "Salah satu nikmat yang terbesar dari Allah kepada anda adalah Allah menjadikan hati anda lembut dan penuh kasih sayang sehingga anda berinteraksi baik dengan orang yang dekat maupun orang yang jauh, baik dengan orang yang baik agamanya maupun dengan orang yang menyimpang, sikap anda tetap sesuai dengan tuntutan syariat walaupun sebenarnya hawa nafsu anda menyelisihinya."
@@ -106,7 +106,7 @@ https://kangaswad.wordpress.com/2013/12/18/sikap-lemah-lembut-adalah-nikmat-yang
 ___ 
 - [ ] 11-11-20
 
-### Maksiat
+### 8. Maksiat
 ___
 Bilal bin Sa'ad -rahimahullah- berkata :
 "Janganlah engkau melihat kecilnya maksiat tetapi lihatlah kepada siapa engkau bermaksiat.” 
@@ -120,7 +120,7 @@ https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.ht
 ___ 
 - [ ] 12-11-20
 
-### Jangan Merasa Aman
+### 9. Jangan Merasa Aman
 ___
 Ibnu 'Abbas -radhiallahu anhu- berkata :
 “Wahai pelaku dosa, janganlah merasa aman dari jeleknya akibat dosa, karena dosa yang lebih besar bisa jadi mengiringinya/mengikutinya, lebih besar dari dosa yang telah engkau lakukan (sekarang).” 
@@ -134,7 +134,7 @@ https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.ht
 ___ 
 - [ ] 13-11-20
 
-### Hilangnya Berkah 
+### 10. Hilangnya Berkah 
 ___
 Imam Ibnul Qayyim -rahimahullah- berkata :
 "Sungguh maksiat itu adalah sebab hilangnya keberkahan rizki dan keberkahan waktu"
@@ -148,7 +148,7 @@ https://kangaswad.wordpress.com/2013/10/28/ibnul-qayyim-bicara-tentang-rezeki/
 ___
 - [ ] 16-11-20
 
-### Bagaimana Hati Akan Terenyuh
+### 11. Bagaimana Hati Akan Terenyuh
 ___
 Nasehat Imam Ibnul Qayyim rahimahullah kepada setiap orang yang membaca Alqur'an ;
 
@@ -167,7 +167,7 @@ https://m.facebook.com/story.php?story_fbid=3508435479224064&id=100001729388129
 ___
 - [ ] 17-11-20
 
-### Tujuan Penciptaan 
+### 12. Tujuan Penciptaan 
 ___
 Allah tidaklah menciptakanmu untuk mengumpulkan harta, lalu MATI.
 Tapi, agar engkau beribadah dan berkarya untuk akherat dengan nikmat-Nya.
@@ -180,7 +180,7 @@ https://facebook.com/story.php?story_fbid=3537899999658225&id=100003147806078
 ___
 - [ ] 18-11-20
 
-### Manfaat Taqwa
+### 13. Manfaat Taqwa
 ___
 Syeikh Ibnu Baz -rahimahullah- berkata,
 Siapa yang menginginkan kemuliaan dan rizki yang halal di dunia, serta kenikmatan di akhirat, hendaknya ia bertakwa
@@ -194,7 +194,7 @@ https://facebook.com/story.php?story_fbid=10219034393231572&id=1257341801
 ___
 - [ ] 19-11-20
 
-### Merasa Agung
+### 14. Merasa Agung
 ___
 Nasehat 'Utbah bin Ghazwan -Radhiyallahu 'Anhu- dalam sebuah khuthbahnya;
 
@@ -211,7 +211,7 @@ https://facebook.com/story.php?story_fbid=3538154902918788&id=100001729388129
 ___
 - [ ] 20-11-20
 
-### Mengejar Dunia
+### 15.Mengejar Dunia
 ___
 Hal yang paling kuat membangun kepribadian baik seorang adalah (Muroqobatullah) merasa diawasi Allah. 
 Dan hal yang paling kuat merusak seseorang adalah (Murkoqabatunnas) mengawasi keadaan orang lain. 
@@ -225,7 +225,7 @@ https://facebook.com/story.php?story_fbid=1987392251328402&id=100001729388129
 ___ 
 - [ ] 23-11-20
 
-### Tertutup oleh penyakit
+### 16. Tertutup oleh penyakit
 ___
 Malik ibn Dinar -rahimahullah- berkata,
 “Sesungguhnya badan apabila terkena penyakit maka akan sulit untuk menelan makanan dan minuman, demikian pula hati apabila telah tertutup dengan kecintaan kepada dunia, maka akan sulit menerima nasihat.” 
@@ -239,7 +239,7 @@ https://muslim.or.id/45299-sakit-badan-tidak-merasakan-lezatnya-makanan-penyakit
 ___
 - [ ] 24-11-20
 
-### Manisnya Iman
+### 17. Manisnya Iman
 ___
 Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
 "Ada tiga perkara yang apabila perkara tersebut ada pada seseorang, maka ia akan mendapatkan manisnya iman, yaitu,
@@ -256,7 +256,7 @@ https://muslim.or.id/45299-sakit-badan-tidak-merasakan-lezatnya-makanan-penyakit
 ___
 - [ ] 25-11-20
 
-### Perayaan Tahun Baru
+### 18. Perayaan Tahun Baru
 ___
 Pertanyaan : Apakah boleh bagi kaum muslimin mengucapkan ucapan selamat satu sama lain dalam moment tahun baru? Tentu saja mereka lakukan itu tidak dengan niat merayakannya. 
 
@@ -281,7 +281,7 @@ https://islamqa.info/id/answers/177460/hukum-kaum-muslimin-mengucapkan-selamat-t
 ___
 - [ ] 26-11-20
 
-### Cara Bersyukur
+### 19. Cara Bersyukur
 ___
 Syaikh Abdurrahman As-Sa’diy -rahimahullah- berkata,
 
@@ -297,7 +297,7 @@ https://muslim.or.id/43833-keadaan-susah-atau-stres-tetap-perhatikan-kebutuhan-h
 ___
 - [ ] 27-11-20
 
-### Tiga Golongan Yang Ditolong Allah
+### 20. Tiga Golongan Yang Ditolong Allah
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -313,7 +313,7 @@ https://muslim.or.id/57637-janji-allah-akan-menolong-orang-yang-menikah-untuk-me
 ___
 - [ ] 30-11-20
 
-### Berdoa Dengan Sepenuh Hati
+### 21. Berdoa Dengan Sepenuh Hati
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 ادْعُوا اللَّهَ وَأَنْتُمْ مُوقِنُونَ بِالإِجَابَةِ وَاعْلَمُوا أَنَّ اللَّهَ لاَ يَسْتَجِيبُ دُعَاءً مِنْ قَلْبٍ غَافِلٍ لاَهٍ
@@ -326,3 +326,4 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "7 Catatan mengenai adab
 read more :
 https://rumaysho.com/16893-7-catatan-mengenai-adab-doa.html
 ___
+

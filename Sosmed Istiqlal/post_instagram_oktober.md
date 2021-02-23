@@ -1,8 +1,8 @@
 Post Instagram Oktt
 
-- [x] 1-10-20 
+ 
 
-## Ancaman Bagi Yang Tidak Mengerjakan Hal Yang Ia Perintahkan
+## 1. Ancaman Bagi Yang Tidak Mengerjakan Hal Yang Ia Perintahkan
 ___
 Dari Usamah bin Zaid radhiyallahu’anhu, Rasulullah shallallahu ‘alaihi wa sallam bersabda,
 
@@ -17,9 +17,10 @@ yang ditulis oleh Ustadz Ari Wahyudi S.Si -Hafizhahullah-
 read more : 
 https://muslim.or.id/58612-pondasi-tegaknya-ibadah.html
 
+- [x] 1-10-20
 ___
 - [x] 2-10-20 
-## Sebuah Perjalanan
+## 2. Sebuah Perjalanan
 ___
  Dari Ibnu Syaudzab ia berkata : ”Ketika menjelang kematiannya, Abu Hurairah radliyallaahu ’anhu sempat menangis. Maka dikatakan kepadanya : ”Apa gerangan yang membuatmu menangis (wahai Abu Hurairah) ?”. Maka ia menjawab :
 بُعد المفازة وقلة الزاد وعَقبة كؤود، المهبط منها إلى الجنة أو النا
@@ -33,7 +34,7 @@ read more :
 http://abul-jauzaa.blogspot.com/2008/08/salaf-dalam-rasa-takut-dan-muraqabah.html
 ___
 - [x] 5-10-20 
-## Pionir Kebaikan
+## 3. Pionir Kebaikan
 ___
 Rasulullah shallallahu ’alaihi wa sallam bersabda,
 
@@ -50,7 +51,7 @@ https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 
 ___
 - [x] 6-10-20 
-## Doa Berlindung Dari Keburukan
+## 4. Doa Berlindung Dari Keburukan
 ___
 Rasulullah shallallahu ’alaihi wa sallam berdoa,
 
@@ -66,7 +67,7 @@ https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 
 ___
 - [x] 7-10-20
-## Yakin Akan Rezeki
+## 5. Yakin Akan Rezeki
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda :
 أَيُّهَا النَّاسُ اتَّقُوا اللَّهَ وَأَجْمِلُوا فِى الطَّلَبِ فَإِنَّ نَفْسًا لَنْ تَمُوتَ حَتَّى تَسْتَوْفِىَ رِزْقَهَا وَإِنْ أَبْطَأَ عَنْهَا فَاتَّقُوا اللَّهَ وَأَجْمِلُوا فِى الطَّلَبِ خُذُوا مَا حَلَّ وَدَعُوا مَا حَرُمَ
@@ -81,7 +82,7 @@ read more :
 https://muslim.or.id/25097-mengapa-ada-yang-mati-kelaparan-padahal-rezeki-sudah-dijamin.html
 ___
 - [x] 8-10-20
-## Merasa Cukup
+## 6. Merasa Cukup
 ___
 Seseorang akan  terus merasa kurang dan miskin apabila tidak merasa qana’ah dan selalu melihat orang lain yang berada di atasnya dalam urusan dunia.
 padahal Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
@@ -100,7 +101,7 @@ https://muslim.or.id/50745-setan-menakut-nakuti-dengan-kemiskinan.html
 
 ___
 - [x] 9-10-20
-## Doa Naik Kendaraan
+## 7. Doa Naik Kendaraan
 ___
 Persis ketika kaki naik kendaraan, baca: Bismillah.
 Setelah berada di atas kendaraan, baca: “Alhamdulillah”.
@@ -121,7 +122,7 @@ https://konsultasisyariah.com/22104-doa-agar-dijamin-aman-ketika-keluar-rumah.ht
 
 ___
 - [x] 12-10-20 / repost 20-07-20
-## Keindahan Sabar
+## 8. Keindahan Sabar
 ___
 Dari Shuhaib bin Sinan -radhiallahu’anhu- dia berkata, Rasulullah -Shallallahu’alaihi Wasallam- bersabda:
 عجبًا لأمرِ المؤمنِ . إن أمرَه كلَّه خيرٌ . وليس ذاك لأحدٍ إلا للمؤمنِ . إن أصابته سراءُ شكرَ . فكان خيرًا له . وإن أصابته ضراءُ صبر . فكان خيرًا له
@@ -136,7 +137,7 @@ https://muslim.or.id/20127-bersyukur-ketika-senang-dan-bersabar-ketika-mendapat-
 
 ___
 - [x] 13-10-20
-## Qanaah 
+## 9. Qanaah 
 ___
 Ibnu Mas’ud radliallahu ‘anhu berkata,
 
@@ -153,7 +154,7 @@ https://muslim.or.id/25091-kiat-kiat-agar-bisa-qanaah.html
 
 ___
 - [x] 14-10-20 / repost 23-07-20
-## Bersabar Dalam Berdoa
+## 10. Bersabar Dalam Berdoa
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda : 
  يُسْتَجَابُ لِأَحَدِكُمْ مَا لَمْ يَعْجَلْ يَقُولُ دَعَوْتُ فَلَمْ يُسْتَجَبْ لِي
@@ -169,7 +170,7 @@ https://hadits.in/bukhari/5865
 
 ___
 - [x] 15-10-20
-## Pahala Shalat Sepanjang Malam
+## 11. Pahala Shalat Sepanjang Malam
 ___
 Tamim Ad Dary radhiyalahu ‘anhu berkata, Rasulullah shallallahu ‘alaihi wasallam bersabda :
 عنْ تَمِيمٍ الدَّارِىِّ رضى الله عنه قَالَ قَالَ رَسُولُ اللَّهِ -صلى الله عليه وسلم- « مَنْ قَرَأَ بِمِائَةِ آيَةٍ فِى لَيْلَةٍ كُتِبَ لَهُ قُنُوتُ لَيْلَةٍ»“
@@ -184,7 +185,7 @@ https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 
 ___
 - [x] 16-10-20
-## Syafaat Bagi Pembacanya
+## 12. Syafaat Bagi Pembacanya
 ___
 “Abu Umamah Al Bahily radhiyallahu ‘anhu berkata: “Aku telah mendengar Rasulullah -shallallahu ‘alaihi wasallam- bersabda, 
 اقْرَءُوا الْقُرْآنَ فَإِنَّهُ يَأْتِى يَوْمَ الْقِيَامَةِ شَفِيعًا لأَصْحَابِهِ
@@ -200,7 +201,7 @@ https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 
 ___
 - [x] 19-10-20
-## 10 Kebaikan
+## 13. 10 Kebaikan
 ___
 Abdullah bin Mas’ud radhiyallahu ‘anhu berkata: “Rasulullah shallallahu ‘alaihi wasallam bersabda:
 مَنْ قَرَأَ حَرْفًا مِنْ كِتَابِ اللَّهِ فَلَهُ بِهِ حَسَنَةٌ وَالْحَسَنَةُ بِعَشْرِ أَمْثَالِهَا لاَ أَقُولُ الم حرْفٌ وَلَكِنْ أَلِفٌ حَرْفٌ وَلاَمٌ حَرْفٌ وَمِيمٌ حَرْفٌ
@@ -215,7 +216,7 @@ https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 
 ___
 - [x] 20-10-20  
-## Berharaplah Diterima
+## 14. Berharaplah Diterima
 ___
 Ibnu 'Aun rahimahullah berkata; 
 "Kamu jangan berpegang dengan banyaknya amal, sesungguhnya kamu tidak tau apakah amal tersebut diterima ataukah tidak, dan kamu jangan merasa terjamin dari ancaman dosa -dosamu, sesungguhnya kamu tidak tau diampuni ataukah tidak, karena seluruh amalmu gaib darimu, kamu tidak tau apa yang Allah lakukan dengannya".
@@ -229,7 +230,7 @@ https://www.facebook.com/musamulyadi/posts/3421645881236358
 
 ___
 - [x] 21-10-20 / repost 24-07-20
-## Tanda Kebaikan
+## 15. Tanda Kebaikan
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -245,7 +246,7 @@ https://hadits.in/bukhari/69
 
 ___
 - [x] 22-10-20
-## Teman yang Shalih
+## 16. Teman yang Shalih
 ___
 Abu Musa radhiyallahu ‘anhu, Nabi shallallahu ‘alaihi wa sallam bersabda,
 
@@ -262,7 +263,7 @@ https://rumaysho.com/13311-manfaat-teman-yang-baik.html
 
 ___
 * [x] 23-10-20
-## Teman Karib
+## 17. Teman Karib
 ___
 Abu Hurairah -radhiyallahu ‘anhu-, Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -279,7 +280,7 @@ https://rumaysho.com/13311-manfaat-teman-yang-baik.html
 
 ___
 * [x] 26-10-20
-## Nikmat berupa Sahabat
+## 18. Nikmat berupa Sahabat
 ___
 Umar ibn Khattab -Radhiallahu 'anhu-' berkata,
 
@@ -296,7 +297,7 @@ https://muslim.or.id/45173-persahabatan-yang-sampai-ke-surga-selamanya.html
 
 ___
 * [x] 27-10-20
-## Doa dalam Sepi
+## 19. Doa dalam Sepi
 ___
 Rasulullah shallallahu ‘alaihi wa sallam bersabda,
 
@@ -314,7 +315,7 @@ https://muslim.or.id/45173-persahabatan-yang-sampai-ke-surga-selamanya.html
 
 ___
 * [x] 28-10-20
-## Pegang Erat
+## 20. Pegang Erat
 ___
 Imam Syafi’i -rahimahullah- berkata,
 
@@ -329,7 +330,7 @@ https://shahihfiqih.com/tazkiyatun-nafz/carilah-teman-yang-shalih/
 
 ___
 * [x] 29-10-20
-## Doa agar tidak malas, disucikan jiwa, dan diberikan hati yang khusyuk
+## 21. Doa agar tidak malas, disucikan jiwa, dan diberikan hati yang khusyuk
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- berdoa,
 
@@ -349,7 +350,7 @@ https://rumaysho.com/21000-doa-agar-tidak-malas-disucikan-jiwa-diberi-hati-yang-
 
 ___
 * [x] 30-10-20 / repost 27-07-20
-## Kedermawanan yang tercela
+## 22. Kedermawanan yang tercela
 ___
 Syaikhul Islam Ibnu Taimiyah rahimahullah berkata,
 “Bentuk kedermawanan yang paling buruk adalah kedermawananmu dalam menghadiahkan kebaikan-kebaikanmu kepada orang lain (yang diakibatkan oleh) menggunjing, mengadu domba, menfitnah, mencela dan mencaci-maki.”
@@ -359,8 +360,8 @@ Dinukil dari status Ustadz Abu Razin Taufiq -Hafizhahullah-
 (https://www.facebook.com/abu.yusha/)
 
 ___
-* [x] 31-10-20 / repost 27-07-20
-## Sejarak 70 Tahun Perjalanan
+[x] 31-10-20 / repost 27-07-20
+## 23. Sejarak 70 Tahun Perjalanan
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Tidaklah seorang hamba berpuasa satu hari di jalan Allah kecuali Allah akan menjauhkan wajahnya dari api neraka (dengan puasa itu) sejauh 70 tahun jarak perjalanan"
