@@ -2,6 +2,7 @@
 
 ### 1. Besar dan Kecil Perkara
 ___
+Dalam sebuah syair disebutkan,
 Perkara yang kecil akan nampak besar, dimata orang berjiwa kecil,
 Perkara yang besar akan nampaknya kecil, dimata orang berjiwa besar.
 
