@@ -31,19 +31,18 @@ https://rumaysho.com/25932-manfaat-bersyukur-kembali-pada-yang-bersyukur.html
 - [ ] 3-1-21
 ___ 
 
-### 3. Nikmat yang menipu
+### 3. Penggugur Dosa
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-Dua nikmat,kebanyakan manusia tertipu dengan keduanya,
-yaitu kesehatan dan waktu luang
+"Tidaklah seorang muslim tertimpa suatu kelelahan, atau penyakit, atau kehawatiran, atau kesedihan, atau gangguan, bahkan duri yang melukainya melainkan Allah akan menghapus kesalahan-kesalahannya karenanya"
 
-HR. Bukhari
-Dinukil dari laman Muslimah.or.id dalam artikel yang berjudul "2 Nikmat yang Banyak dilalaikan"
-yang ditulis Wiwit Hardi P -Hafizhahullah- dengan sedikit penyesuaian
+HR. Al-Bukhari no. 5642 dan Muslim no. 2573
+Dinukil dari laman MuslimAfiyah dalam artikel yang berjudul "Rasa Lelah Adalah Penghapus Dosa"
+yang ditulis Ustadz dr Raehanul Bahraen, Sp.Pk -Hafizhahullah- dengan sedikit penyesuaian
 
-read more : https://muslimah.or.id/7233-2-nikmat-yang-banyak-dilalaikan.html
+read more : https://muslimafiyah.com/rasa-lelah-adalah-penghapus-dosa.html
 
-- [ ] 3-12-20 // repost post juli
+- [ ] 4-1-21
 ___ 
 
 ### 4. Hasil Kondisimu dengan Allah
@@ -65,12 +64,13 @@ https://www.facebook.com/abu.s.triyono.5
 - [ ] 4-12-20 // repost post juli
 ___ 
 
-### 5. Tanda Kebaikan Seseorang
+### 5. Hikmah dari Musibah
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 Barangsiapa yang Allah kehendaki menjadi baik
 maka Allah faqihkan (memahamkan) dia terhadap agama
 
+https://konsultasisyariah.com/15816-berbahagia-ketika-sakit.html
 HR. Bukhari
 Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
