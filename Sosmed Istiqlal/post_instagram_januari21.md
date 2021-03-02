@@ -45,54 +45,54 @@ read more : https://muslimafiyah.com/rasa-lelah-adalah-penghapus-dosa.html
 - [ ] 4-1-21
 ___ 
 
-### 4. Hasil Kondisimu dengan Allah
+### 4. Sebanding dengan Cobaan
 ___
-Boleh jadi engkau hidup diatas bumi selama 70 tahun.
-Namun engkau bisa jadi tinggal di kuburmu selama 5000 tahun.
-Maka bayangkanlah bahwasanya engkau termasuk orang-orang yang Allah ridho kepadanya.
-Maka jadilah kuburmu itu taman diantara taman-taman surga dan engkau merasakan nikmat selama tinggal disana, dengan sebab amal-amal sholihmu.
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+"Besarnya pahala sesuai dengan besarnya cobaan, dan sesungguhnya apabila Allah mencintai suatu kaum maka Dia akan menguji mereka. Oleh karena itu, barangsiapa ridla (menerima cobaan tersebut) maka baginya keridlaan, dan barangsiapa murka maka baginya kemurkaan.”
 
-Kehidupanmu dibawah bumi adalah hasil kondisimu bersama Allah diatas muka bumi.
-Nasehat yang menyentuh dari Syaikhunâ, Sulthan bin Abdillah al-'Āmiriy hafizhahullah
-
-Dinukil dari status facebook
-yang ditulis oleh Ustadz Abu Sa'id Neno Triyono -Hafizhahullah- dengan sedikit penyesuaian
+HR. Ibnu Majah 2/1338 no. 4021
+Dinukil dari laman Firanda.com dalam artikel yang berjudul "Sepuluh sebab penggugur Dosa"
+yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah- 
 
 read more :
-https://www.facebook.com/abu.s.triyono.5
+https://firanda.com/3759-sepuluh-sebab-penggugur-dosa.html
 
-- [ ] 4-12-20 // repost post juli
+- [ ] 5-1-21
 ___ 
 
-### 5. Hikmah dari Musibah
+### 5. Tak Membawa Apa-Apa
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-Barangsiapa yang Allah kehendaki menjadi baik
-maka Allah faqihkan (memahamkan) dia terhadap agama
+"Manusia akan dikumpulkan pada hari kiamat –atau bersabda dengan redaksi para hamba- dalam keadaan tidak berpakaian, tidak berkhitan, dan tidak buhman” Lalu kami bertanya, “Apakah buhman itu?” Beliau bersabda, “Tidak ada sesuatupun yang kalian bawa."
 
-https://konsultasisyariah.com/15816-berbahagia-ketika-sakit.html
-HR. Bukhari
-Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
+HR. Ahmad 3/459 no. 16085
+Dinukil dari laman Firanda.com dalam artikel yang berjudul "Sepuluh sebab penggugur Dosa"
+yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah- 
 
-read more : https://hadits.in/bukhari/69
+read more : https://firanda.com/3759-sepuluh-sebab-penggugur-dosa.html
 
-- [ ] 7-12-20 // repost post juli
+- [ ] 6-1-21
 ___ 
 
-### 6. Bersabar dalam Do'a
+### 6. Bukan Jalan Keluar
 ___
-Rasulullah -shallallahu ‘alaihi wa sallam- bersabda :
-(Do'a) kalian akan diijabahi selagi tidak terburu-buru, dengan mengatakan : Aku telah berdo'a, namun tak kunjung diijabahi
+Seandainya kematian itu merupakan jalan keluar dari segala masalah kehidupan,
+Niscaya ia akan menjadi sebuah pilihan,
+Bagi para jiwa yang tertimpa beratnya ujian.
+Akan tetapi setelah kematian masih ada kehidupan,
+Dimana segala permasalahan dunia apapun akan terlihat ringan,
+Bila dibandingkan dengan beratnya akhirat dan pertanggung jawaban.
 
-HR. Bukhari No. 5865
-Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
+Dinukil dari status facebook
+yang ditulis oleh Ustadz Boris Tanesia -Hafizhahullah- 
 
-read more : https://hadits.in/bukhari/5865
+read more :
+https://web.facebook.com/story.php?story_fbid=10216632512146046&id=1257341801
 
-- [ ] 8-12-20 // repost post juli
+- [ ] 7-1-21
 ___ 
 
-### 7. Introspeksi Diri
+### 7. -
 ___
 Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan,
 Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.

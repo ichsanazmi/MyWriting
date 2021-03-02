@@ -1,6 +1,6 @@
 # Post Instagram Random
 
-### 1. Hati yang Tenang
+### Hati yang Tenang
 ___
 Betapa terkadang masalah menimpa seorang hamba,
 Begitu beratnya,
@@ -30,7 +30,7 @@ https://web.facebook.com/story.php?story_fbid=10219153604011767&id=1257341801
 - [ ] notposted
 ___ 
 
-### 2. Lupa Akan Tujuan Penciptaan
+### Lupa Akan Tujuan Penciptaan
 ___
 Syaikh Utsaimin -rahimahullah- berkata,
 "Seandainya manusia diciptakan untuk dunia, niscaya para Nabi dan Rasul adalah orang-orang yang paling utama untuk kekal di dalamnya.
@@ -52,7 +52,7 @@ https://web.facebook.com/story.php?story_fbid=10219134756060580&id=1257341801
 - [ ] notposted
 ___ 
 
-### 3. Standar Perdagangan Islam
+### Standar Perdagangan Islam
 ___
 Standar perdagangan Islam.
 Halal itu standar minimal, kualitas, kreatifitas, amanah, dan kompetitif itu standar ideal.
@@ -67,7 +67,7 @@ https://web.facebook.com/story.php?story_fbid=259400962213308&id=100044302190144
 - [ ] notposted
 ___ 
 
-### 4. Terbuai Tipu Daya
+### Terbuai Tipu Daya
 ___
 Al-Hafizh Al-Dzahaby -rahimahullah- berkata,
 "Setiap orang yang tidak takut masuk neraka maka ia orang yang terbuai tertipu daya, dengan sebabnya sungguh ia telah merasa aman akan Makar Allah."
@@ -84,7 +84,7 @@ https://web.facebook.com/story.php?story_fbid=3647133375354273&id=10000172938812
 - [ ] notposted
 ___ 
 
-### 5. Buah Dari Ilmu
+### Buah Dari Ilmu
 ___
 Seorang lelaki mencerca Imam Waki', namun beliau tidak membalasnya, lalu ada yang berkata kepadanya,
 "tidakkah engkau membalasnya!?",
@@ -101,7 +101,7 @@ https://web.facebook.com/story.php?story_fbid=3667743613293249&id=10000172938812
 - [ ] 7-12-20 // repost post juli
 ___ 
 
-### 6. Ujian Berupa Harta
+### Ujian Berupa Harta
 ___
 Ibnul Qayyim -rahimahullah- berkata,
 "Kapan saja harta itu di tanganmu bukan di hatimu, tidak akan memudaratkanmu walau pun banyak, dan kapan saja ada dalam hatimu, akan memudaratkanmu walau pun tidak ada dalam tanganmu sedikitpun." 
@@ -116,25 +116,8 @@ https://web.facebook.com/story.php?story_fbid=3639808006086810&id=10000172938812
 - [ ] notposted
 ___ 
 
-### 7. Bukan Jalan Keluar
-___
-Seandainya kematian itu merupakan jalan keluar dari segala masalah kehidupan,
-Niscaya ia akan menjadi sebuah pilihan,
-Bagi para jiwa yang tertimpa beratnya ujian.
-Akan tetapi setelah kematian masih ada kehidupan,
-Dimana segala permasalahan dunia apapun akan terlihat ringan,
-Bila dibandingkan dengan beratnya akhirat dan pertanggung jawaban.
 
-Dinukil dari status facebook
-yang ditulis oleh Ustadz Boris Tanesia -Hafizhahullah- 
-
-read more :
-https://web.facebook.com/story.php?story_fbid=10216632512146046&id=1257341801
-
-- [ ] notposted
-___ 
-
-### 8. Luasnya Ampunan Dari Allah
+### Luasnya Ampunan Dari Allah
 ___
 Allah -Tabaraka Wa Ta'ala- berfirman,
 
@@ -149,7 +132,7 @@ Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
 read more : https://hadits.in/muslim/2052
 penjelasan : https://www.youtube.com/watch?v=3-B0L3D9fSA
-- [ ] 10-12-20 // repost post agustus
+- [ ] notposted
 ___ 
 
 ### 9. Ilmu Sebelum Amal
@@ -336,5 +319,6 @@ teks
 
 - [ ] 31-12-20
 ___ 
+
 
 
