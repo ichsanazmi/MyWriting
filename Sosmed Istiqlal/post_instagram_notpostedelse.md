@@ -135,149 +135,134 @@ penjelasan : https://www.youtube.com/watch?v=3-B0L3D9fSA
 - [ ] notposted
 ___ 
 
-### 9. Ilmu Sebelum Amal
+### Sebaik-baik Orang
 ___
-'Umar bin 'Abdul 'Aziz -rahimahullah- berkata :
-مَنْ عَبَدَ اللهَ بِغَيْرِ عِلْمٍ كَانَ مَا يُفْسِدُ أَكْثَرَ مِمَّا يُصْلِحُ
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Seluruh anak Adam berdosa, dan sebaik-baik orang yang berdosa adalah yang bertaubat"
 
-“Barangsiapa yang beribadah kepada Allah tanpa ilmu, maka dia akan membuat banyak kerusakan daripada mendatangkan kebaikan.” 
+HR Ibnu Maajah no 4241, dihasankan oleh Syaikh Al-Albani
+Dinukil dari laman Firanda.com dalam artikel berjudul "Faedah Istigfar dan Taubat"
+yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah-
 
-Al Amru bil Ma’ruf, hal. 15
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Islam"
+read more : https://firanda.com/693-faedah-istigfar-dan-taubat.html
+
+- [ ] notposted
+___ 
+
+### Bertaqwa dimana saja
+___
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Bertakwalah kepada Allah di mana saja kamu berada"
+
+HR. Tirmidzi no. 1987. Imam At-Tirmidzi mengatakan bahwa hadits ini hasan shahih.
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Aku Ingin Bertaubat Tetapi"
 yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
-read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
+read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 
-- [ ] 11-12-20 // repost post agustus
+- [ ] notpostedelse
 ___ 
 
-### 10. Tawakkal Kepada Allah
+### Menghapus Kejelekan
 ___
-Rasulullah -shallallahu 'alaihi wasallam- bersabda :
-Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.” 
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"ikutkanlah kejelekan dengan kebaikan, niscaya kebaikan akan menghapuskannya"
 
-HR. Ahmad, Tirmidzi, An-Nasai, Ibnu Majah, Ibnu Hibban dalam kitab sahihnya, dan Al-Hakim. Tirmidzi mengatakan bahwa hadits ini hasan sahih
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Kunci Rezeki Itu Tawakkal Kepada Allah (Hadits Jami'ul 'Ulum wal Hikam #49"
+HR. Tirmidzi no. 1987. Imam At-Tirmidzi mengatakan bahwa hadits ini hasan shahih.
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Aku Ingin Bertaubat Tetapi"
 yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
-read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
+read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 
-- [ ] 14-12-20 // repost post agustus
+- [ ] notpostedelse
 ___ 
 
-### 11. Andai Ia Meninggalkan Bau
+### Berakhlaq yang Baik
 ___
-Muhammad bin Wasi’ -rahimahullah- berkata,
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"berakhlaqlah dengan sesama dengan akhlaq yang baik"
 
-لَوْ كَانَ لِلذُّنُوْبِ رِيْحٌ مَا قَدَرَ أَحَدٌ أَنْ يَجْلِسَ إِلَيَّ
+HR. Tirmidzi no. 1987. Imam At-Tirmidzi mengatakan bahwa hadits ini hasan shahih.
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Aku Ingin Bertaubat Tetapi"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
-Andaikan dosa itu memiliki bau, tentu tidak ada dari seorang pun yang ingin duduk dekat-dekat denganku.
-
-Muhasabah An-Nafs, hlm. 37. Lihat A’mal Al-Qulub,hlm. 373
-Dinukil dari laman Rumaysho.com dalam artikel yang berjudul "Bisakah jadi Lebih Baik" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
-
-read more :
-https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
-
-- [ ] 15-12-20 // repost post juli
-___ 
-
-### 12. Teman Seiman Selalu Berbaik Sangka
-___
-Suatu ketika Imam Asy-Syafi'i rahimahullah sakit, lalu sebagian teman-temannya datang membesuknya, ia berkata kepada Imam Asy-syafi'i; "Semoga Allah menguatkan kelemahanmu". 
-
-Imam Asy-syafi'i berkata; "Jika kelemahanku menguat niscaya akan membunuhku,"
-
-Ia berkata; "Wallahi tiadalah maksudku kecuali kebaikan,"
-
-Imam Asy-syafi'i berkata; "Aku tahu itu, sesungguhnya jika kamu mencacimakiku sekalipun maka tiadalah yang kamu maksudkan kecuali kebaikan"
-
-Adab Asyyafi'i Wa Manaqibih karya Ibnu Abi Hatim Hal. 209
-Dinukil dari Ustadz Musa Mulyadi Luqman, Lc. via WhatsApp dengan sedikit penyesuaian
+read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 
 - [ ] 16-12-20
 ___ 
 
-### 13. Tanda Kebahagiaan
+### Kematian yang Mendadak
 ___
-Syaikh Muhammad At-Tamimy -rahimahullah- berkata tentang tanda kebaikan :
-1. Jika diberi kenikmatan, dia bersyukur
-2. Jika diuji dengan ditimpa musibah, dia bersabar
-3. dan jika melakukan dosa, dia beristighfar(bertaubat)
-Maka tiga hal ini adalah tanda kebahagiaan
+Mati mendadak itu pemusnah semua teori hidup sehat, jadi wahai saudaraku, banyak banyaklah bersiap untuk kesehatan di hari Akhirat
 
-Matn Qowaidul Arba'
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "tanda-tanda kebahagiaan yang sejati"
-yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
+Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
 
-read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
+read more :
+https://www.facebook.com/story.php?story_fbid=2755210197879933&id=100001729388129
 
-- [ ] 17-12-20
+- [ ] notpostedelse
 ___ 
 
-### 14. Kekayaan Sejati
+### Naungan Allah Bagi Pemuda Shalih
 ___
-Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Tujuh golongan yang dinaungi Allâh dalam naungan-Nya pada hari di mana tidak ada naungan kecuali naungan-Nya... (salah satunya) Seorang pemuda yang tumbuh dewasa dalam beribadah kepada Allah"
 
-لَيْسَ الْغِنَى عَنْ كَثْرَةِ الْعَرَضِ ، وَلَكِنَّ الْغِنَى غِنَى النَّفْسِ
+"Kenapa disebut pemuda? Karena pemuda asalnya nafsunya begitu tinggi pada dunia dan kebanyakan itu lalai dari akhirat. Kalau ada pemuda yang rajin berjamaah di masjid, rajin menghadiri shalat fajar, akhlaknya pun bagus pada bapak-ibunya, dialah pemuda yang jadi harapan akan mendapatkan naungan Allah pada hari kiamat.
 
-Yang namanya kaya (ghina’), bukanlah dengan banyaknya harta (atau banyaknya kemewahan dunia). Namun yang namanya ghina’ adalah hati yang selalu merasa cukup
+Pemuda seperti itu sangat jarang kita temui saat ini karena kebanyakan pemuda itu lalai, di antara mereka lebih suka bersenang-senang dan berfoya-foya. Ada kesempatan untuk bermain game, atau ngebut-ngebutan di sore hari, atau bermain band, waktu mereka habis untuk hal-hal sia-sia semacam itu, bahkan maksiat pun ada yang dijadikan hobi. Untuk saat ini jarang sekali kita lihat pemuda yang mau sadar untuk ke masjid kecuali yang dirahmati oleh Allah subhanahu wa ta’ala.
+
+Maka pantas saja, Nabi shallallahu ‘alaihi wa sallam memasukkan pemuda yang rajin ibadah dalam golongan yang akan mendapatkan naungan Allah pada hari kiamat."
 
 HR. Bukhari dan Muslim
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "tanda-tanda kebahagiaan yang sejati"
-yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Khutbah Jumat Tujuh Golongan yang Mendapatkan Naungan Allah Pada Hari Kiamat"
+yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
 
-read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
+read more : https://rumaysho.com/15759-khutbah-jumat-tujuh-golongan-yang-mendapatkan-naungan-allah-pada-hari-kiamat.html
 
-- [ ] 18-12-20
+- [ ] notpostedelse
 ___ 
 
-### 15. Membaca Al-Kahfi di Siang Hari
+### Puasa Sehari
 ___
 Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
-Siapa yang membaca surat Al-Kahfi pada hari Jumat, maka ia akan disinari cahaya di antara dua Jumat.
+Barangsiapa melakukan puasa satu hari di jalan Allah (dalam melakukan ketaatan pada Allah), maka Allah akan menjauhkannya dari neraka sejauh perjalanan 70 tahun
 
-HR. An-Nasa-i, dinilai sahih oleh Al-Albani di dalam Ash-Shahihah
-Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
-yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
+HR. Bukhari
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Keutamaan Puasa"
+yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
 
-read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
+read more : https://rumaysho.com/7414-keutamaan-puasa.html
 
-- [ ] 21-12-20
+- [ ] notpostedelse
 ___ 
 
-### 16. Membaca Al-Kahfi Di Malam Hari
+### Satu Yang Tetap
 ___
-Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
-Siapa yang membaca surat Al-Kahfi pada malam Jumat maka ia akan disinari cahaya antara dia dan Baitul Atiq (yaitu Kabah).
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Yang mengikuti mayit sampai ke kubur ada tiga, dua akan kembali dan satu tetap bersamanya di kubur. Yang mengikutinya adalah keluarga, harta dan amalnya. Yang kembali adalah keluarga dan hartanya. Sedangkan yang tetap bersamanya di kubur adalah amalnya (yang baik atau buruk)"
 
-HR. Ad-Darimi, dinyatakan sahih oleh Al-Albani di dalam Ash-Shahihah
-Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
-yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
+HR. Bukhari
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Tiga yang Menemani Dua Pulang Satu Tersisa"
+yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penambahan faidah dari laman asli
 
-read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
+read more : https://rumaysho.com/14414-tiga-yang-menemani-dua-pulang-satu-tersisa.html
 
-- [ ] 22-12-20
+- [ ] notpostedelse
 ___ 
 
-### 17. Makna Cahaya di Hadits Al-kahfi
+### Terputus
 ___
-Yang dimaksud cahaya di dalam hadis tersebut sebagaimana yang dijelaskan dalam Misykah al-Mashabih dan kitab-kitab syarh hadis lainnya ialah cahaya hati, cahaya di alam kubur, atau cahaya kala dibangkitkan kelak. Ada juga yang berpendapat bahwa yang dimaksud adalah cahaya hidayah dan cahaya keimanan.
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Apabila seseorang mati, seluruh amalnya akan terputus kecuali 3 hal: sedekah jariyah, ilmu yang manfaat, dan anak sholeh yang mendoakannya"
 
-Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
-yang ditulis Ustadz Roni Nuryusmansyah
+HR. Muslim
+Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Cara Berbakti Kepada Orang Tua Setelah mereka meninggal"
+yang ditulis Ustadz Ammi Nur Baits,ST -Hafizhahullah- 
 
-read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
+read more : https://konsultasisyariah.com/20268-cara-berbakti-kepada-orang-tua-setelah-mereka-meninggal.html
 
-- [ ] 23-12-20
-___ 
-
-### 18. Judul
-___
-teks
-
-
-- [ ] 24-12-20
+- [ ] notpostedelse
 ___ 
 
 ### 19. Judul
