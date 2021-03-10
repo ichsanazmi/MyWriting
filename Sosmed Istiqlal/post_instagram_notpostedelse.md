@@ -98,24 +98,8 @@ yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit
 read more :
 https://web.facebook.com/story.php?story_fbid=3667743613293249&id=100001729388129
 
-- [ ] 7-12-20 // repost post juli
+- [ ] notpostedelse
 ___ 
-
-### Ujian Berupa Harta
-___
-Ibnul Qayyim -rahimahullah- berkata,
-"Kapan saja harta itu di tanganmu bukan di hatimu, tidak akan memudaratkanmu walau pun banyak, dan kapan saja ada dalam hatimu, akan memudaratkanmu walau pun tidak ada dalam tanganmu sedikitpun." 
-
-Madaarijus Saalikin
-Dinukil dari status facebook
-yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit penyesuaian
-
-read more :
-https://web.facebook.com/story.php?story_fbid=3639808006086810&id=100001729388129
-
-- [ ] notposted
-___ 
-
 
 ### Luasnya Ampunan Dari Allah
 ___
@@ -147,20 +131,6 @@ yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah-
 read more : https://firanda.com/693-faedah-istigfar-dan-taubat.html
 
 - [ ] notposted
-___ 
-
-### Bertaqwa dimana saja
-___
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-"Bertakwalah kepada Allah di mana saja kamu berada"
-
-HR. Tirmidzi no. 1987. Imam At-Tirmidzi mengatakan bahwa hadits ini hasan shahih.
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Aku Ingin Bertaubat Tetapi"
-yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
-
-read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
-
-- [ ] notpostedelse
 ___ 
 
 ### Menghapus Kejelekan

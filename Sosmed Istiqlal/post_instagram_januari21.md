@@ -92,53 +92,51 @@ https://web.facebook.com/story.php?story_fbid=10216632512146046&id=1257341801
 - [ ] 7-1-21
 ___ 
 
-### 7. -
+### 7.  Sebelum Menyesal
 ___
-Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan,
-Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+Rasulullah -Shallallahu 'alaihi Wasallam- bersabda,
+"Menjauhlah dari apa-apa yang membuat meminta maaf karenanya"
 
-Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bisakah jadi Lebih Baik" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+Dihasankan oleh Syaikh Al-Albani dalam Jami' Ash-Shahih
+Dinukil dari status facebook
+yang ditulis oleh Ustadz Musa Mulyadi Luqman, Lc. -Hafizhahullah- dengan sedikit perubahan
 
 read more :
-https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+https://www.facebook.com/musamulyadi/posts/3742809029120040
 
-- [ ] 9-12-20 // repost post juli
+- [ ] 8-1-21
 ___ 
 
-### 8. Warisan Para Nabi
+### 8. Ujian Berupa Harta
 ___
-Rasulullah -shallallahu 'alaihi wasallam- bersabda :
-إِنَّ الأَنْبِيَاءَ لَمْ يُوَرِّثُوا دِينَارًا وَلاَ دِرْهَمًا إِنَّمَا وَرَّثُوا الْعِلْمَ فَمَنْ أَخَذَ بِهِ أَخَذَ بِحَظٍّ وَافِرٍ
+Ibnul Qayyim -rahimahullah- berkata,
+"Kapan saja harta itu di tanganmu bukan di hatimu, tidak akan memudaratkanmu walau pun banyak, dan kapan saja ada dalam hatimu, akan memudaratkanmu walau pun tidak ada dalam tanganmu sedikitpun." 
 
-“Sesungguhnya para Nabi tidak mewariskan dinar dan dirham, mereka hanyalah mewariskan ilmu. Barangsiapa yang mengambilnya, maka dia telah memperoleh keberuntungan yang banyak."
+Madaarijus Saalikin
+Dinukil dari status facebook
+yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit penyesuaian
 
-HR Abu Dawud no. 3641 dan Tirmidzi no. 2682, Shahih
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Islam"
+read more :
+https://web.facebook.com/story.php?story_fbid=3639808006086810&id=100001729388129
+
+- [ ] 11-1-21
+___ 
+
+### 9. Selalu Bertaqwa
+___
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Bertakwalah kepada Allah di mana saja kamu berada"
+
+HR. Tirmidzi no. 1987. Imam At-Tirmidzi mengatakan bahwa hadits ini hasan shahih.
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Aku Ingin Bertaubat Tetapi"
 yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
-read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
+read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 
-- [ ] 10-12-20 // repost post agustus
+- [ ] 12-1-21
 ___ 
 
-### 9. Ilmu Sebelum Amal
-___
-'Umar bin 'Abdul 'Aziz -rahimahullah- berkata :
-مَنْ عَبَدَ اللهَ بِغَيْرِ عِلْمٍ كَانَ مَا يُفْسِدُ أَكْثَرَ مِمَّا يُصْلِحُ
-
-“Barangsiapa yang beribadah kepada Allah tanpa ilmu, maka dia akan membuat banyak kerusakan daripada mendatangkan kebaikan.” 
-
-Al Amru bil Ma’ruf, hal. 15
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Islam"
-yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
-
-read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
-
-- [ ] 11-12-20 // repost post agustus
-___ 
-
-### 10. Tawakkal Kepada Allah
+### 10. -
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda :
 Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.” 
@@ -152,7 +150,7 @@ read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-
 - [ ] 14-12-20 // repost post agustus
 ___ 
 
-### 11. Andai Ia Meninggalkan Bau
+### 11. -
 ___
 Muhammad bin Wasi’ -rahimahullah- berkata,
 
