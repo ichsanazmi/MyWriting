@@ -52,21 +52,6 @@ https://web.facebook.com/story.php?story_fbid=10219134756060580&id=1257341801
 - [ ] notposted
 ___ 
 
-### Standar Perdagangan Islam
-___
-Standar perdagangan Islam.
-Halal itu standar minimal, kualitas, kreatifitas, amanah, dan kompetitif itu standar ideal.
-Jangan hanya modal klaim halal namun minus kualitas.
-
-Dinukil dari status facebook
-yang ditulis oleh Ustadz Dr. Muhammad Arifin Badri, Lc. MA. -Hafizhahullah- 
-
-read more : 
-https://web.facebook.com/story.php?story_fbid=259400962213308&id=100044302190144
-
-- [ ] notposted
-___ 
-
 ### Terbuai Tipu Daya
 ___
 Al-Hafizh Al-Dzahaby -rahimahullah- berkata,
@@ -82,23 +67,6 @@ read more :
 https://web.facebook.com/story.php?story_fbid=3647133375354273&id=100001729388129
 
 - [ ] notposted
-___ 
-
-### Buah Dari Ilmu
-___
-Seorang lelaki mencerca Imam Waki', namun beliau tidak membalasnya, lalu ada yang berkata kepadanya,
-"tidakkah engkau membalasnya!?",
-Beliau berkata,
-"Jadi untuk apa kita mempelajari Ilmu !?"
-
-Raudhatul Uqalaa
-Dinukil dari status facebook
-yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit penyesuaian
-
-read more :
-https://web.facebook.com/story.php?story_fbid=3667743613293249&id=100001729388129
-
-- [ ] notpostedelse
 ___ 
 
 ### Luasnya Ampunan Dari Allah
@@ -159,18 +127,6 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 
 - [ ] 16-12-20
-___ 
-
-### Kematian yang Mendadak
-___
-Mati mendadak itu pemusnah semua teori hidup sehat, jadi wahai saudaraku, banyak banyaklah bersiap untuk kesehatan di hari Akhirat
-
-Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
-
-read more :
-https://www.facebook.com/story.php?story_fbid=2755210197879933&id=100001729388129
-
-- [ ] notpostedelse
 ___ 
 
 ### Naungan Allah Bagi Pemuda Shalih

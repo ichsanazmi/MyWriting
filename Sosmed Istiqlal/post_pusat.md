@@ -1,7 +1,7 @@
 # Post Pusat
 ## Juni
 
-### 1. Keindahan Sabar
+### 1. Keindahan Sabar (1)
 ___
 Dari Shuhaib bin Sinan radhiallahu’anhu dia berkata, Rasulullah Shallallahu’alaihi Wasallam bersabda:
 عجبًا لأمرِ المؤمنِ . إن أمرَه كلَّه خيرٌ . وليس ذاك لأحدٍ إلا للمؤمنِ . إن أصابته سراءُ شكرَ . فكان خيرًا له . وإن أصابته ضراءُ صبر . فكان خيرًا له
@@ -15,7 +15,7 @@ read more : https://muslim.or.id/20127-bersyukur-ketika-senang-dan-bersabar-keti
 
 - [ ] 20-07-20
 ___ 
-### 2. Hasil Kondisi dengan Allah
+### 2. Hasil Kondisi dengan Allah (1)
 ___
 Boleh jadi engkau hidup diatas bumi selama 70 tahun.
 Namun engkau bisa jadi tinggal di kuburmu selama 5000 tahun.
@@ -50,7 +50,7 @@ read more : https://muslim.or.id/57646-menjadi-istri-yang-menyenangkan-hati-suam
 
 - [ ] 22-07-20
 ___ 
-### 4. Bersabar dalam Do'a
+### 4. Bersabar dalam Do'a (1)
 ___
 dari Abu Hurairah radhiyallahu ‘anhu
 Rasulullah shallallahu ‘alaihi wa sallam bersabda :
@@ -62,7 +62,7 @@ HR. Bukhari No 5865, dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
 - [ ] 23-07-20
 ___ 
-### 5. Tanda Kebaikan Seseorang
+### 5. Tanda Kebaikan Seseorang (1)
 ___
 Rasulullah shallallahu ‘alaihi wa sallam bersabda :
 "Barangsiapa yang Allah kehendaki menjadi baik
@@ -72,7 +72,7 @@ HR. Bukhari No 69, dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
 - [ ] 24-07-20
 ___ 
-### 6. Nikmat yang Menipu
+### 6. Nikmat yang Menipu (1)
 ___
 Rasulullah shallallahu ‘alaihi wa sallam bersabda :
 Dua nikmat,
@@ -86,7 +86,7 @@ read more : https://muslimah.or.id/7233-2-nikmat-yang-banyak-dilalaikan.html
 
 - [ ] 26-07-20
 ___ 
-### 7. Kedermawanan yang Tercela
+### 7. Kedermawanan yang Tercela (1)
 ___
 Syaikhul Islam Ibnu Taimiyah rahimahullah berkata,
 “Bentuk kedermawanan yang paling buruk adalah kedermawananmu dalam menghadiahkan kebaikan-kebaikanmu kepada orang lain (yang diakibatkan oleh) menggunjing, mengadu domba, menfitnah, mencela dan mencaci-maki.”
@@ -95,7 +95,7 @@ Majmu' Fatawa, 8/454, Dinukil dari status Ustadz Abu Razin Taufiq -Hafizhahullah
 
 - [ ] 27-07-20
 ___ 
-### 8. Dijauhkan dari Neraka
+### 8. Dijauhkan dari Neraka (1)
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Tidaklah seorang hamba berpuasa satu hari di jalan Allah kecuali Allah akan menjauhkan wajahnya dari api neraka (dengan puasa itu) sejauh 70 tahun jarak perjalanan"
@@ -123,7 +123,7 @@ read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah.ht
 
 - [ ] 29-07-20
 ___ 
-### 10. Puasa Senin Kamis
+### 10. Puasa Senin Kamis (1)
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Amal-amal ditampakan pada hari senin dan kamis, maka aku suka jika ditampakan amalku dan aku dalam keadaan berpuasa"
@@ -151,7 +151,7 @@ read more : https://rumaysho.com/863-lakukanlah-puasa-sunnah-minimal-sebulan-3-k
 ___ 
 ## Agustus
 
-### 1. Introspeksi Diri
+### 1. Introspeksi Diri (1)
 ___
 Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
 
@@ -162,7 +162,7 @@ read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
 - [ ] 03-08-20
 ___ 
-### 2. Andai Ia Meninggalkan Bau
+### 2. Andai Ia Meninggalkan Bau (1)
 ___
 Muhammad bin Wasi’ -rahimahullah- berkata,
 
@@ -178,7 +178,7 @@ https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
 - [ ] 04-08-20
 ___ 
-### 3. Seperti Puasa Sepanjang Tahun
+### 3. Seperti Puasa Sepanjang Tahun (1)
 ___
 Dari ‘Abdullah bin ‘Amr bin Al ‘Ash, Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -234,7 +234,7 @@ read more : https://rumaysho.com/917-amalan-istimewa-di-hari-jumat.html
 
 - [ ] 07-08-20
 ___ 
-### 5. Warisan Para Nabi
+### 5. Warisan Para Nabi (1)
 ___
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda :
@@ -250,7 +250,7 @@ read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 - [ ] 10-08-20
 ___ 
-### 6. Ilmu Sebelum Amal
+### 6. Ilmu Sebelum Amal (1)
 ___
 'Umar bin 'Abdul 'Aziz -rahimahullah- berkata,
 
@@ -266,7 +266,7 @@ read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 - [ ] 11-08-20
 ___ 
-### 7. Tawakkal Kepada Allah
+### 7. Tawakkal Kepada Allah (1)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.” 
@@ -300,7 +300,7 @@ read more : https://kangaswad.wordpress.com/2020/08/02/melatih-akhlak-mulia/
 
 - [ ] 13-08-20
 ___ 
-### 9. Sebab - Sebab Kebahagiaan
+### 9. Sebab - Sebab Kebahagiaan (1)
 ___
 Kebahagiaan timbul dari kuatnya tauhid seseorang kepada Allah, besarnya ketergantungan hatinya pada Rabbnya,
 dia yakin bahwa kebahagiaannya Allah yang jamin
@@ -438,7 +438,7 @@ read more : https://muslim.or.id/7492-keutamaan-shaf-pertama.html
 
 - [ ] 25-08-20
 ___ 
-### 17. Karakter Wanita Shalihah
+### 17. Karakter Wanita Shalihah (1)
 ___
 Allah Ta’ala berfirman,
 
@@ -633,7 +633,7 @@ https://konsultasisyariah.com/22104-doa-agar-dijamin-aman-ketika-keluar-rumah.ht
 
 ___
 - [x] 12-10-20 / repost 20-07-20
-### 8. Keindahan Sabar
+### 8. Keindahan Sabar (Juni '20)
 ___
 Dari Shuhaib bin Sinan -radhiallahu’anhu- dia berkata, Rasulullah -Shallallahu’alaihi Wasallam- bersabda:
 عجبًا لأمرِ المؤمنِ . إن أمرَه كلَّه خيرٌ . وليس ذاك لأحدٍ إلا للمؤمنِ . إن أصابته سراءُ شكرَ . فكان خيرًا له . وإن أصابته ضراءُ صبر . فكان خيرًا له
@@ -861,7 +861,7 @@ https://rumaysho.com/21000-doa-agar-tidak-malas-disucikan-jiwa-diberi-hati-yang-
 
 ___
 * [x] 30-10-20 / repost 27-07-20
-## 22. Kedermawanan yang tercela
+### 22. Kedermawanan yang tercela (Juni '20)
 ___
 Syaikhul Islam Ibnu Taimiyah rahimahullah berkata,
 “Bentuk kedermawanan yang paling buruk adalah kedermawananmu dalam menghadiahkan kebaikan-kebaikanmu kepada orang lain (yang diakibatkan oleh) menggunjing, mengadu domba, menfitnah, mencela dan mencaci-maki.”
@@ -872,7 +872,8 @@ Dinukil dari status Ustadz Abu Razin Taufiq -Hafizhahullah-
 
 ___
 [x] 31-10-20 / repost 27-07-20
-### 23. Sejarak 70 Tahun Perjalanan
+
+### 23. Sejarak 70 Tahun Perjalanan (Juni '20)
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Tidaklah seorang hamba berpuasa satu hari di jalan Allah kecuali Allah akan menjauhkan wajahnya dari api neraka (dengan puasa itu) sejauh 70 tahun jarak perjalanan"
@@ -883,7 +884,7 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more :
 https://muslim.or.id/294-puasa-sunnah.html
-
+repost juni
 ___
 
 ## November
@@ -902,7 +903,7 @@ https://youtu.be/TG9JAlFty78
 ___ 
 - [x] 3-11-20 / repost 30-07-20
 
-### 2. Senin Kamis
+### 2. Senin Kamis (Juni '20)
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Amal-amal ditampakan pada hari senin dan kamis, maka aku suka jika ditampakan amalku dan aku dalam keadaan berpuasa"
@@ -1246,10 +1247,10 @@ yang ditulis Ustadz Abu Ismail Muslim Al-Atsari -Hafizhahullah-
 read more :
 https://almanhaj.or.id/14033-mengendalikan-lidah-2.html
 
-- [ ] 2-12-20 / repost juli
+- [ ] 2-12-20 
 ___ 
 
-### 3. Nikmat yang menipu
+### 3. Nikmat yang menipu (Juni '20)
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 Dua nikmat,kebanyakan manusia tertipu dengan keduanya,
@@ -1261,10 +1262,10 @@ yang ditulis Wiwit Hardi P -Hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://muslimah.or.id/7233-2-nikmat-yang-banyak-dilalaikan.html
 
-- [ ] 3-12-20 // repost post juli
+- [ ] 3-12-20 // repost post Juni
 ___ 
 
-### 4. Hasil Kondisimu dengan Allah
+### 4. Hasil Kondisimu dengan Allah (Juni '20)
 ___
 Boleh jadi engkau hidup diatas bumi selama 70 tahun.
 Namun engkau bisa jadi tinggal di kuburmu selama 5000 tahun.
@@ -1280,10 +1281,10 @@ yang ditulis oleh Ustadz Abu Sa'id Neno Triyono -Hafizhahullah- dengan sedikit p
 read more :
 https://www.facebook.com/abu.s.triyono.5
 
-- [ ] 4-12-20 // repost post juli
+- [ ] 4-12-20 // repost post Juni
 ___ 
 
-### 5. Tanda Kebaikan Seseorang
+### 5. Tanda Kebaikan Seseorang (Juni '20)
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 Barangsiapa yang Allah kehendaki menjadi baik
@@ -1294,10 +1295,10 @@ Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
 read more : https://hadits.in/bukhari/69
 
-- [ ] 7-12-20 // repost post juli
+- [ ] 7-12-20 // repost post Juni
 ___ 
 
-### 6. Bersabar dalam Do'a
+### 6. Bersabar dalam Do'a (Juni '20)
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda :
 (Do'a) kalian akan diijabahi selagi tidak terburu-buru, dengan mengatakan : Aku telah berdo'a, namun tak kunjung diijabahi
@@ -1307,10 +1308,10 @@ Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
 read more : https://hadits.in/bukhari/5865
 
-- [ ] 8-12-20 // repost post juli
+- [ ] 8-12-20 // repost post Juni
 ___ 
 
-### 7. Introspeksi Diri
+### 7. Introspeksi Diri (Agustus '20)
 ___
 Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan,
 Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
@@ -1324,7 +1325,7 @@ https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 - [ ] 9-12-20 // repost post juli
 ___ 
 
-### 8. Warisan Para Nabi
+### 8. Warisan Para Nabi (Agustus '20)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda :
 إِنَّ الأَنْبِيَاءَ لَمْ يُوَرِّثُوا دِينَارًا وَلاَ دِرْهَمًا إِنَّمَا وَرَّثُوا الْعِلْمَ فَمَنْ أَخَذَ بِهِ أَخَذَ بِحَظٍّ وَافِرٍ
@@ -1340,7 +1341,7 @@ read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 - [ ] 10-12-20 // repost post agustus
 ___ 
 
-### 9. Ilmu Sebelum Amal
+### 9. Ilmu Sebelum Amal (Agustus '20)
 ___
 'Umar bin 'Abdul 'Aziz -rahimahullah- berkata :
 مَنْ عَبَدَ اللهَ بِغَيْرِ عِلْمٍ كَانَ مَا يُفْسِدُ أَكْثَرَ مِمَّا يُصْلِحُ
@@ -1356,7 +1357,7 @@ read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 - [ ] 11-12-20 // repost post agustus
 ___ 
 
-### 10. Tawakkal Kepada Allah
+### 10. Tawakkal Kepada Allah (Agustus '20)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda :
 Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.” 
@@ -1370,7 +1371,7 @@ read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-
 - [ ] 14-12-20 // repost post agustus
 ___ 
 
-### 11. Andai Ia Meninggalkan Bau
+### 11. Andai Ia Meninggalkan Bau (Agustus '20)
 ___
 Muhammad bin Wasi’ -rahimahullah- berkata,
 
@@ -1477,7 +1478,7 @@ read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 - [ ] 23-12-20
 ___ 
 
-### 18. Seperti Puasa Sepanjang Tahun
+### 18. Seperti Puasa Sepanjang Tahun (Agustus '20)
 ___
 Dari ‘Abdullah bin ‘Amr bin Al ‘Ash, Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -1494,7 +1495,7 @@ https://rumaysho.com/863-lakukanlah-puasa-sunnah-minimal-sebulan-3-kali.html
 - [ ] 24-12-20 // repost 05-08-20
 ___ 
 
-### 19. Sebab - Sebab Kebahagiaan
+### 19. Sebab - Sebab Kebahagiaan (Agustus '20)
 ___
 Kebahagiaan timbul dari kuatnya tauhid seseorang kepada Allah, besarnya ketergantungan hatinya pada Rabbnya,
 dia yakin bahwa kebahagiaannya Allah yang jamin

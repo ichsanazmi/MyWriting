@@ -136,71 +136,75 @@ read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 - [ ] 12-1-21
 ___ 
 
-### 10. -
+### 10. Standar Perdagangan Islam
 ___
-Rasulullah -shallallahu 'alaihi wasallam- bersabda :
-Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.” 
+Halal itu standar minimal, kualitas, kreatifitas, amanah, dan kompetitif itu standar ideal.
+Jangan hanya modal klaim halal namun minus kualitas.
 
-HR. Ahmad, Tirmidzi, An-Nasai, Ibnu Majah, Ibnu Hibban dalam kitab sahihnya, dan Al-Hakim. Tirmidzi mengatakan bahwa hadits ini hasan sahih
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Kunci Rezeki Itu Tawakkal Kepada Allah (Hadits Jami'ul 'Ulum wal Hikam #49"
-yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
+Dinukil dari status facebook
+yang ditulis oleh Ustadz Dr. Muhammad Arifin Badri, Lc. MA. -Hafizhahullah- dengan sedikit penyesuaian 
 
-read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
+read more : 
+https://web.facebook.com/story.php?story_fbid=259400962213308&id=100044302190144
 
-- [ ] 14-12-20 // repost post agustus
+	#nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #dagang #jualan
+
+- [ ] 13-1-21
 ___ 
 
-### 11. -
+### 11. Karakter Wanita Shalihah
 ___
-Muhammad bin Wasi’ -rahimahullah- berkata,
+Allah Ta’ala berfirman,
 
-لَوْ كَانَ لِلذُّنُوْبِ رِيْحٌ مَا قَدَرَ أَحَدٌ أَنْ يَجْلِسَ إِلَيَّ
+فَالصَّالِحَاتُ قَانِتَاتٌ حَافِظَاتٌ لِلْغَيْبِ بِمَا حَفِظَ اللَّهُ
 
-Andaikan dosa itu memiliki bau, tentu tidak ada dari seorang pun yang ingin duduk dekat-dekat denganku.
+“Sebab itu maka wanita yang salihah, ialah yang taat kepada Allah, lagi memelihara diri ketika suaminya tidak ada. Hal itu karena Allah telah memelihara (mereka).” 
 
-Muhasabah An-Nafs, hlm. 37. Lihat A’mal Al-Qulub,hlm. 373
-Dinukil dari laman Rumaysho.com dalam artikel yang berjudul "Bisakah jadi Lebih Baik" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+QS. An-Nisa’ 4:34
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Para Wanita Perindu Surga"
+yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
+
+read more : https://muslim.or.id/57256-para-wanita-perindu-surga.html
+
+	#nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #wanita #shalihah
+
+- [ ] 14-1-21 // repost post agustus
+___ 
+
+### 12. Buah Dari Ilmu
+___
+Seorang lelaki mencerca Imam Waki', namun beliau tidak membalasnya, lalu ada yang berkata kepadanya,
+"tidakkah engkau membalasnya!?",
+Beliau berkata,
+"Jadi untuk apa kita mempelajari Ilmu !?"
+
+Raudhatul Uqalaa
+Dinukil dari status facebook
+yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit penyesuaian
 
 read more :
-https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+https://web.facebook.com/story.php?story_fbid=3667743613293249&id=100001729388129
 
-- [ ] 15-12-20 // repost post juli
+	#nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #ilmu
+
+- [ ] 15-1-21
 ___ 
 
-### 12. Teman Seiman Selalu Berbaik Sangka
+### 13. Kematian yang Mendadak
 ___
-Suatu ketika Imam Asy-Syafi'i rahimahullah sakit, lalu sebagian teman-temannya datang membesuknya, ia berkata kepada Imam Asy-syafi'i; "Semoga Allah menguatkan kelemahanmu". 
+Mati mendadak itu pemusnah semua teori hidup sehat, jadi wahai saudaraku, banyak banyaklah bersiap untuk kesehatan di hari Akhirat
 
-Imam Asy-syafi'i berkata; "Jika kelemahanku menguat niscaya akan membunuhku,"
+Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah- dengan sedikit penyesuaian
 
-Ia berkata; "Wallahi tiadalah maksudku kecuali kebaikan,"
+read more :
+https://www.facebook.com/story.php?story_fbid=2755210197879933&id=100001729388129
 
-Imam Asy-syafi'i berkata; "Aku tahu itu, sesungguhnya jika kamu mencacimakiku sekalipun maka tiadalah yang kamu maksudkan kecuali kebaikan"
+	#nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #mati
 
-Adab Asyyafi'i Wa Manaqibih karya Ibnu Abi Hatim Hal. 209
-Dinukil dari Ustadz Musa Mulyadi Luqman, Lc. via WhatsApp dengan sedikit penyesuaian
-
-- [ ] 16-12-20
+- [ ] 18-12-20
 ___ 
 
-### 13. Tanda Kebahagiaan
-___
-Syaikh Muhammad At-Tamimy -rahimahullah- berkata tentang tanda kebaikan :
-1. Jika diberi kenikmatan, dia bersyukur
-2. Jika diuji dengan ditimpa musibah, dia bersabar
-3. dan jika melakukan dosa, dia beristighfar(bertaubat)
-Maka tiga hal ini adalah tanda kebahagiaan
-
-Matn Qowaidul Arba'
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "tanda-tanda kebahagiaan yang sejati"
-yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
-
-read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
-
-- [ ] 17-12-20
-___ 
-
-### 14. Kekayaan Sejati
+### 14. -
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
