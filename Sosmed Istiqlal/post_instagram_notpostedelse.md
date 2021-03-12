@@ -191,44 +191,87 @@ read more : https://konsultasisyariah.com/20268-cara-berbakti-kepada-orang-tua-s
 - [ ] notpostedelse
 ___ 
 
-### 19. Judul
+### Doa Masuk WC
 ___
-teks
+اللَّهُمَّ إنِّي أعُوذُ بكَ مِنَ الخُبْثِ والْخَبَائِثِ
+Allahumma inni a’udzubika minal khubutsi wal khabaitsi
+artinya : Ya Allah aku meminta perlindunganmu dari al khubuts dan al khabaits
+HR. Bukhari & Muslim
 
+Kata al khubuts dan al khabaits ( الخُبُثِ والخبَائثِ) ada beberapa penafsiran:
 
-- [ ] 25-12-20
+Kata الخُبُثِ maknanya: setan laki-laki, setan secara umum dan keburukan, kekufuran.
+dan الخبَائثِ maknanya: setan perempuan ,maksiat
+Semua makna ini tidak ada yang bertentangan sehingga bisa kita kompromikan.
+
+Sehingga, doa di atas isinya meminta perlindungan kepada Allah dari setan laki-laki, setan perempuan, maksiat, kekufuran dan semua bentuk keburukan yang ada di WC atau tempat buang air.
+
+Dinukil dari laman KangAswad dalam artikel yang berjudul "Bacalah Do'a Ketika Masuk WC"
+yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://kangaswad.wordpress.com/2020/09/08/bacalah-doa-ketika-masuk-wc/
+
+- [ ] notpostedelse
 ___ 
 
-### 20. Judul
+### Doa Keluar WC
 ___
-teks
+غُفْرَانَكَ
+Ghufranaka
+artinya : Aku meminta Ampunan-Mu ya Allah
+
+HR. Abu Dawud, Tirmidzi, Ibnu Majah, An-Nasa'i
+Dinukil dari laman MuslimAfiyah dalam artikel yang berjudul "Ini Alasan Kenapa Doa Keluar WC Meminta Ampun"
+yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://muslimafiyah.com/ini-alasan-kenapa-doa-keluar-wc-meminta-ampun.html
 
 
-- [ ] 28-12-20
+- [ ] notposted
 ___ 
 
-### 21. Judul
+### Menggapai Surga
 ___
-teks
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Barangsiapa menempuh jalan menuntut ilmu, maka Allah akan memudahkan jalannya untuk menuju surga"
+
+HR. Tirmidzi
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Menghadiri Majelis Ilmu Di Masjid"
+yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masjid.html
 
 
-- [ ] 29-12-20
+- [ ] notposted
 ___ 
 
-### 22. Judul
+### Keutamaan Menuntut Ilmu
 ___
-teks
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Tidaklah suatu kaum berkumpul di salah satu rumah dari rumah-rumah Allah (masjid) membaca Kitabullah dan saling mempelajarinya, melainkan akan turun kepada mereka sakinah (ketenangan), mereka akan dinaungi rahmat, mereka akan dilingkupi para malaikat dan Allah akan menyebut-nyebut mereka di sisi para makhluk yang dimuliakan di sisi-Nya"
+
+HR. Muslim
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Menghadiri Majelis Ilmu Di Masjid"
+yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masjid.html
 
 
-- [ ] 30-12-20
+- [ ] notposted
 ___ 
 
-### 23. Judul
+### Istirahat Yang Berpahala
 ___
-teks
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Hendaknya kalian melakukan qoilulah atau istirahat siang karena setan itu tidak beristirahat siang"
 
+Silsilah Shahihah karya Al Albani no 1627
+Dinukil dari laman UstadzAris dalam artikel yang berjudul "Istirahat Yang Berpahala"
+yang ditulis Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
-- [ ] 31-12-20
+read more : https://ustadzaris.com/istirahat-berpahala
+
+- [ ] notposted
 ___ 
 
 
