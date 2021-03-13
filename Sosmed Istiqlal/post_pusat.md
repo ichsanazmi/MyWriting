@@ -398,7 +398,7 @@ read more : https://muslim.or.id/58161-memperbanyak-shalat-sunnah-sebelum-datang
 
 - [ ] 21-08-20
 ___ 
-### 15. Keutamaan Shaf Awal
+### 15. Keutamaan Shaf Awal (1)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -455,7 +455,7 @@ read more : https://muslim.or.id/57256-para-wanita-perindu-surga.html
 
 - [ ] 26-08-20
 ___ 
-### 18. Berbanding Lurus
+### 18. Berbanding Lurus (1)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -471,7 +471,7 @@ read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
 - [ ] 27-08-20
 ___ 
-### 19. Istiqomahnya Lisan
+### 19. Istiqomahnya Lisan (1)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -487,7 +487,7 @@ read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
 - [ ] 28-08-20
 ___ 
-### 20. Kegembiraan Saudaramu
+### 20. Kegembiraan Saudaramu (1)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Seutama-utama amal shalih ialah hendaknya engkau memasukkan kegembiraan kepada saudaramu yang beriman" 
@@ -500,17 +500,352 @@ yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 ___ 
 ## September
 
-### 1. Introspeksi Diri
-___
-Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+### 1. Kawan Hijrah (1)
 
-Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
-dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik" 
+Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
+Rindu masa lalu dan tidak menghancurkan jejaknya
 
-read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+apapun yang tersisa dari masa jahiliyahmu hancurkan dan relakan, itulah taubat hijrah yang sesungguhnya
 
-- [ ] 03-08-20
+Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
+dengan sedikit penyesuaian
+
+read more : -
+
+- [ ] 1-9-20
 ___ 
+### 2. Lebih Baik dari Dunia dan Seisinya
+
+Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya
+
+HR. Muslim no.1193
+Dinukil dari KonsultasiSyariah.com dalam artikel berjudul "Keutamaan Shalat Qabliyah Shubuh"
+yang ditulis oleh Ustadz Nurfitri Hadi -Hafizhahullah-
+
+read more : https://konsultasisyariah.com/10341-keutamaan-shalat-qabliyah-shubuh.html
+
+- [ ] 2-9-20
+___ 
+### 3. Mengqadha Shalat Sunnah Qabliyah Subuh
+
+terlewat shalat sunnah qabliyah subuh? jika iya maka ada dua cara untuk tetap mendapatkan keutamaan dari shalat sunnah qabliyah subuh.
+
+1. Dikerjakan Setelah Shalat Subuh
+Dari Qais bin Amr berkata, Nabi shalallahu ‘alaihi wa sallam pernah melihat seseorang shalat dua rakaat setelah (shalat) shubuh, maka Nabi shalallahu ‘alaihi wa sallam bertanya, 
+‘Apakah (engkau) shalat shubuh dua kali?’ Orang itu menjawab, ‘Saya belum shalat dua rakaat qabliyah shubuh, lalu aku lakukan (setelah shubuh)’.” Lalu (Qois) berkata, “Maka Nabi shalallahu ‘alaihi wa sallam pun diam (tidak melarangnya).” 
+HR. Abu Dawud no.1267, Tirmidzi no.422, Ibnu majah no.1154, Ahmad no.23811, dishahihkan oleh Al-Albani dalam Misykat al-Mashobih 1044 dan Shahih Abu Dawud 1151.
+
+2. Dikerjakan Setelah Matahari Terbit
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda :
+Barangsiapa belum melaksanakan shalat dua rakaat (qabliyah) shubuh, maka hendaklah dia shalat dua rakaat tersebut setelah terbitnya matahari
+
+HR. Tirmidzi no.423, dan dishahihkan oleh Al-Albani dalam Silsilah Shahihah no.2361
+Dinukil dari KonsultasiSyariah.com dalam artikel berjudul "Keutamaan Shalat Qabliyah Shubuh"
+yang disarikan dari Majalah Al Furqan Edisi 06 Tahun ke-10 Muharram 1432 H
+oleh Ustadz Nurfitri Hadi -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://konsultasisyariah.com/10341-keutamaan-shalat-qabliyah-shubuh.html
+
+- [ ] 3-9-20
+___ 
+### 4. Bacaan Ketika Melihat Sesuatu yang Di Sukai
+
+dari 'Aisyah -Radhiallahu 'anha- , Rasulullah -shallallahu 'alaihi wasallam- apabila melihat sesuatu yang ia senangi, beliau mengucapkan :
+الْحَمْدُ لِلَّهِ الَّذِي بِنِعْمَتِهِ تَتِمُّ الصَّالِحَاتُ
+Alhamdulillahilladzi bi ni'matihi tatimmush shalihat
+( Segala Puji Bagi Allah Yang Dengan Nikmat-Nya Semua Kebaikan Menjadi Sempurna)
+
+HR. Ibnu Majah no. 3793, di hasankan oleh Syaikh Al-Albani -rahimahullah- 
+Dinukil dari Ensiklopedia Hadits Lidwa Pustaka
+
+read more : https://hadits.in/ibnumajah/3793
+
+- [ ] 4-9-20
+___ 
+### 5. Bacaan Ketika Melihat Sesuatu yang Tidak Di Sukai
+
+dari 'Aisyah -Radhiallahu 'anha- , Rasulullah -shallallahu 'alaihi wasallam- apabila melihat hal yang dibenci beliau mengucapkan :
+الْحَمْدُ لِلَّهِ عَلَى كُلِّ حَالٍ
+Alhamdulillah 'Alaa Kulli Hal
+(Segala Puji Bagi Allah Atas Setiap Keadaan)
+
+HR. Ibnu Majah no. 3793, di hasankan oleh Syaikh Al-Albani -rahimahullah- 
+Dinukil dari Ensiklopedia Hadits Lidwa Pustaka
+
+read more : https://hadits.in/ibnumajah/3793
+
+- [ ] 7-9-20
+___
+### 6. Larangan Mencela Takdir
+
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda :
+Apabila kamu tertimpa suatu kemalangan, maka janganlah kamu mengatakan
+'Seandainya tadi saya berbuat begini dan begitu, niscaya tidak akan menjadi begini dan begitu'.
+Tetapi katakanlah,
+قَدَرُ اللَّهِ وَمَا شَاءَ فَعَلَ
+( lni sudah takdir Allah dan apa yang dikehendaki-Nya pasti akan dilaksanakan-Nya )
+Karena sesungguhnya ungkapan kata 'law' (seandainya) akan membukakan jalan bagi godaan syetan.'"
+
+HR. Muslim no. 4816
+Dinukil dari Ensiklopedia Hadits Lidwa Pustaka
+
+read more : https://hadits.in/muslim/4816
+
+- [ ] 8-9-20
+___
+### 7. Bersyukur Dahulu
+
+Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu :
+“Bersyukur dulu baru bisa bahagia
+Bukan menunggu bahagia dulu baru bersyukur”
+
+Faidah dinukil dari Muslimafiyah.com dalam artikel berjudul "Penjelasan Makna Doa dan Dzikir Sehari-Hari (1)"
+oleh Ustadz dr. Raehanul Bahraen, M.Sc, Sp.PK -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
+
+- [ ] 9-9-20
+___
+### 8. Doa Keluar Rumah
+
+بِسْمِ اللَّهِ، تَوَكَّلْتُ عَلَى اللَّهِ، لاَ حَوْلَ وَلاَ قُوَّةَ إِلاَّ بِاللَّهِ
+Bismillaah, tawakkaltu ‘alallaah, laa haula wa laa quwwata illaa billaah.
+Artinya: Dengan nama Allah (aku keluar). Aku bertawakkal kepadaNya, tiada daya dan upaya kecuali karena pertolongan Allah. 
+HR. Abu Dawud & At-Tirmidzi
+
+Penjelasan ringkas:
+Doa ini cukup ringkas, mengandung makna yang dalam dan sangat luar biasa. Menyebut nama Allah pertama kali dengan ucapan “basmalah” kemudian bertawakkal kepada Allah ketika akan keluar rumah menghadapi urusan dunia dan pekerjaannya. Hakikat tawakkal ini sangat penting bagi kaum muslimin dan sangat penting dipahami
+Rukun tawakkal ada dua:
+1. Mengambil sebab dan melaksanakan usaha
+
+Sehingga ia berusaha dan menempuh apa yang menjadi sebab semisal giat dan kreatif mencari rezeki
+2. Menyerahkan hasil akhir kepada Allah dan ridha apapun takdir Allah karena itu yang terbaik
+
+Inilah rukun tawakkal yang terpenting, yaitu setelah berusaha ia serahkan hasilnya kepada Allah, apapun hasilnya ia selalu optimis karena Allah telah memilihkan keputusan/takdir terbaik baginya. Jika hasilnya baik, ia bersyukur dan bergembira. Jika hasilnya tidak sesuai keinginannya, maka ia tetap bersyukur karena pilihan Allah lebih baik dari pilihannya dan mungkin akan disimpan untuk kebaikan lainnya, ia pun intropeksi dan evaluasi serta memperbaiki untuk masa depan yang lebih baik
+
+Faidah dinukil dari Muslimafiyah.com dalam artikel berjudul "Penjelasan Makna Doa dan Dzikir Sehari-Hari (3)"
+oleh Ustadz dr. Raehanul Bahraen, M.Sc, Sp.PK -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-3.html
+
+- [ ] 10-9-20
+___
+### 9. Harapan atau Angan ?
+
+Syaikh Abdul Aziz ar-Rajihi menjelaskan,
+Harapan itu disertai dengan mengerahkan kesungguhan dan bertawakal dengan sebaik-baiknya. Namun ia berubah menjadi angan-angan tatkala upayanya dilakukan dengan bermalas-malasan
+
+Syarh al-Ushul ats-Tsalatsah, hal. 59
+Dinukil dari Muslimafiyah.com dalam artikel berjudul "Untuk Apa Kamu Hidup"
+oleh Ustadz Ari Wahyudi, S.Si -Hafizhahullah-
+
+read more : https://muslim.or.id/58455-untuk-apa-kamu-hidup.html
+
+- [ ] 11-9-20
+___
+### 10. Amanah Berupa Wanita
+
+حدثنا أبو شهاب الخياط قال سمعت سفيان الثوري يقول ائتمني على بيت مملوء مالا ولا تأتمني على جارية سوداء لا تحل لي
+
+Dari Abu Syihab al Khayyath, beliau menuturkan bahwa beliau mendengar Sufyan ats Tsauri mengatakan, “Berilah aku amanah untuk menjaga satu rumah yang isinya penuh dengan uang. Namun janganlah kau beri aku amanah untuk menjaga seorang gadis berkulit hitam kelam yang tidak halal bagiku” [Dzammul Hawa karya Ibnul Jauzi hal 165].
+
+Allahu Akbar, jika demikian yang dikatakan oleh Sufyan ats Tsauri padahal beliau adalah beliau dalam masalah ilmu, iman dan takwa –beliau adalah ulama besar di masa tabiin- lantas bagaimanakah yang layak untuk kita katakan hari ini?
+
+Jika demikian untuk gadis hitam kelam yang pada dasarnya banyak laki-laki tidak tertarik padanya lantas bagaimana lagi gadis berkulit sawo matang atau lebih cerah lagi?
+
+Jika demikian yang dikatakan oleh orang sekaliber Sufyan ats Tsauri untuk wanita di masa tabiin –yang tentu kita yakin kondisi agamanya jauh jauh lebih baik dari pada wanita zaman sekarang- lantas apa yang layak kita katakan untuk wanita zaman sekarang?
+
+Jika demikian yang dikatakan untuk gadis hitam yang ‘berpakaian’ lantas bagaimana dengan gadis tidak berkulit hitam zaman ini yang sudah tidak lagi ‘berpakaian’?
+
+Jika demikian dikatakan untuk gadis yang tidak berdandan lantas apa yang bisa kita katakan saat ini untuk gadis yang berdandan terlalu lengkap hingga tidak ubahnya bagaikan ondel-ondel?
+
+Duh betapa cerobohnya para ibu dan ayah yang memberikan amanah berupa anak gadisnya kepada seorang laki-laki yang katanya pacar anaknya untuk diajak jalan-jalan entah kemana!!
+
+Ampunan-Mu ya Allah, ampunan-Mu ya Allah.
+
+Dinukil dari Ustadzaris.com dalam artikel berjudul "Amanah"Berupa Wanita"
+
+read more : https://ustadzaris.com/amanah-berupa-wanita
+
+- [ ] 14-9-20
+___
+### 11. Nikmat Berupa Masa Muda
+
+Jangan sampai kita berprinsip, taubat di masa tua saja. Sekarang mumpung masih muda, kita nikmati dunia, foya-foya, dan bersenang-senang. Saat sudah tua, baru sadar akhirat, sadar belajar agama. Jangan sampai prinsip ini merasuki kita. Akankah kita persembahkan untuk Allah lemah-lemah kita?! Masa kuat saat muda, kita persembahkan untuk hawa nafsu?! Apakah kita berikan untuk Allah hanya sisa-sisa?! Di mana sikap pengagungan kepada Allah Tuhan Pencipta kita?! 
+
+Maka mensyukuri masa muda, adalah dengan mengorbankannya untuk ibadah dan belajar tentang agama Allah Ta’ala.
+
+Dinukil dari Muslim.or.id dalam artikel berjudul "Agar Aku Sukses Menuntut Ilmu Bag-7..."
+yang ditulis oleh Ustadz Ahmad Anshori, Lc. -Hafizhahullah-
+
+read more : https://muslim.or.id/54491-agar-aku-sukses-menuntut-ilmu-bag-7-optimalkan-masa-muda-untuk-belajar.html
+
+- [ ] 15-9-20
+___
+### 12. Langkah Kaki yang menghapus Dosa
+Dari Abu Hurairah radhiyallahu ‘anhu, Rasulullah shallallahu ‘alaihi wa sallam bersabda,
+
+أَلَا أَدُلُّكُمْ عَلَى مَا يَمْحُو اللهُ بِهِ الْخَطَايَا، وَيَرْفَعُ بِهِ الدَّرَجَاتِ؟ قَالُوا: بَلَى يَا رَسُولَ اللهِ قَالَ: إِسْبَاغُ الْوُضُوءِ عَلَى الْمَكَارِهِ، وَكَثْرَةُ الْخُطَا إِلَى الْمَسَاجِدِ، وَانْتِظَارُ الصَّلَاةِ بَعْدَ الصَّلَاةِ، فَذَلِكُمُ الرِّبَاطُ
+
+“Maukah kalian aku tunjukkan kepada suatu amal yang dapat menghapus kesalahan (dosa) dan meninggikan derajat?” Para sahabat menjawab, ”Ya, wahai Rasulullah.” Rasulullah bersabda, ”(Yaitu) menyempurnakan wudhu dalam kondisi sulit, banyaknya langkah menuju masjid, menunggu shalat setelah mendirikan shalat. Itulah ar-ribath (kebaikan yang banyak).” 
+
+HR. Muslim no. 251
+Dinukil dari Muslim.or.id dalam artikel berjudul "Keutamaan Berjalan Menuju Masjid"
+yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
+
+read more : 
+https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
+
+- [ ] 16-9-20
+___
+### 13. PRESTASI ITU PENTING , SIFAT JUJUR LEBIH UTAMA
+YUK AJARI ANAK-ANAK KITA JUJUR DALAM UJIAN
+
+Nabi shallallahu ‘alaihi wa sallam bersabda,
+
+مَنْ غَشَّنَا فَلَيْسَ مِنَّا
+
+“Barangsiapa yang menipu, maka ia tidak termasuk golongan kami. (HR. Ibnu Hibban 2: 326. Hadits ini shahih sebagaimana kata Syaikh Al Albani dalam Ash Shahihah no. 1058).
+
+ISLAM SANGAT MELARANG BERBUAT CURANG ❗
+
+PRESTASI ITU PENTING
+SIFAT JUJUR LEBIH UTAMA
+
+YAKINLAH ALLAH MAHA MELIHAT
+
+Semoga Allah memberikan kemudahan disetiap mengerjakan soal-soal, aamiin
+
+- [ ] 17-9-20
+___
+### 14. Wadah Yang Disebut dengan Hati
+
+Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yaang mulia ini di hati yang tidak saleh!?
+
+Dinukil dari status yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- via laman facebook beliau
+
+- [ ] 18-9-20
+___
+### 15. Pengingat Diri
+Dari Ibnu ‘Umar, ia berkata, “Aku pernah bersama Rasulullah shallallahu ‘alaihi wa sallam, lalu seorang Anshor mendatangi beliau, ia memberi salam dan bertanya, “Wahai Rasulullah, mukmin manakah yang paling baik?” Beliau bersabda, “Yang paling baik akhlaknya.” “Lalu mukmin manakah yang paling cerdas?”, ia kembali bertanya. Beliau bersabda, “Yang paling banyak mengingat kematian dan yang paling baik dalam mempersiapkan diri untuk alam berikutnya, itulah mereka yang paling cerdas.” 
+
+HR. Ibnu Majah no. 4259. Hasan kata Syaikh Al Albani
+Dinukil dari Rumaysho.com dalam artikel berjudul "Kematian Yang Kembali Menyadarkan Kita"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+
+read more : 
+https://rumaysho.com/2822-kematian-yang-kembali-menyadarkan-kita.html
+
+- [ ] 21-9-20
+___
+### 16. Ingat Mati
+Ibnu Utsaimin rahimahullah berkata, 
+
+ “Renungkanlah wahai manusia, (sebenarnya) kamu akan dapati dirimu dalam bahaya, karena kematian tidak ada batas waktu yang kita ketahui, terkadang seorang manusia keluar dari rumahnya dan tidak kembali kepadanya (karena mati), terkadang manusia duduk di atas kursi kantornya dan tidak bisa bangun lagi (karena mati), terkadang seorang manusia tidur di atas kasurnya, akan tetapi dia malah dibawa dari kasurnya ke tempat pemandian mayatnya (karena mati). Hal ini merupakan sebuah perkara yang mewajibkan kita untuk menggunakan sebaiknya kesempatan umur, dengan taubat kepada Allah Azza wa Jalla. Dan sudah sepantasnya manusia selalu merasa dirinya bertaubat, kembali, menghadap kepada Allah, sehingga datang ajalnya dan dia dalam sebaik-baiknya keadaan yang diinginkan.”
+ 
+Majmu’ fatawa wa Rasa-il Ibnu Utsaimin, 8/474)
+Dinukil dari Muslim.or.id dalam artikel berjudul "Ingat Mati"
+yang ditulis oleh Ustadz Ahmad Zainuddin, Lc. -Hafizhahullah-
+
+read more : 
+https://muslim.or.id/8076-ingat-mati-2.html
+
+- [ ] 22-9-20
+___
+### 17. Ibadah Yang Besar
+Syaikhul Islam Ibnu Taimiyyah -rahimahullah- berkata,
+
+"Termasuk ibadah yang besar adalah memenuhi kebutuhan orang yang fakir, menunaikan hajat, membela orang yang terzalimi, menolong orang yang menderita, dan beramar ma'ruf
+
+Majmu Fatawa 28/243
+Dinukil dari kanal Telegram Wawasan Ilmu
+yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
+
+read more : 
+https://t.me/wawasan_muslim/6560
+
+- [ ] 23-9-20
+___
+### 18. Husnuzhon
+Syaddad Ibn Aus -Radhiallahu 'Anhu- Berkata,
+"Wahai manusia, janganlah berburuk sangka terhadap ketetapan Allah, karena Allah tidak pernah menzalimi seorang mukmin pun. Jika salah seorang di antara kamu memperoleh apa yang disukainya, maka pujilah Allah, dan jika salah seorang di antara kamu mendapatkan apa yang tidak disukainya, maka bersabar dan haraplah pahala. Hal itu karena di sisi Allah ada balasan yang sebaik-baiknya."
+
+Tafsir Ibnu Abu Hatim 3/884
+Dinukil dari kanal Telegram Wawasan Ilmu
+yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
+
+read more : 
+https://t.me/wawasan_muslim/6465
+
+- [ ] 24-9-20
+___
+### 19. Tertinggal Shalat Jama'ah
+Muhammad ibn Al Mubarak -rahimahullah- berkata, 
+
+"Said bin Abdul Aziz (Ulama Besar Damaskus, Sezaman dengan Imam Al-Auza'i) ketika tertinggal dari shalat berjamaah, maka ia menangis."
+
+Tadzkiratul Huffazh 1/219
+Dinukil dari kanal Telegram Wawasan Ilmu
+yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
+dengan sedikit tambahan faidah dari web tulisanterkini.com
+
+read more : 
+- https://t.me/wawasan_muslim/6420
+- https://tulisanterkini.com/artikel/keislaman/ahlaq/128-said-bin-abdul-aziz-.html
+
+- [ ] 25-9-20
+___
+### 20. Puasa Ayyamul Bidh
+Yuk Puasa di tiga hari kedepan (1-3 Okt 2020)
+
+Dari Abu Dzar, Rasulullah -shallallahu ‘alaihi wa sallam- bersabda padanya,
+
+يَا أَبَا ذَرٍّ إِذَا صُمْتَ مِنَ الشَّهْرِ ثَلاَثَةَ أَيَّامٍ فَصُمْ ثَلاَثَ عَشْرَةَ وَأَرْبَعَ عَشْرَةَ وَخَمْسَ عَشْرَةَ
+
+Jika engkau ingin berpuasa tiga hari setiap bulannya, maka berpuasalah pada tanggal 13, 14, dan 15 (dari bulan Hijriyah)
+
+HR. Tirmidzi no. 761 dan An Nasai no. 2425. Abu ‘Isa Tirmidzi mengatakan bahwa haditsnya hasan
+Dinukil dari Muslim.or.id dalam artikel berjudul "Puasa Tiga Hari Setiap Bulan dan Puasa Ayyamul Bidh" 
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+
+Penanggalan Hijriah Diambil Dari Web IslamicFinder.org
+
+read more : 
+https://muslim.or.id/17851-puasa-tiga-hari-setiap-bulan-dan-puasa-ayyamul-bidh.html
+
+- [ ] 28-9-20
+___
+### 21. Berdusta Walau Bercanda
+___
+Dari Bahz bin Hakim, ia berkata bahwa ayahnya, Hakim telah menceritakan bahwa ia pernah mendengar Rasulullah shallallahu ‘alaihi wa sallam bersabda,
+
+وَيْلٌ لِلَّذِى يُحَدِّثُ فَيَكْذِبُ لِيُضْحِكَ بِهِ الْقَوْمَ وَيْلٌ لَهُ وَيْلٌ لَهُ
+
+“Celakalah bagi yang berbicara lantas berdusta hanya karena ingin membuat suatu kaum tertawa. Celakalah dia, celakalah dia.”
+ 
+HR. Abu Daud no. 4990 dan Tirmidzi no. 3315. Al Hafizh Abu Thohir mengatakan bahwa sanad hadits ini hasan
+Dinukil dari Rumaysho.com dalam artikel berjudul "Berbohong dalam Candaan"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+
+read more : 
+https://rumaysho.com/10672-berbohong-dalam-candaan.html
+
+- [ ] 29-9-20
+___
+### 22. Terkabulnya Doa
+___
+Nabi -Shallallahu 'Alaihi Wasallam- bersabda,
+“Tidaklah seorang muslim memanjatkan do’a pada Allah selama tidak mengandung dosa dan memutuskan silaturahmi (antar kerabat, pen) melainkan Allah akan beri padanya tiga hal: (1) Allah akan segera mengabulkan do’anya, (2) Allah akan menyimpannya baginya di akhirat kelak, dan (3) Allah akan menghindarkan darinya kejelekan yang semisal.”
+
+HR. Ahmad, 3:18. Syaikh Syu’aib Al-Arnauth menyatakan bahwa sanad hadits ini jayyid
+Dinukil dari Ruqoyyah.com dalam artikel berjudul "Doa Itu Ibadah"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+
+read more : 
+https://ruqoyyah.com/1318-doa-itu-ibadah.html
+
+- [ ] 30-9-20
+___
 ## Oktober
 
 ### 1. Ancaman Bagi Yang Tidak Mengerjakan Hal Yang Ia Perintahkan

@@ -201,72 +201,85 @@ https://www.facebook.com/story.php?story_fbid=2755210197879933&id=10000172938812
 
 	#nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #mati
 
-- [ ] 18-12-20
+- [ ] 18-1-21
 ___ 
 
-### 14. -
+### 14. Keutamaan Shaf Awal
 ___
-Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+“Seandainya orang-orang mengetahui pahala azan dan shaf pertama, kemudian mereka tidak mendapatkannya melainkan dengan cara mengadakan undian, pasti mereka melakukannya.” 
 
-لَيْسَ الْغِنَى عَنْ كَثْرَةِ الْعَرَضِ ، وَلَكِنَّ الْغِنَى غِنَى النَّفْسِ
+HR. Bukhari Muslim
+Dinukil dari laman Rumaysho dalam artikel berjudul "Mengejar Shaf Pertama"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
-Yang namanya kaya (ghina’), bukanlah dengan banyaknya harta (atau banyaknya kemewahan dunia). Namun yang namanya ghina’ adalah hati yang selalu merasa cukup
+read more : https://rumaysho.com/17030-mengejar-shaf-pertama.html
 
-HR. Bukhari dan Muslim
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "tanda-tanda kebahagiaan yang sejati"
-yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
+	#nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #shalat #shaf_awal
 
-read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
-
-- [ ] 18-12-20
+- [ ] 19-1-21 //repost agustus
 ___ 
 
-### 15. Membaca Al-Kahfi di Siang Hari
+### 15. Berbanding Lurus
 ___
-Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
-Siapa yang membaca surat Al-Kahfi pada hari Jumat, maka ia akan disinari cahaya di antara dua Jumat.
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+“Jika manusia berada di waktu pagi, maka semua anggota badannya menyalahkan lisan. Mereka berkata, “ Wahai lisan, bertakwalah kepada Allah dalam urusan kami karena sesungguhnya kami tergantung pada dirimu, Jika kamu bersikap lurus, maka kami pun akan lurus. Namun jika engkau menyimpang, maka kamipun akan menyimpang. “ 
 
-HR. An-Nasa-i, dinilai sahih oleh Al-Albani di dalam Ash-Shahihah
-Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
-yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
+HR. Tirmidzi, shahih
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Buah Manis Menjaga Lisan"
+yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
 
-read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
+read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
-- [ ] 21-12-20
+	#nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #lurus #istiqomah
+
+- [ ] 20-1-21 //repost agustus
 ___ 
 
-### 16. Membaca Al-Kahfi Di Malam Hari
+### 16. Istiqomahnya Lisan
 ___
-Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
-Siapa yang membaca surat Al-Kahfi pada malam Jumat maka ia akan disinari cahaya antara dia dan Baitul Atiq (yaitu Kabah).
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
-HR. Ad-Darimi, dinyatakan sahih oleh Al-Albani di dalam Ash-Shahihah
-Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
-yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
+لَا يَسْتَقِيمُ إِيمَانُ عَبْدٍ حَتَّى يَسْتَقِيمَ قَلْبُهُ ، وَلَا يَسْتَقِيمُ قَلْبُهُ حَتَّى يَسْتَقِيمَ لِسَانُهُ
 
-read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
+“Tidak akan lurus di atas jalan istiqomah iman seorang hamba sebelum istiqomah hatinya, dan tidak akan istiqomah hatinya sebelum istiqomah lisannnya”. 
 
-- [ ] 22-12-20
+HR. Ahmad, shahih
+Dinukil dari Muslim.or.id dalam artikel berjudul "Buah Manis Menjaga Lisan"
+yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
+
+read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
+
+	#nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #lurus #istiqomah
+
+- [ ] 21-1-21 //repost agustus
 ___ 
 
-### 17. Makna Cahaya di Hadits Al-kahfi
+### 17. Kegembiraan Saudaramu
 ___
-Yang dimaksud cahaya di dalam hadis tersebut sebagaimana yang dijelaskan dalam Misykah al-Mashabih dan kitab-kitab syarh hadis lainnya ialah cahaya hati, cahaya di alam kubur, atau cahaya kala dibangkitkan kelak. Ada juga yang berpendapat bahwa yang dimaksud adalah cahaya hidayah dan cahaya keimanan.
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Seutama-utama amal shalih ialah hendaknya engkau memasukkan kegembiraan kepada saudaramu yang beriman" 
 
-Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
-yang ditulis Ustadz Roni Nuryusmansyah
+HR. Ibnu Abid Dunya, dihasankan Syaikh Al-Albani dalam Shahiih Al Jaami'ush Shaghir no. 1096
+Dinukil dari buku berjudul Adab Bergaul Agar Dicintai Allah Kemudian Dicintai Manusia hal 17
+yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 
-read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
+	#nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #gembira
 
-- [ ] 23-12-20
+- [ ] 22-1-21 //repost agustus
 ___ 
 
-### 18. Judul
-___
-teks
+### 18. Kawan Hijrah
 
+Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
+Rindu masa lalu dan tidak menghancurkan jejaknya
 
-- [ ] 24-12-20
+apapun yang tersisa dari masa jahiliyahmu hancurkan dan relakan, itulah taubat hijrah yang sesungguhnya
+
+Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
+dengan sedikit penyesuaian
+
+- [ ] 25-1-21 //repost september
 ___ 
 
 ### 19. Judul
@@ -274,7 +287,7 @@ ___
 teks
 
 
-- [ ] 25-12-20
+- [ ] 26-1-21
 ___ 
 
 ### 20. Judul
@@ -282,7 +295,7 @@ ___
 teks
 
 
-- [ ] 28-12-20
+- [ ] 27-1-21
 ___ 
 
 ### 21. Judul
@@ -290,7 +303,7 @@ ___
 teks
 
 
-- [ ] 29-12-20
+- [ ] 28-1-21
 ___ 
 
 ### 22. Judul
@@ -298,15 +311,5 @@ ___
 teks
 
 
-- [ ] 30-12-20
-___ 
-
-### 23. Judul
-___
-teks
-
-
-- [ ] 31-12-20
-___ 
-
+- [ ] 29-1-21
 
