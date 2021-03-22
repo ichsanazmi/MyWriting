@@ -282,34 +282,62 @@ dengan sedikit penyesuaian
 - [ ] 25-1-21 //repost september
 ___ 
 
-### 19. Judul
+### 19. Lebih Baik dari Dunia dan Seisinya
 ___
-teks
+Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya
 
+HR. Muslim no.1193
+Dinukil dari KonsultasiSyariah.com dalam artikel berjudul "Keutamaan Shalat Qabliyah Shubuh"
+yang ditulis oleh Ustadz Nurfitri Hadi -Hafizhahullah-
 
-- [ ] 26-1-21
+read more : https://konsultasisyariah.com/10341-keutamaan-shalat-qabliyah-shubuh.html
+
+- [ ] 26-1-21 // repost September
 ___ 
 
-### 20. Judul
+### 20. Larangan Mencela Takdir
 ___
-teks
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda :
+Apabila kamu tertimpa suatu kemalangan, maka janganlah kamu mengatakan
+'Seandainya tadi saya berbuat begini dan begitu, niscaya tidak akan menjadi begini dan begitu'.
+Tetapi katakanlah,
+قَدَرُ اللَّهِ وَمَا شَاءَ فَعَلَ
+( lni sudah takdir Allah dan apa yang dikehendaki-Nya pasti akan dilaksanakan-Nya )
+Karena sesungguhnya ungkapan kata 'law' (seandainya) akan membukakan jalan bagi godaan syetan.'"
 
+HR. Muslim no. 4816
+Dinukil dari Ensiklopedia Hadits Lidwa Pustaka
 
-- [ ] 27-1-21
+read more : https://hadits.in/muslim/4816
+
+- [ ] 27-1-21 // repost september
 ___ 
 
-### 21. Judul
+### 21. Harapan atau Angan ?
 ___
-teks
+Syaikh Abdul Aziz ar-Rajihi menjelaskan,
+Harapan itu disertai dengan mengerahkan kesungguhan dan bertawakal dengan sebaik-baiknya. Namun ia berubah menjadi angan-angan tatkala upayanya dilakukan dengan bermalas-malasan
 
+Syarh al-Ushul ats-Tsalatsah, hal. 59
+Dinukil dari Muslimafiyah.com dalam artikel berjudul "Untuk Apa Kamu Hidup"
+oleh Ustadz Ari Wahyudi, S.Si -Hafizhahullah-
 
-- [ ] 28-1-21
+read more : https://muslim.or.id/58455-untuk-apa-kamu-hidup.html
+
+- [ ] 28-1-21 // repost september
 ___ 
 
-### 22. Judul
+### 22. Makna Laa Haula Wa Laa Quwwata Illa BIllah
 ___
-teks
+Ibnu Mas'ud -Radhiallahu 'anhu- berkata,
+“Tidak ada daya untuk menghindarkan diri dari maksiat selain dengan perlindugan dari Allah. Tidak ada kekuatan untuk melaksanakan ketaatan selain dengan pertolongan Allah.”
 
+Syarh Shahih Muslim
+Dinukil dari laman Rumaysho dalam artikel berjudul "Arti laa Hawla Wa Laa Quwwata Illa Billah"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
+
+read more : https://rumaysho.com/14840-arti-laa-hawla-wa-laa-quwwata-illa-billah.html
 
 - [ ] 29-1-21
+
 

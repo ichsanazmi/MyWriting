@@ -500,7 +500,7 @@ yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 ___ 
 ## September
 
-### 1. Kawan Hijrah (1)
+### 1. Berputar Arah (1)
 
 Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
 Rindu masa lalu dan tidak menghancurkan jejaknya
@@ -514,7 +514,7 @@ read more : -
 
 - [ ] 1-9-20
 ___ 
-### 2. Lebih Baik dari Dunia dan Seisinya
+### 2. Lebih Baik dari Dunia dan Seisinya (1)
 
 Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya
 
@@ -576,7 +576,7 @@ read more : https://hadits.in/ibnumajah/3793
 
 - [ ] 7-9-20
 ___
-### 6. Larangan Mencela Takdir
+### 6. Larangan Mencela Takdir (1)
 
 Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda :
 Apabila kamu tertimpa suatu kemalangan, maka janganlah kamu mengatakan
@@ -630,7 +630,7 @@ read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari
 
 - [ ] 10-9-20
 ___
-### 9. Harapan atau Angan ?
+### 9. Harapan atau Angan ? (1)
 
 Syaikh Abdul Aziz ar-Rajihi menjelaskan,
 Harapan itu disertai dengan mengerahkan kesungguhan dan bertawakal dengan sebaik-baiknya. Namun ia berubah menjadi angan-angan tatkala upayanya dilakukan dengan bermalas-malasan
