@@ -269,8 +269,8 @@ yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 - [ ] 22-1-21 //repost agustus
 ___ 
 
-### 18. Kawan Hijrah
-
+### 18. Berputar Arah
+___
 Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
 Rindu masa lalu dan tidak menghancurkan jejaknya
 
