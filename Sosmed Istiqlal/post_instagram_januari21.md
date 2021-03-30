@@ -284,7 +284,8 @@ ___
 
 ### 19. Lebih Baik dari Dunia dan Seisinya
 ___
-Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya
+Rasulullah -shallallahu 'alahi wasallam- bersabda,
+"Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya"
 
 HR. Muslim no.1193
 Dinukil dari KonsultasiSyariah.com dalam artikel berjudul "Keutamaan Shalat Qabliyah Shubuh"
@@ -313,12 +314,12 @@ read more : https://hadits.in/muslim/4816
 - [ ] 27-1-21 // repost september
 ___ 
 
-### 21. Harapan atau Angan ?
+### 21. Harapan atau Angan
 ___
 Syaikh Abdul Aziz ar-Rajihi menjelaskan,
-Harapan itu disertai dengan mengerahkan kesungguhan dan bertawakal dengan sebaik-baiknya. Namun ia berubah menjadi angan-angan tatkala upayanya dilakukan dengan bermalas-malasan
+"Harapan itu disertai dengan mengerahkan kesungguhan dan bertawakal dengan sebaik-baiknya. Namun ia berubah menjadi angan-angan tatkala upayanya dilakukan dengan bermalas-malasan"
 
-Syarh al-Ushul ats-Tsalatsah, hal. 59
+Syarh al-Ushul ats-Tsalatsah, hal. 59k
 Dinukil dari Muslimafiyah.com dalam artikel berjudul "Untuk Apa Kamu Hidup"
 oleh Ustadz Ari Wahyudi, S.Si -Hafizhahullah-
 

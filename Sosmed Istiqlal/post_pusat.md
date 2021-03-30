@@ -382,7 +382,7 @@ read more : https://muslim.or.id/23085-11-amalan-bidah-di-bulan-muharram.html
 
 - [ ] 20-08-20
 ___ 
-### 14. Adab Menghadiri Shalat Jum'at
+### 14. Adab Menghadiri Shalat Jum'at (1)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 

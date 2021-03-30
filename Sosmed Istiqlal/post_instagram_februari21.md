@@ -1,18 +1,20 @@
 # Post Instagram Februari
 
-### 1. Besar dan Kecil Perkara
+### 1. Adab Menghadiri Shalat Jum'at
 ___
-Perkara yang kecil akan nampak besar, dimata orang berjiwa kecil,
-Perkara yang besar akan nampaknya kecil, dimata orang berjiwa besar.
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
-Ta’lim al-Muta’allim Thariq al-Ta’allum, karya al-Zarnudji
-Dinukil dari status facebook
-yang ditulis oleh Ustadz Muhamad Fajri, M.Pd.I -Hafizhahullah- dengan sedikit penyesuaian
+لاَ يَغْتَسِلُ رَجُلٌ يَوْمَ الجُمُعَةِ، وَيَتَطَهَّرُ مَا اسْتَطَاعَ مِنْ طُهْرٍ، وَيَدَّهِنُ مِنْ دُهْنِهِ، أَوْ يَمَسُّ مِنْ طِيبِ بَيْتِهِ، ثُمَّ يَخْرُجُ فَلاَ يُفَرِّقُ بَيْنَ اثْنَيْنِ، ثُمَّ يُصَلِّي مَا كُتِبَ لَهُ، ثُمَّ يُنْصِتُ إِذَا تَكَلَّمَ الإِمَامُ، إِلَّا غُفِرَ لَهُ مَا بَيْنَهُ وَبَيْنَ الجُمُعَةِ الأُخْرَى
 
-read more :
-https://www.facebook.com/fajri1411/posts/1412878952397650
+“Tidaklah seorang laki-laki mandi pada hari Jum’at, lalu bersuci semaksimal mungkin, memakai wewangian miliknya atau minyak wangi keluarganya, lalu keluar rumah menuju masjid, dia tidak memisahkan dua orang pada tempat duduknya, lalu dia shalat sebanyak yang dia mampu dan diam mendengarkan khutbah imam, kecuali dia akan diampuni dosa-dosanya yang ada antara Jum’at itu dan Jum’at yang lainnya.” 
+(HR. Bukhari no. 883)
 
-- [ ] 1-1-21
+Dinukil dari Muslim.or.id dalam artikel berjudul "Memperbanyak Sholat Sunnah Sebelum Datangnya Khatib Jumat"
+yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
+
+read more : https://muslim.or.id/58161-memperbanyak-shalat-sunnah-sebelum-datangnya-khatib-jumat.html
+
+- [ ] 1-1-21 repost agustus
 ___ 
 
 ### 2. Syukuri yang Sedikit
@@ -67,7 +69,7 @@ ___
 ### 5. Tanda Kebaikan Seseorang
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-Barangsiapa yang Allah kehendaki menjadi baik
+Barangsiapa yang Allah kehendaki menjadi baik1
 maka Allah faqihkan (memahamkan) dia terhadap agama
 
 HR. Bukhari
