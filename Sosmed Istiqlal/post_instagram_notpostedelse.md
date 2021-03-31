@@ -1,7 +1,9 @@
 # Post Instagram Random
 
 ### Hati yang Tenang
+
 ___
+
 Betapa terkadang masalah menimpa seorang hamba,
 Begitu beratnya,
 Sampai-sampai ketika ia menengadahkan tangannya,
@@ -28,10 +30,13 @@ read more :
 https://web.facebook.com/story.php?story_fbid=10219153604011767&id=1257341801
 
 - [ ] notposted
+
 ___ 
 
 ### Lupa Akan Tujuan Penciptaan
+
 ___
+
 Syaikh Utsaimin -rahimahullah- berkata,
 "Seandainya manusia diciptakan untuk dunia, niscaya para Nabi dan Rasul adalah orang-orang yang paling utama untuk kekal di dalamnya.
 Kita tahu kita ini tidak tercipta untuk dunia,
@@ -50,10 +55,13 @@ read more :
 https://web.facebook.com/story.php?story_fbid=10219134756060580&id=1257341801
 
 - [ ] notposted
+
 ___ 
 
 ### Terbuai Tipu Daya
+
 ___
+
 Al-Hafizh Al-Dzahaby -rahimahullah- berkata,
 "Setiap orang yang tidak takut masuk neraka maka ia orang yang terbuai tertipu daya, dengan sebabnya sungguh ia telah merasa aman akan Makar Allah."
 Siyar A'lamunnubala' 6/291.
@@ -67,10 +75,13 @@ read more :
 https://web.facebook.com/story.php?story_fbid=3647133375354273&id=100001729388129
 
 - [ ] notposted
+
 ___ 
 
 ### Luasnya Ampunan Dari Allah
+
 ___
+
 Allah -Tabaraka Wa Ta'ala- berfirman,
 
 “Wahai anak Adam, selagi engkau berdoa kepada-Ku dan berharap kepada-Ku melainkan Aku akan ampuni dosa yang ada padamu dan Aku tidak peduli (seberapa banyak).
@@ -84,11 +95,15 @@ Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
 read more : https://hadits.in/muslim/2052
 penjelasan : https://www.youtube.com/watch?v=3-B0L3D9fSA
+
 - [ ] notposted
+
 ___ 
 
 ### Sebaik-baik Orang
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Seluruh anak Adam berdosa, dan sebaik-baik orang yang berdosa adalah yang bertaubat"
 
@@ -99,10 +114,13 @@ yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah-
 read more : https://firanda.com/693-faedah-istigfar-dan-taubat.html
 
 - [ ] notposted
+
 ___ 
 
 ### Menghapus Kejelekan
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "ikutkanlah kejelekan dengan kebaikan, niscaya kebaikan akan menghapuskannya"
 
@@ -113,10 +131,13 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 
 - [ ] notpostedelse
+
 ___ 
 
 ### Berakhlaq yang Baik
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "berakhlaqlah dengan sesama dengan akhlaq yang baik"
 
@@ -127,10 +148,13 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 
 - [ ] 16-12-20
+
 ___ 
 
 ### Naungan Allah Bagi Pemuda Shalih
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Tujuh golongan yang dinaungi Allâh dalam naungan-Nya pada hari di mana tidak ada naungan kecuali naungan-Nya... (salah satunya) Seorang pemuda yang tumbuh dewasa dalam beribadah kepada Allah"
 
@@ -147,10 +171,13 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit
 read more : https://rumaysho.com/15759-khutbah-jumat-tujuh-golongan-yang-mendapatkan-naungan-allah-pada-hari-kiamat.html
 
 - [ ] notpostedelse
+
 ___ 
 
 ### Puasa Sehari
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
 Barangsiapa melakukan puasa satu hari di jalan Allah (dalam melakukan ketaatan pada Allah), maka Allah akan menjauhkannya dari neraka sejauh perjalanan 70 tahun
 
@@ -161,10 +188,13 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit
 read more : https://rumaysho.com/7414-keutamaan-puasa.html
 
 - [ ] notpostedelse
+
 ___ 
 
 ### Satu Yang Tetap
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Yang mengikuti mayit sampai ke kubur ada tiga, dua akan kembali dan satu tetap bersamanya di kubur. Yang mengikutinya adalah keluarga, harta dan amalnya. Yang kembali adalah keluarga dan hartanya. Sedangkan yang tetap bersamanya di kubur adalah amalnya (yang baik atau buruk)"
 
@@ -175,10 +205,13 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit
 read more : https://rumaysho.com/14414-tiga-yang-menemani-dua-pulang-satu-tersisa.html
 
 - [ ] notpostedelse
+
 ___ 
 
 ### Terputus
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Apabila seseorang mati, seluruh amalnya akan terputus kecuali 3 hal: sedekah jariyah, ilmu yang manfaat, dan anak sholeh yang mendoakannya"
 
@@ -189,10 +222,13 @@ yang ditulis Ustadz Ammi Nur Baits,ST -Hafizhahullah-
 read more : https://konsultasisyariah.com/20268-cara-berbakti-kepada-orang-tua-setelah-mereka-meninggal.html
 
 - [ ] notpostedelse
+
 ___ 
 
 ### Doa Masuk WC
+
 ___
+
 اللَّهُمَّ إنِّي أعُوذُ بكَ مِنَ الخُبْثِ والْخَبَائِثِ
 Allahumma inni a’udzubika minal khubutsi wal khabaitsi
 artinya : Ya Allah aku meminta perlindunganmu dari al khubuts dan al khabaits
@@ -212,10 +248,13 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesu
 read more : https://kangaswad.wordpress.com/2020/09/08/bacalah-doa-ketika-masuk-wc/
 
 - [ ] notpostedelse
+
 ___ 
 
 ### Doa Keluar WC
+
 ___
+
 غُفْرَانَكَ
 Ghufranaka
 artinya : Aku meminta Ampunan-Mu ya Allah
@@ -226,12 +265,14 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesu
 
 read more : https://muslimafiyah.com/ini-alasan-kenapa-doa-keluar-wc-meminta-ampun.html
 
-
 - [ ] notposted
+
 ___ 
 
 ### Menggapai Surga
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam bersabda,
 "Barangsiapa menempuh jalan menuntut ilmu, maka Allah akan memudahkan jalannya untuk menuju surga"
 
@@ -241,12 +282,14 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesu
 
 read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masjid.html
 
-
 - [ ] notposted
+
 ___ 
 
 ### Keutamaan Menuntut Ilmu
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam bersabda,
 "Tidaklah suatu kaum berkumpul di salah satu rumah dari rumah-rumah Allah (masjid) membaca Kitabullah dan saling mempelajarinya, melainkan akan turun kepada mereka sakinah (ketenangan), mereka akan dinaungi rahmat, mereka akan dilingkupi para malaikat dan Allah akan menyebut-nyebut mereka di sisi para makhluk yang dimuliakan di sisi-Nya"
 
@@ -256,12 +299,14 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesu
 
 read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masjid.html
 
-
 - [ ] notposted
+
 ___ 
 
 ### Istirahat Yang Berpahala
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam bersabda,
 "Hendaknya kalian melakukan qoilulah atau istirahat siang karena setan itu tidak beristirahat siang"
 
@@ -272,7 +317,89 @@ yang ditulis Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 read more : https://ustadzaris.com/istirahat-berpahala
 
 - [ ] notposted
-___ 
 
+____
 
+### Tetap Membaca Al-Quran
 
+---
+
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Orang yang lancar membaca Alquran akan bersama malaikat utusan yang mulia lagi berbakti, sedangkan orang yang membaca Alquran dengan tersendat-sendat lagi berat, maka ia akan mendapatkan dua pahala (karena telah membaca dan bersusah payah -ed).”
+
+HR Muslim
+Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan Motivasi Membaca Al-Quran di Bulan Ramadhan" dengan sedikit penyesuaian
+
+read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
+
+- [ ] notposted
+
+---
+
+### Syafaat Bagi Pembacanya
+
+---
+
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Bacalah Al-Quran, karena ia akan datang pada hari kiamat memberikan syafaat kepada pembacanya.”
+
+HR Muslim
+Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan Motivasi Membaca Al-Quran di Bulan Ramadhan" dengan sedikit penyesuaian
+
+read more : [Keutamaan dan Motivasi Membaca Alquran di Bulan Ramadhan | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html)
+
+- [ ] notposted
+
+---
+
+### Waktunya Maksimal Beramal
+
+---
+
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Jika telah datang bulan Ramadhan, pintu-pintu surga dibuka, pintu-pintu neraka ditutup, dan setan-setan terbelenggu"
+
+Mutafaqqun 'Alaihi'
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Istirahat Yang Berpahala"
+
+read more : [Ramadhan Tiba, Pintu-Pintu Surga Terbuka](https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html)
+
+- [ ] notposted
+
+---
+
+### Makna Terbukanya Pintu Syurga
+
+---
+
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Juga dapat bermakna terbukanya pintu surga karena Allah memudahkan berbagai ketaatan pada hamba-Nya di bulan Ramadhan seperti puasa dan shalat malam. Hal ini berbeda dengan bulan-bulan lainnya. Di bulan Ramadhan, orang akan lebih sibuk melakukan kebaikan daripada melakukan maksiat. Inilah sebab mereka dapat memasuki surga dan pintunya. Sedangkan tertutupnya pintu neraka dan terbelenggunya setan, inilah yang mengakibatkan seseorang mudah menjauhi maksiat ketika itu.
+
+Sumber [Kenapa Maksiat Masih Terjadi, Padahal Setan Diikat di Bulan Ramadhan? | Rumaysho.Com](https://rumaysho.com/11168-kenapa-maksiat-masih-terjadi-padahal-setan-diikat-di-bulan-ramadhan.html")
+
+Silsilah Shahihah karya Al Albani no 1627
+Dinukil dari laman UstadzAris dalam artikel yang berjudul "Istirahat Yang Berpahala"
+yang ditulis Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+
+read more :
+
+- [ ] notposted
+
+---
+
+### Istirahat Yang Berpahala
+
+---
+
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Hendaknya kalian melakukan qoilulah atau istirahat siang karena setan itu tidak beristirahat siang"
+
+Silsilah Shahihah karya Al Albani no 1627
+Dinukil dari laman UstadzAris dalam artikel yang berjudul "Istirahat Yang Berpahala"
+yang ditulis Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+
+read more :
+
+- [ ] notposted
+
+---
