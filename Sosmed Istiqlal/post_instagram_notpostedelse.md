@@ -387,18 +387,15 @@ read more :
 
 ---
 
-### Istirahat Yang Berpahala
+### Lelah Itu Pilihan
 
 ---
 
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Hendaknya kalian melakukan qoilulah atau istirahat siang karena setan itu tidak beristirahat siang"
+"mendidik anak, memiliki kepedulian untuk mendidik anak itu capek. tapi hasilnya itu menyenangkan hati. nanti insyaAllah anak itu tersebut saat kita sudah tua, dia akan peduli dengan orang tuanya. karena ketika kecil, kita peduli dengan dia."
 
-Silsilah Shahihah karya Al Albani no 1627
-Dinukil dari laman UstadzAris dalam artikel yang berjudul "Istirahat Yang Berpahala"
-yang ditulis Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+Faidah catatan kajian dengan judul "Hidup Adalah Pilihan" oleh Ustadz Abdullah Zaen, Lc. MA -Hafizhahullah-
 
-read more :
+watch more : https://www.youtube.com/watch?v=j6APADoANR8&t=2080s
 
 - [ ] notposted
 
