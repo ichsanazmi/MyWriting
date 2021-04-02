@@ -359,10 +359,10 @@ read more : [Keutamaan dan Motivasi Membaca Alquran di Bulan Ramadhan | Konsulta
 Rasulullah -shallallahu 'alaihi wasallam bersabda,
 "Jika telah datang bulan Ramadhan, pintu-pintu surga dibuka, pintu-pintu neraka ditutup, dan setan-setan terbelenggu"
 
-Mutafaqqun 'Alaihi'
+Mutafaqqun 'Alaihi
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Istirahat Yang Berpahala"
 
-read more : [Ramadhan Tiba, Pintu-Pintu Surga Terbuka](https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html)
+read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html
 
 - [ ] notposted
 
@@ -372,16 +372,15 @@ read more : [Ramadhan Tiba, Pintu-Pintu Surga Terbuka](https://muslim.or.id/6644
 
 ---
 
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
+Al-Qodhi Iyadh -Rahimahullah- berkata,
 "Juga dapat bermakna terbukanya pintu surga karena Allah memudahkan berbagai ketaatan pada hamba-Nya di bulan Ramadhan seperti puasa dan shalat malam. Hal ini berbeda dengan bulan-bulan lainnya. Di bulan Ramadhan, orang akan lebih sibuk melakukan kebaikan daripada melakukan maksiat. Inilah sebab mereka dapat memasuki surga dan pintunya. Sedangkan tertutupnya pintu neraka dan terbelenggunya setan, inilah yang mengakibatkan seseorang mudah menjauhi maksiat ketika itu.
 
-Sumber [Kenapa Maksiat Masih Terjadi, Padahal Setan Diikat di Bulan Ramadhan? | Rumaysho.Com](https://rumaysho.com/11168-kenapa-maksiat-masih-terjadi-padahal-setan-diikat-di-bulan-ramadhan.html")
 
-Silsilah Shahihah karya Al Albani no 1627
-Dinukil dari laman UstadzAris dalam artikel yang berjudul "Istirahat Yang Berpahala"
-yang ditulis Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
-read more :
+Syarh Shahih Muslim, 7:167
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Kenapa Maksiat Masih Terjadi Padahal Setan Diikat di Bulan Ramadhan"
+
+read more : https://rumaysho.com/11168-kenapa-maksiat-masih-terjadi-padahal-setan-diikat-di-bulan-ramadhan.html
 
 - [ ] notposted
 
