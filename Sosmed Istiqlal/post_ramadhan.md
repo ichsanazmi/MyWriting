@@ -1,55 +1,72 @@
 # Post Instagram Desember
 
 ### 1. Telah Datang Waktunya
+
 ___
+
 Telah datang waktunya, ajang untuk saling berlomba.
 
 Dimana tidak ada istilah kalah atau menang, yang ada hanyalah beruntung atau merugi
 
 - [ ] 1 Ramadhan
+
 ___ 
 
 ### 2. Bersabar di Ramadhan
+
 ___
+
 Alangkah butanya hati seorang yang tidak mampu bersabar sesaat, dan memilih untuk mereguk kehinaan abadi
 
 Bersemilah Ramadhan, Hal 63 Karya Ustadz Armen Halim Naro, Lc. -Rahimahullah-
 
 - [ ] 2 Ramadhan
+
 ___ 
 
 ### 3. Di Ampuni Yang Telah Lalu
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 Barangsiapa yang berpuasa ramadhan atas dasar iman dan mengharap pahala dari Allah, maka dosanya yang telah lalu akan diampuni
 
 HR. Bukhari Muslim
 
 - [ ] 3 Ramadhan
+
 ___ 
 
 ### 4. Hasil Kondisimu dengan Allah
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 Barangsiapa sholat (tarawih) di bulan ramadhan atas dasar iman dan mengharap pahala dari Allah, maka dosanya yang telah lalu akan diampuni
 
 HR. Bukhari Muslim
 
 - [ ] 4 Ramadhan
+
 ___ 
 
 ### 5. Bersegera Dalam Berbuka
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 Manusia senantiasa dalam kebaikan selama mereka menyegerakan berbuka
 
 HR. Bukhari
 
 - [ ] 5 Ramadhan
+
 ___ 
 
 ### 6. Do'a Berbuka Puasa
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wa sallam- ketika berbuka beliau membaca doa :
 
 ذَهَبَ الظَّمَأُ وَابْتَلَّتِ الْعُرُوقُ وَثَبَتَ الأَجْرُ إِنْ شَاءَ اللَّهُ
@@ -62,10 +79,13 @@ HR Abu Daud no. 2357, dari Ibnu Umar, Syaikh Al-Albani berkata hadits ini
 hasan
 
 - [ ] 6 Ramadhan
+
 ___ 
 
 ### 7. Introspeksi Diri
+
 ___
+
 Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan,
 Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
 
@@ -76,10 +96,13 @@ read more :
 https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
 - [ ] 9-12-20 // repost post juli
+
 ___ 
 
 ### 8. Warisan Para Nabi
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda :
 إِنَّ الأَنْبِيَاءَ لَمْ يُوَرِّثُوا دِينَارًا وَلاَ دِرْهَمًا إِنَّمَا وَرَّثُوا الْعِلْمَ فَمَنْ أَخَذَ بِهِ أَخَذَ بِحَظٍّ وَافِرٍ
 
@@ -92,10 +115,13 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 - [ ] 10-12-20 // repost post agustus
+
 ___ 
 
 ### 9. Ilmu Sebelum Amal
+
 ___
+
 'Umar bin 'Abdul 'Aziz -rahimahullah- berkata :
 مَنْ عَبَدَ اللهَ بِغَيْرِ عِلْمٍ كَانَ مَا يُفْسِدُ أَكْثَرَ مِمَّا يُصْلِحُ
 
@@ -108,10 +134,13 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 - [ ] 11-12-20 // repost post agustus
+
 ___ 
 
 ### 10. Tawakkal Kepada Allah
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda :
 Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.” 
 
@@ -122,10 +151,13 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
 
 - [ ] 14-12-20 // repost post agustus
+
 ___ 
 
 ### 11. Andai Ia Meninggalkan Bau
+
 ___
+
 Muhammad bin Wasi’ -rahimahullah- berkata,
 
 لَوْ كَانَ لِلذُّنُوْبِ رِيْحٌ مَا قَدَرَ أَحَدٌ أَنْ يَجْلِسَ إِلَيَّ
@@ -139,10 +171,13 @@ read more :
 https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
 - [ ] 15-12-20 // repost post juli
+
 ___ 
 
 ### 12. Teman Seiman Selalu Berbaik Sangka
+
 ___
+
 Suatu ketika Imam Asy-Syafi'i rahimahullah sakit, lalu sebagian teman-temannya datang membesuknya, ia berkata kepada Imam Asy-syafi'i; "Semoga Allah menguatkan kelemahanmu". 
 
 Imam Asy-syafi'i berkata; "Jika kelemahanku menguat niscaya akan membunuhku,"
@@ -155,15 +190,19 @@ Adab Asyyafi'i Wa Manaqibih karya Ibnu Abi Hatim Hal. 209
 Dinukil dari Ustadz Musa Mulyadi Luqman, Lc. via WhatsApp dengan sedikit penyesuaian
 
 - [ ] 16-12-20
+
 ___ 
 
 ### 13. Tanda Kebahagiaan
+
 ___
+
 Syaikh Muhammad At-Tamimy -rahimahullah- berkata tentang tanda kebaikan :
+
 1. Jika diberi kenikmatan, dia bersyukur
 2. Jika diuji dengan ditimpa musibah, dia bersabar
 3. dan jika melakukan dosa, dia beristighfar(bertaubat)
-Maka tiga hal ini adalah tanda kebahagiaan
+   Maka tiga hal ini adalah tanda kebahagiaan
 
 Matn Qowaidul Arba'
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "tanda-tanda kebahagiaan yang sejati"
@@ -172,10 +211,13 @@ yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
 read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
 - [ ] 17-12-20
+
 ___ 
 
 ### 14. Kekayaan Sejati
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
 لَيْسَ الْغِنَى عَنْ كَثْرَةِ الْعَرَضِ ، وَلَكِنَّ الْغِنَى غِنَى النَّفْسِ
@@ -189,10 +231,13 @@ yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
 read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
 - [ ] 18-12-20
+
 ___ 
 
 ### 15. Membaca Al-Kahfi di Siang Hari
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
 Siapa yang membaca surat Al-Kahfi pada hari Jumat, maka ia akan disinari cahaya di antara dua Jumat.
 
@@ -203,10 +248,13 @@ yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
 read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
 - [ ] 21-12-20
+
 ___ 
 
 ### 16. Membaca Al-Kahfi Di Malam Hari
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
 Siapa yang membaca surat Al-Kahfi pada malam Jumat maka ia akan disinari cahaya antara dia dan Baitul Atiq (yaitu Kabah).
 
@@ -217,10 +265,13 @@ yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
 read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
 - [ ] 22-12-20
+
 ___ 
 
 ### 17. Makna Cahaya di Hadits Al-kahfi
+
 ___
+
 Yang dimaksud cahaya di dalam hadis tersebut sebagaimana yang dijelaskan dalam Misykah al-Mashabih dan kitab-kitab syarh hadis lainnya ialah cahaya hati, cahaya di alam kubur, atau cahaya kala dibangkitkan kelak. Ada juga yang berpendapat bahwa yang dimaksud adalah cahaya hidayah dan cahaya keimanan.
 
 Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
@@ -229,53 +280,65 @@ yang ditulis Ustadz Roni Nuryusmansyah
 read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
 - [ ] 23-12-20
+
 ___ 
 
 ### 18. Judul
+
 ___
+
 teks
 
-
 - [ ] 24-12-20
+
 ___ 
 
 ### 19. Judul
+
 ___
+
 teks
 
-
 - [ ] 25-12-20
+
 ___ 
 
 ### 20. Judul
+
 ___
+
 teks
 
-
 - [ ] 28-12-20
+
 ___ 
 
 ### 21. Judul
+
 ___
+
 teks
 
-
 - [ ] 29-12-20
+
 ___ 
 
 ### 22. Judul
+
 ___
+
 teks
 
-
 - [ ] 30-12-20
+
 ___ 
 
 ### 23. Judul
+
 ___
+
 teks
 
-
 - [ ] 31-12-20
-___ 
 
+___ 

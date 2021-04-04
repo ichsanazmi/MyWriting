@@ -6,8 +6,6 @@ ___
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
-لاَ يَغْتَسِلُ رَجُلٌ يَوْمَ الجُمُعَةِ، وَيَتَطَهَّرُ مَا اسْتَطَاعَ مِنْ طُهْرٍ، وَيَدَّهِنُ مِنْ دُهْنِهِ، أَوْ يَمَسُّ مِنْ طِيبِ بَيْتِهِ، ثُمَّ يَخْرُجُ فَلاَ يُفَرِّقُ بَيْنَ اثْنَيْنِ، ثُمَّ يُصَلِّي مَا كُتِبَ لَهُ، ثُمَّ يُنْصِتُ إِذَا تَكَلَّمَ الإِمَامُ، إِلَّا غُفِرَ لَهُ مَا بَيْنَهُ وَبَيْنَ الجُمُعَةِ الأُخْرَى
-
 “Tidaklah seorang laki-laki mandi pada hari Jum’at, lalu bersuci semaksimal mungkin, memakai wewangian miliknya atau minyak wangi keluarganya, lalu keluar rumah menuju masjid, dia tidak memisahkan dua orang pada tempat duduknya, lalu dia shalat sebanyak yang dia mampu dan diam mendengarkan khutbah imam, kecuali dia akan diampuni dosa-dosanya yang ada antara Jum’at itu dan Jum’at yang lainnya.” 
 (HR. Bukhari no. 883)
 

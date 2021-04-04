@@ -375,8 +375,6 @@ read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.ht
 Al-Qodhi Iyadh -Rahimahullah- berkata,
 "Juga dapat bermakna terbukanya pintu surga karena Allah memudahkan berbagai ketaatan pada hamba-Nya di bulan Ramadhan seperti puasa dan shalat malam. Hal ini berbeda dengan bulan-bulan lainnya. Di bulan Ramadhan, orang akan lebih sibuk melakukan kebaikan daripada melakukan maksiat. Inilah sebab mereka dapat memasuki surga dan pintunya. Sedangkan tertutupnya pintu neraka dan terbelenggunya setan, inilah yang mengakibatkan seseorang mudah menjauhi maksiat ketika itu.
 
-
-
 Syarh Shahih Muslim, 7:167
 Dinukil dari laman Rumaysho dalam artikel yang berjudul "Kenapa Maksiat Masih Terjadi Padahal Setan Diikat di Bulan Ramadhan"
 
@@ -397,5 +395,94 @@ Faidah catatan kajian dengan judul "Hidup Adalah Pilihan" oleh Ustadz Abdullah Z
 watch more : https://www.youtube.com/watch?v=j6APADoANR8&t=2080s
 
 - [ ] notposted
+
+___
+
+### Dusta Saat Puasa
+
+___
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Barangsiapa yang tidak meninggalkan perkataan dusta malah mengamalkannya, maka Allah tidak butuh dari rasa lapar dan haus yang dia tahan"
+
+
+
+HR. Bukhari
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
+
+read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
+
+___
+
+### Hakikat Puasa
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Tidaklah puasa itu hanya sekedar menahan dari makan dan minum. Akan tetapi, hakikat puasa adalah menahan diri dari ucapan kotor dan sia-sia"
+
+
+
+HR. Ibnu Khuzaimah dalam kitab Shahihnya no. 1996
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-2"
+
+read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
+
+---
+
+### Menghindari Cacian dan Perkelahian
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Jika ada seseorang yang mencacimu dan berbuat usil kepadamu, maka ucapkanlah, Saya sedang berpuasa, saya sedang berpuasa.” 
+
+
+
+HR. Ibnu Khuzaimah dalam kitab Shahihnya no. 1996
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-2"
+
+read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
+
+---
+
+### Berniat Untuk Puasa Ramadhan
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Barangsiapa yang tidak niat berpuasa sebelum fajar terbit, maka puasanya tidak sah"
+
+
+
+HR. An-Nasa'i dan Ahmad, Shahih
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-1"
+
+read more : https://muslim.or.id/39997-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-1.html
+
+
+
+---
+
+### Memperbanyak Do'a Di Ramadhan
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
+
+
+
+HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
 ---
