@@ -18,82 +18,92 @@ read more : https://muslim.or.id/58161-memperbanyak-shalat-sunnah-sebelum-datang
 
 ___ 
 
-### 2. -
+### 2. Terbuai Tipu Daya
 
-___
+---
 
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-Barang siapa yang tidak mensyukuri sesuatu yang sedikit, maka ia tidak akan mampu mensyukuri sesuatu yang banyak
-
-HR. Ahmad, 4:278. Syaikh Al-Albani mengatakan bahwa hadits ini hasan sebagaimana dalam Silsilah Al-Ahadits Ash-Shahihah, no. 667, 2:272
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Manfaat Bersyukur Kembali Kepada Yang Bersyukur"
-yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
-
-read more :
-https://rumaysho.com/25932-manfaat-bersyukur-kembali-pada-yang-bersyukur.html
-
-- [ ] 3-11-21
-
-___ 
-
-### 3. Nikmat yang menipu
-
-___
-
-Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-Dua nikmat,kebanyakan manusia tertipu dengan keduanya,
-yaitu kesehatan dan waktu luang
-
-HR. Bukhari
-Dinukil dari laman Muslimah.or.id dalam artikel yang berjudul "2 Nikmat yang Banyak dilalaikan"
-yang ditulis Wiwit Hardi P -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://muslimah.or.id/7233-2-nikmat-yang-banyak-dilalaikan.html
-
-- [ ] 3-12-20 // repost post juli
-
-___ 
-
-### 4. Hasil Kondisimu dengan Allah
-
-___
-
-Boleh jadi engkau hidup diatas bumi selama 70 tahun.
-Namun engkau bisa jadi tinggal di kuburmu selama 5000 tahun.
-Maka bayangkanlah bahwasanya engkau termasuk orang-orang yang Allah ridho kepadanya.
-Maka jadilah kuburmu itu taman diantara taman-taman surga dan engkau merasakan nikmat selama tinggal disana, dengan sebab amal-amal sholihmu.
-
-Kehidupanmu dibawah bumi adalah hasil kondisimu bersama Allah diatas muka bumi.
-Nasehat yang menyentuh dari Syaikhunâ, Sulthan bin Abdillah al-'Āmiriy hafizhahullah
+Al-Hafizh Al-Dzahaby -rahimahullah- berkata,
+"Setiap orang yang tidak takut masuk neraka maka ia orang yang terbuai tertipu daya, dengan sebabnya sungguh ia telah merasa aman akan Makar Allah."
+Siyar A'lamunnubala' 6/291.
+Peruntukannya dikhususkan atas orang yang rajin ibadah bukan atas orang yang bejat, sebab orang yang bejat biasanya sudah tau dirinya pendosa, pintu taubat lebih mudah untuk ia ketuk.
+Sementara yang rajin ibadah -kecuali yang dirahmati Allah- kerap lupa dirinya pendosa dan cendrung melihat dirinya baik.
 
 Dinukil dari status facebook
-yang ditulis oleh Ustadz Abu Sa'id Neno Triyono -Hafizhahullah- dengan sedikit penyesuaian
+yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit penyesuaian
 
-read more :
-https://www.facebook.com/abu.s.triyono.5
+read more : https://web.facebook.com/story.php?story_fbid=3647133375354273&id=100001729388129
 
-- [ ] 4-12-20 // repost post juli
-
-___ 
-
-### 5. Tanda Kebaikan Seseorang
-
-___
-
-Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-Barangsiapa yang Allah kehendaki menjadi baik1
-maka Allah faqihkan (memahamkan) dia terhadap agama
-
-HR. Bukhari
-Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
-
-read more : https://hadits.in/bukhari/69
-
-- [ ] 7-12-20 // repost post juli
+- [x] 2-2-21
 
 ___ 
 
-### 6. Bersabar dalam Do'a
+### 3. Sebaik-baik Orang
+
+---
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Seluruh anak Adam berdosa, dan sebaik-baik orang yang berdosa adalah yang bertaubat"
+
+HR Ibnu Maajah no 4241, dihasankan oleh Syaikh Al-Albani
+Dinukil dari laman Firanda.com dalam artikel berjudul "Faedah Istigfar dan Taubat"
+yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah-
+
+read more : https://firanda.com/693-faedah-istigfar-dan-taubat.html
+
+- [x] 3-2-21
+
+___ 
+
+### 4. Menghapus Kejelekan
+
+---
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"ikutkanlah kejelekan dengan kebaikan, niscaya kebaikan akan menghapuskannya"
+
+HR. Tirmidzi no. 1987. Imam At-Tirmidzi mengatakan bahwa hadits ini hasan shahih.
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Aku Ingin Bertaubat Tetapi"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
+
+read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
+
+- [x] 4-2-21
+
+___ 
+
+### 5. Hati yang Tenang
+
+---
+
+Betapa terkadang masalah menimpa seorang hamba,
+Begitu beratnya,
+Sampai-sampai ketika ia menengadahkan tangannya,
+Baru saja ia memulai doa,
+"Ya, Allah..." 
+Bulir air mata sudah mengalir di kedua pipinya.
+Dengan ucapan lirih bercampur tangis, terisak ia berdoa.
+Ia curahkan semua kepada Allah, Tuhannya.
+Entah mengapa, ada ketenangan yang dirasa.
+Setelah ia selesai berdoa kepada-Nya.
+Meski ia belum tahu apa solusi dari masalahnya.
+Hatinya kembali yakin akan ada jalan keluarnya.
+Ia pun bisa tertidur tenang karena yakin Allah pasti 'kan menolongnya.
+(وَقَالَ رَبُّكُمُ ٱدۡعُونِیۤ أَسۡتَجِبۡ لَكُمۡۚ )
+Dan Tuhanmu berfirman, "Berdoalah kepada-Ku, niscaya akan Kuperkenankan bagimu." [Ghafir : 60]
+(أَمَّن یُجِیبُ ٱلۡمُضۡطَرَّ إِذَا دَعَاهُ وَیَكۡشِفُ ٱلسُّوۤءَ)
+Atau siapakah yang memperkenankan (doa) orang yang dalam kesulitan apabila ia berdoa kepada-Nya, dan yang menghilangkan kesusahan
+[An-Naml : 62]
+
+Dinukil dari status facebook
+yang ditulis oleh Ustadz Boris Tanesia -Hafizhahullah-
+
+read more : https://web.facebook.com/story.php?story_fbid=10219153604011767&id=1257341801
+
+- [ ] 5-2-21
+
+___ 
+
+### 6. -
 
 ___
 

@@ -1,36 +1,5 @@
 # Post Instagram Random
 
-### Hati yang Tenang
-
-___
-
-Betapa terkadang masalah menimpa seorang hamba,
-Begitu beratnya,
-Sampai-sampai ketika ia menengadahkan tangannya,
-Baru saja ia memulai doa,
-"Ya, Allah..." 
-Bulir air mata sudah mengalir di kedua pipinya.
-Dengan ucapan lirih bercampur tangis, terisak ia berdoa.
-Ia curahkan semua kepada Allah, Tuhannya.
-Entah mengapa, ada ketenangan yang dirasa.
-Setelah ia selesai berdoa kepada-Nya.
-Meski ia belum tahu apa solusi dari masalahnya.
-Hatinya kembali yakin akan ada jalan keluarnya.
-Ia pun bisa tertidur tenang karena yakin Allah pasti 'kan menolongnya.
-(وَقَالَ رَبُّكُمُ ٱدۡعُونِیۤ أَسۡتَجِبۡ لَكُمۡۚ )
-Dan Tuhanmu berfirman, "Berdoalah kepada-Ku, niscaya akan Kuperkenankan bagimu." [Ghafir : 60]
-(أَمَّن یُجِیبُ ٱلۡمُضۡطَرَّ إِذَا دَعَاهُ وَیَكۡشِفُ ٱلسُّوۤءَ)
-Atau siapakah yang memperkenankan (doa) orang yang dalam kesulitan apabila ia berdoa kepada-Nya, dan yang menghilangkan kesusahan
-[An-Naml : 62]
-
-Dinukil dari status facebook
-yang ditulis oleh Ustadz Boris Tanesia -Hafizhahullah- 
-
-read more :
-https://web.facebook.com/story.php?story_fbid=10219153604011767&id=1257341801
-
-- [ ] notposted
-
 ___ 
 
 ### Lupa Akan Tujuan Penciptaan
@@ -58,26 +27,6 @@ https://web.facebook.com/story.php?story_fbid=10219134756060580&id=1257341801
 
 ___ 
 
-### Terbuai Tipu Daya
-
-___
-
-Al-Hafizh Al-Dzahaby -rahimahullah- berkata,
-"Setiap orang yang tidak takut masuk neraka maka ia orang yang terbuai tertipu daya, dengan sebabnya sungguh ia telah merasa aman akan Makar Allah."
-Siyar A'lamunnubala' 6/291.
-Peruntukannya dikhususkan atas orang yang rajin ibadah bukan atas orang yang bejat, sebab orang yang bejat biasanya sudah tau dirinya pendosa, pintu taubat lebih mudah untuk ia ketuk.
-Sementara yang rajin ibadah -kecuali yang dirahmati Allah- kerap lupa dirinya pendosa dan cendrung melihat dirinya baik.
-
-Dinukil dari status facebook
-yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit penyesuaian
-
-read more :
-https://web.facebook.com/story.php?story_fbid=3647133375354273&id=100001729388129
-
-- [ ] notposted
-
-___ 
-
 ### Luasnya Ampunan Dari Allah
 
 ___
@@ -97,40 +46,6 @@ read more : https://hadits.in/muslim/2052
 penjelasan : https://www.youtube.com/watch?v=3-B0L3D9fSA
 
 - [ ] notposted
-
-___ 
-
-### Sebaik-baik Orang
-
-___
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-"Seluruh anak Adam berdosa, dan sebaik-baik orang yang berdosa adalah yang bertaubat"
-
-HR Ibnu Maajah no 4241, dihasankan oleh Syaikh Al-Albani
-Dinukil dari laman Firanda.com dalam artikel berjudul "Faedah Istigfar dan Taubat"
-yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah-
-
-read more : https://firanda.com/693-faedah-istigfar-dan-taubat.html
-
-- [ ] notposted
-
-___ 
-
-### Menghapus Kejelekan
-
-___
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-"ikutkanlah kejelekan dengan kebaikan, niscaya kebaikan akan menghapuskannya"
-
-HR. Tirmidzi no. 1987. Imam At-Tirmidzi mengatakan bahwa hadits ini hasan shahih.
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Aku Ingin Bertaubat Tetapi"
-yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
-
-read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
-
-- [ ] notpostedelse
 
 ___ 
 
@@ -406,8 +321,6 @@ Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Barangsiapa yang tidak meninggalkan perkataan dusta malah mengamalkannya, maka Allah tidak butuh dari rasa lapar dan haus yang dia tahan"
 
-
-
 HR. Bukhari
 Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
 
@@ -422,8 +335,6 @@ ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Tidaklah puasa itu hanya sekedar menahan dari makan dan minum. Akan tetapi, hakikat puasa adalah menahan diri dari ucapan kotor dan sia-sia"
-
-
 
 HR. Ibnu Khuzaimah dalam kitab Shahihnya no. 1996
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-2"
@@ -440,8 +351,6 @@ Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Jika ada seseorang yang mencacimu dan berbuat usil kepadamu, maka ucapkanlah, Saya sedang berpuasa, saya sedang berpuasa.” 
 
-
-
 HR. Ibnu Khuzaimah dalam kitab Shahihnya no. 1996
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-2"
 
@@ -457,15 +366,11 @@ Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Barangsiapa yang tidak niat berpuasa sebelum fajar terbit, maka puasanya tidak sah"
 
-
-
 HR. An-Nasa'i dan Ahmad, Shahih
 
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-1"
 
 read more : https://muslim.or.id/39997-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-1.html
-
-
 
 ---
 
@@ -476,8 +381,6 @@ read more : https://muslim.or.id/39997-beberapa-kesalahan-yang-tersebar-di-bulan
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
-
-
 
 HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
 
