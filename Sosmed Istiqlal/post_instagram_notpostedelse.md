@@ -326,6 +326,10 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apaka
 
 read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
 
+
+
+Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
+
 ___
 
 ### Hakikat Puasa
@@ -387,5 +391,135 @@ HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
 
 read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
+
+---
+
+### Jujur Yang Menenangkan Jiwa
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Tinggalkanlah yang meragukanmu pada apa yang tidak meragukanmu. Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
+
+HR. Tirmidzi no. 2518 dan Ahmad 1: 200. Al-Hafizh Abu Thahir mengatakan bahwa sanad hadits ini shahih
+
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
+
+read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
+
+---
+
+### Dua Kebahagiaan
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Bagi orang yang berpuasa ada dua kebahagiaan. Kebahagiaan ketika ia berbuka dan kebahagiaan ketika ia bertemu Rabb-Nya"
+
+HR. Bukhari & Muslim
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html#a_Disunnahkan_menyegerakan_berbuka
+
+---
+
+### Meraih Kebaikan Dengan Segera Berbuka
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Manusia senantiasa dalam kebaikan selama mereka menyegerakan berbuka"
+
+HR. Ibnu Majah, Di shahihkan Syaikh Al-Albani
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html#a_Disunnahkan_menyegerakan_berbuka
+
+---
+
+### Berbukanya Nabi -Shallallahu 'Alaihi Wasallam-
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Biasanya Rasulullah Shallallahu’alaihi Wasallam berbuka puasa dengan ruthab (kurma segar) sebelum shalat. Jika beliau tidak punya ruthab, maka dengan tamr (kurma kering), jika beliau tidak punya tamr, maka dengan beberapa teguk air"
+
+HR. Abu Daud no.2356, dishahihkan Syaikh Al-Albani
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html#a_Disunnahkan_menyegerakan_berbuka
+
+---
+
+### Do'a Berbuka Puasa
+
+---
+
+biasanya Rasulullah Shallallahu’alaihi Wasallam jika berbuka beliau berdoa:
+
+ذهب الظمأ وابتلت العروق وثبت الأجر إن شاء الله
+
+"dzahabazh zhama’u wabtallatil ‘uruuqu wa tsabatal ajru insya Allah (telah hilang rasa haus, telah basah kerongkongan, dan telah diraih pahala insya Allah)"
+
+HR. Abu Daud no.2357, An Nasa-i no.3315, dishahihkan Al Albani
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html#a_Disunnahkan_menyegerakan_berbuka
+
+---
+
+### Memperbanyak Do'a Di Ramadhan
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
+
+HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : [Sunnah-Sunnah Ketika Berbuka Puasa](https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html)
+
+---
+
+### Memperbanyak Do'a Di Ramadhan
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
+
+HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : [Sunnah-Sunnah Ketika Berbuka Puasa](https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html)
+
+---
+
+### Memperbanyak Do'a Di Ramadhan
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
+
+HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : [Sunnah-Sunnah Ketika Berbuka Puasa](https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html)
 
 ---
