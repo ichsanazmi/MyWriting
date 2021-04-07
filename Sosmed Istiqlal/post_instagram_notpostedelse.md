@@ -326,8 +326,6 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apaka
 
 read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
 
-
-
 Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
 
 ___
