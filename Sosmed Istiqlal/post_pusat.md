@@ -2755,6 +2755,7 @@ read more : [Arti Laa Hawla wa Laa Quwwata Illa Billah | Rumaysho.Com](https://r
   yang ditulis oleh Ustadz Muhamad Fajri, M.Pd.I -Hafizhahullah- dengan sedikit penyesuaian
   
   read more : https://www.facebook.com/fajri1411/posts/1412878952397650
+  
   - [ ] 1-1-21
   
   ---

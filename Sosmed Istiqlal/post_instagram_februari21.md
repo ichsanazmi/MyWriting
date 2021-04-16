@@ -103,36 +103,28 @@ read more : https://web.facebook.com/story.php?story_fbid=10219153604011767&id=1
 
 ___ 
 
-### 6. -
+### 6. Telah Datang Waktunya
 
-___
+---
 
-Rasulullah -shallallahu ‘alaihi wa sallam- bersabda :
-(Do'a) kalian akan diijabahi selagi tidak terburu-buru, dengan mengatakan : Aku telah berdo'a, namun tak kunjung diijabahi
+Telah datang waktunya, ajang untuk saling untuk saling berlomba...
 
-HR. Bukhari No. 5865
-Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
+Dimana tidak ada istilah kalah atau menang atas satu sama lain, yang ada hanyalah beruntung atau merugi
 
-read more : https://hadits.in/bukhari/5865
-
-- [ ] 8-12-20 // repost post juli
+- [ ] 8-2-21 // Ramadhan 
 
 ___ 
 
-### 7. Introspeksi Diri
+### 7. Di Ampuni Yang Telah Lalu
 
-___
+---
 
-Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan,
-Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+Barangsiapa yang berpuasa ramadhan atas dasar iman dan mengharap pahala dari Allah, maka dosanya yang telah lalu akan diampuni
 
-Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bisakah jadi Lebih Baik" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+HR. Bukhari Muslim
 
-read more :
-https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
-
-- [ ] 9-12-20 // repost post juli
+- [ ] 9-2-21 // Ramadhan
 
 ___ 
 
@@ -320,11 +312,13 @@ read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
 ___ 
 
-### 18. Judul
+### 18. Telah Datang Waktunya
 
-___
+---
 
-teks
+Telah datang waktunya, ajang untuk saling untuk saling berlomba...
+
+Dimana tidak ada istilah kalah atau menang atas satu sama lain, yang ada hanyalah beruntung atau merugi
 
 - [ ] 24-12-20
 

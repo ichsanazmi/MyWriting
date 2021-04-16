@@ -261,7 +261,7 @@ Rasulullah -shallallahu 'alaihi wasallam bersabda,
 HR Muslim
 Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan Motivasi Membaca Al-Quran di Bulan Ramadhan" dengan sedikit penyesuaian
 
-read more : [Keutamaan dan Motivasi Membaca Alquran di Bulan Ramadhan | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html)
+read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
 
 - [ ] notposted
 
@@ -327,21 +327,6 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apaka
 read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
 
 Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
-
-___
-
-### Hakikat Puasa
-
----
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Tidaklah puasa itu hanya sekedar menahan dari makan dan minum. Akan tetapi, hakikat puasa adalah menahan diri dari ucapan kotor dan sia-sia"
-
-HR. Ibnu Khuzaimah dalam kitab Shahihnya no. 1996
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-2"
-
-read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
 
 ---
 
@@ -436,41 +421,7 @@ HR. Ibnu Majah, Di shahihkan Syaikh Al-Albani
 
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
 
-read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html#a_Disunnahkan_menyegerakan_berbuka
-
----
-
-### Berbukanya Nabi -Shallallahu 'Alaihi Wasallam-
-
----
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Biasanya Rasulullah Shallallahu’alaihi Wasallam berbuka puasa dengan ruthab (kurma segar) sebelum shalat. Jika beliau tidak punya ruthab, maka dengan tamr (kurma kering), jika beliau tidak punya tamr, maka dengan beberapa teguk air"
-
-HR. Abu Daud no.2356, dishahihkan Syaikh Al-Albani
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
-
-read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html#a_Disunnahkan_menyegerakan_berbuka
-
----
-
-### Do'a Berbuka Puasa
-
----
-
-biasanya Rasulullah Shallallahu’alaihi Wasallam jika berbuka beliau berdoa:
-
-ذهب الظمأ وابتلت العروق وثبت الأجر إن شاء الله
-
-"dzahabazh zhama’u wabtallatil ‘uruuqu wa tsabatal ajru insya Allah (telah hilang rasa haus, telah basah kerongkongan, dan telah diraih pahala insya Allah)"
-
-HR. Abu Daud no.2357, An Nasa-i no.3315, dishahihkan Al Albani
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
-
-read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html#a_Disunnahkan_menyegerakan_berbuka
+read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
 ---
 

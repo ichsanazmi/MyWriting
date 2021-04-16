@@ -4,11 +4,11 @@
 
 ___
 
-Telah datang waktunya, ajang untuk saling berlomba.
+Telah datang waktunya, ajang untuk saling untuk saling berlomba...
 
-Dimana tidak ada istilah kalah atau menang, yang ada hanyalah beruntung atau merugi
+Dimana tidak ada istilah kalah atau menang atas satu sama lain, yang ada hanyalah beruntung atau merugi
 
-- [ ] 1 Ramadhan
+- [x] 1 Ramadhan
 
 ___ 
 
@@ -33,11 +33,11 @@ Barangsiapa yang berpuasa ramadhan atas dasar iman dan mengharap pahala dari All
 
 HR. Bukhari Muslim
 
-- [ ] 3 Ramadhan
+- [x] 3 Ramadhan
 
 ___ 
 
-### 4. Hasil Kondisimu dengan Allah
+### 4. Keutamaan Shalat Tarawih
 
 ___
 
@@ -46,7 +46,7 @@ Barangsiapa sholat (tarawih) di bulan ramadhan atas dasar iman dan mengharap pah
 
 HR. Bukhari Muslim
 
-- [ ] 4 Ramadhan
+- [x] 4 Ramadhan
 
 ___ 
 
@@ -78,43 +78,42 @@ dan pahala telah ditetapkan insya Allah
 HR Abu Daud no. 2357, dari Ibnu Umar, Syaikh Al-Albani berkata hadits ini
 hasan
 
-- [ ] 6 Ramadhan
+- [x] 6 Ramadhan
 
 ___ 
 
-### 7. Introspeksi Diri
+### 7. Berbukanya Nabi -Shallallahu 'Alaihi Wasallam-
 
-___
+---
 
-Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan,
-Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
-Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bisakah jadi Lebih Baik" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
+"Biasanya Rasulullah Shallallahu’alaihi Wasallam berbuka puasa dengan ruthab (kurma segar) sebelum shalat. Jika beliau tidak punya ruthab, maka dengan tamr (kurma kering), jika beliau tidak punya tamr, maka dengan beberapa teguk air"
 
-read more :
-https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+HR. Abu Daud no.2356, dishahihkan Syaikh Al-Albani
 
-- [ ] 9-12-20 // repost post juli
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
+
+- [ ] 7 ramadhan
 
 ___ 
 
-### 8. Warisan Para Nabi
+### 8. Hakikat Puasa
 
-___
+---
 
-Rasulullah -shallallahu 'alaihi wasallam- bersabda :
-إِنَّ الأَنْبِيَاءَ لَمْ يُوَرِّثُوا دِينَارًا وَلاَ دِرْهَمًا إِنَّمَا وَرَّثُوا الْعِلْمَ فَمَنْ أَخَذَ بِهِ أَخَذَ بِحَظٍّ وَافِرٍ
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
-“Sesungguhnya para Nabi tidak mewariskan dinar dan dirham, mereka hanyalah mewariskan ilmu. Barangsiapa yang mengambilnya, maka dia telah memperoleh keberuntungan yang banyak."
+"Tidaklah puasa itu hanya sekedar menahan dari makan dan minum. Akan tetapi, hakikat puasa adalah menahan diri dari ucapan kotor dan sia-sia"
 
-HR Abu Dawud no. 3641 dan Tirmidzi no. 2682, Shahih
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Islam"
-yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
+HR. Ibnu Khuzaimah dalam kitab Shahihnya no. 1996
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-2"
 
-read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
+read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
 
-- [ ] 10-12-20 // repost post agustus
+- [ ] 8 Ramadhan
 
 ___ 
 
