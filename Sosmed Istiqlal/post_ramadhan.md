@@ -55,11 +55,15 @@ ___
 ___
 
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-Manusia senantiasa dalam kebaikan selama mereka menyegerakan berbuka
+Manusia senantiasa berada dalam kebaikan selama mereka menyegerakan waktu berbuka
 
-HR. Bukhari
+HR. Bukhari Muslim
 
-- [ ] 5 Ramadhan
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Menyegerakan Waktu Buka Puasa"
+
+read more : https://rumaysho.com/3435-menyegerakan-waktu-buka-puasa.html
+
+- [x] 5 Ramadhan
 
 ___ 
 
@@ -96,7 +100,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketik
 
 read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
-- [ ] 7 ramadhan
+- [x] 7 ramadhan
 
 ___ 
 
@@ -113,231 +117,276 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan 
 
 read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
 
-- [ ] 8 Ramadhan
+- [x] 8 Ramadhan
 
 ___ 
 
-### 9. Ilmu Sebelum Amal
+### 9. Tetap Membaca Al-Quran
+
+---
+
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Orang yang lancar membaca Alquran akan bersama malaikat utusan yang mulia lagi berbakti, sedangkan orang yang membaca Alquran dengan tersendat-sendat lagi berat, maka ia akan mendapatkan dua pahala (karena telah membaca dan bersusah payah -ed).”
+
+HR Muslim
+Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan Motivasi Membaca Al-Quran di Bulan Ramadhan" dengan sedikit penyesuaian
+
+read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
+
+- [ ] 9 Ramadhan
 
 ___
 
-'Umar bin 'Abdul 'Aziz -rahimahullah- berkata :
-مَنْ عَبَدَ اللهَ بِغَيْرِ عِلْمٍ كَانَ مَا يُفْسِدُ أَكْثَرَ مِمَّا يُصْلِحُ
+### 10. Puasa Sehari
 
-“Barangsiapa yang beribadah kepada Allah tanpa ilmu, maka dia akan membuat banyak kerusakan daripada mendatangkan kebaikan.” 
-
-Al Amru bil Ma’ruf, hal. 15
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Islam"
-yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
-
-read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
-
-- [ ] 11-12-20 // repost post agustus
-
-___ 
-
-### 10. Tawakkal Kepada Allah
-
-___
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda :
-Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.” 
-
-HR. Ahmad, Tirmidzi, An-Nasai, Ibnu Majah, Ibnu Hibban dalam kitab sahihnya, dan Al-Hakim. Tirmidzi mengatakan bahwa hadits ini hasan sahih
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Kunci Rezeki Itu Tawakkal Kepada Allah (Hadits Jami'ul 'Ulum wal Hikam #49"
-yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
-
-read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
-
-- [ ] 14-12-20 // repost post agustus
-
-___ 
-
-### 11. Andai Ia Meninggalkan Bau
-
-___
-
-Muhammad bin Wasi’ -rahimahullah- berkata,
-
-لَوْ كَانَ لِلذُّنُوْبِ رِيْحٌ مَا قَدَرَ أَحَدٌ أَنْ يَجْلِسَ إِلَيَّ
-
-Andaikan dosa itu memiliki bau, tentu tidak ada dari seorang pun yang ingin duduk dekat-dekat denganku.
-
-Muhasabah An-Nafs, hlm. 37. Lihat A’mal Al-Qulub,hlm. 373
-Dinukil dari laman Rumaysho.com dalam artikel yang berjudul "Bisakah jadi Lebih Baik" yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
-
-read more :
-https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
-
-- [ ] 15-12-20 // repost post juli
-
-___ 
-
-### 12. Teman Seiman Selalu Berbaik Sangka
-
-___
-
-Suatu ketika Imam Asy-Syafi'i rahimahullah sakit, lalu sebagian teman-temannya datang membesuknya, ia berkata kepada Imam Asy-syafi'i; "Semoga Allah menguatkan kelemahanmu". 
-
-Imam Asy-syafi'i berkata; "Jika kelemahanku menguat niscaya akan membunuhku,"
-
-Ia berkata; "Wallahi tiadalah maksudku kecuali kebaikan,"
-
-Imam Asy-syafi'i berkata; "Aku tahu itu, sesungguhnya jika kamu mencacimakiku sekalipun maka tiadalah yang kamu maksudkan kecuali kebaikan"
-
-Adab Asyyafi'i Wa Manaqibih karya Ibnu Abi Hatim Hal. 209
-Dinukil dari Ustadz Musa Mulyadi Luqman, Lc. via WhatsApp dengan sedikit penyesuaian
-
-- [ ] 16-12-20
-
-___ 
-
-### 13. Tanda Kebahagiaan
-
-___
-
-Syaikh Muhammad At-Tamimy -rahimahullah- berkata tentang tanda kebaikan :
-
-1. Jika diberi kenikmatan, dia bersyukur
-2. Jika diuji dengan ditimpa musibah, dia bersabar
-3. dan jika melakukan dosa, dia beristighfar(bertaubat)
-   Maka tiga hal ini adalah tanda kebahagiaan
-
-Matn Qowaidul Arba'
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "tanda-tanda kebahagiaan yang sejati"
-yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
-
-read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
-
-- [ ] 17-12-20
-
-___ 
-
-### 14. Kekayaan Sejati
-
-___
-
-Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-
-لَيْسَ الْغِنَى عَنْ كَثْرَةِ الْعَرَضِ ، وَلَكِنَّ الْغِنَى غِنَى النَّفْسِ
-
-Yang namanya kaya (ghina’), bukanlah dengan banyaknya harta (atau banyaknya kemewahan dunia). Namun yang namanya ghina’ adalah hati yang selalu merasa cukup
-
-HR. Bukhari dan Muslim
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "tanda-tanda kebahagiaan yang sejati"
-yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
-
-read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
-
-- [ ] 18-12-20
-
-___ 
-
-### 15. Membaca Al-Kahfi di Siang Hari
-
-___
+---
 
 Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
-Siapa yang membaca surat Al-Kahfi pada hari Jumat, maka ia akan disinari cahaya di antara dua Jumat.
+Barangsiapa melakukan puasa satu hari di jalan Allah (dalam melakukan ketaatan pada Allah), maka Allah akan menjauhkannya dari neraka sejauh perjalanan 70 tahun
 
-HR. An-Nasa-i, dinilai sahih oleh Al-Albani di dalam Ash-Shahihah
-Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
-yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
+HR. Bukhari
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Keutamaan Puasa"
+yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
 
-read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
+read more : https://rumaysho.com/7414-keutamaan-puasa.html
 
-- [ ] 21-12-20
-
-___ 
-
-### 16. Membaca Al-Kahfi Di Malam Hari
-
-___
-
-Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
-Siapa yang membaca surat Al-Kahfi pada malam Jumat maka ia akan disinari cahaya antara dia dan Baitul Atiq (yaitu Kabah).
-
-HR. Ad-Darimi, dinyatakan sahih oleh Al-Albani di dalam Ash-Shahihah
-Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
-yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
-
-read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
-
-- [ ] 22-12-20
+- [ ] 10 Ramadhan
 
 ___ 
 
-### 17. Makna Cahaya di Hadits Al-kahfi
+### 11. Syafaat Bagi Pembacanya
 
-___
+---
 
-Yang dimaksud cahaya di dalam hadis tersebut sebagaimana yang dijelaskan dalam Misykah al-Mashabih dan kitab-kitab syarh hadis lainnya ialah cahaya hati, cahaya di alam kubur, atau cahaya kala dibangkitkan kelak. Ada juga yang berpendapat bahwa yang dimaksud adalah cahaya hidayah dan cahaya keimanan.
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Bacalah Al-Quran, karena ia akan datang pada hari kiamat memberikan syafaat kepada pembacanya.”
 
-Dinukil dari laman Kristal Ilmu dalam artikel yang berjudul "Agar Meraih Cahaya di Antara Dua Jum'at"
-yang ditulis Ustadz Roni Nuryusmansyah
+HR Muslim
+Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan Motivasi Membaca Al-Quran di Bulan Ramadhan" dengan sedikit penyesuaian
 
-read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
+read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
 
-- [ ] 23-12-20
-
-___ 
-
-### 18. Judul
-
-___
-
-teks
-
-- [ ] 24-12-20
+- [x] 11 Ramadhan
 
 ___ 
 
-### 19. Judul
+### 12. Kemuliaan Ramadhan
 
-___
+---
 
-teks
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Jika telah datang bulan Ramadhan, pintu-pintu surga dibuka, pintu-pintu neraka ditutup, dan setan-setan terbelenggu"
 
-- [ ] 25-12-20
+Mutafaqqun 'Alaihi
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Istirahat Yang Berpahala"
+
+read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html
+
+- [ ] 12 Ramadhan
 
 ___ 
+
+### 13. Makna Terbukanya Pintu Syurga
+
+---
+
+Al-Qodhi Iyadh -Rahimahullah- berkata,
+"Juga dapat bermakna terbukanya pintu surga karena Allah memudahkan berbagai ketaatan pada hamba-Nya di bulan Ramadhan seperti puasa dan shalat malam. Hal ini berbeda dengan bulan-bulan lainnya. Di bulan Ramadhan, orang akan lebih sibuk melakukan kebaikan daripada melakukan maksiat. Inilah sebab mereka dapat memasuki surga dan pintunya. Sedangkan tertutupnya pintu neraka dan terbelenggunya setan, inilah yang mengakibatkan seseorang mudah menjauhi maksiat ketika itu.
+
+Syarh Shahih Muslim, 7:167
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Kenapa Maksiat Masih Terjadi Padahal Setan Diikat di Bulan Ramadhan"
+
+read more : https://rumaysho.com/11168-kenapa-maksiat-masih-terjadi-padahal-setan-diikat-di-bulan-ramadhan.html
+
+- [ ] 13 Ramadhan
+
+___ 
+
+### 14. Dusta Saat Puasa
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Barangsiapa yang tidak meninggalkan perkataan dusta malah mengamalkannya, maka Allah tidak butuh dari rasa lapar dan haus yang dia tahan"
+
+HR. Bukhari
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
+
+read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
+
+Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
+
+- [ ] 14 Ramadhan
+
+___ 
+
+### 15. Berniat Untuk Puasa Ramadhan
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Barangsiapa yang tidak niat berpuasa sebelum fajar terbit, maka puasanya tidak sah"
+
+HR. An-Nasa'i dan Ahmad, Shahih
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-1"
+
+read more : https://muslim.or.id/39997-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-1.html
+
+- [ ] 15 Ramadhan
+
+___ 
+
+### 16. Menghindari Cacian dan Perkelahian
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Jika ada seseorang yang mencacimu dan berbuat usil kepadamu, maka ucapkanlah, Saya sedang berpuasa, saya sedang berpuasa.”
+
+HR. Ibnu Khuzaimah dalam kitab Shahihnya no. 1996
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-2"
+
+read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
+
+- [ ] 16 Ramadhan
+
+---
+
+### 17. Memperbanyak Do'a Di Ramadhan
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
+
+HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
+
+- [ ] 17 Ramadhan
+
+---
+
+### 18. Dua Kebahagiaan
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Bagi orang yang berpuasa ada dua kebahagiaan. Kebahagiaan ketika ia berbuka dan kebahagiaan ketika ia bertemu Rabb-Nya"
+
+HR. Bukhari & Muslim
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+
+read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html#a_Disunnahkan_menyegerakan_berbuka
+
+- [ ] 18 Ramadhan
+
+---
+
+### 19. Dusta Saat Puasa
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Barangsiapa yang tidak meninggalkan perkataan dusta malah mengamalkannya, maka Allah tidak butuh dari rasa lapar dan haus yang dia tahan"
+
+HR. Bukhari
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
+
+read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
+
+Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
+
+- [ ] 19 Ramadhan
+
+---
 
 ### 20. Judul
 
-___
+---
 
 teks
 
-- [ ] 28-12-20
+- [ ] 20 Ramadhan
 
-___ 
+---
 
 ### 21. Judul
 
-___
+---
 
 teks
 
-- [ ] 29-12-20
+- [ ] 21 Ramadhan
 
-___ 
+---
 
 ### 22. Judul
 
-___
+---
 
 teks
 
-- [ ] 30-12-20
+- [ ] 22 Ramadhan
 
-___ 
+---
 
 ### 23. Judul
 
-___
+---
 
 teks
 
-- [ ] 31-12-20
+- [ ] 23 Ramadhan
 
-___ 
+---
+
+### 24. Judul
+
+---
+
+teks
+
+- [ ] 24 Ramadhan
+
+---
+
+### 25. Judul
+
+---
+
+teks
+
+- [ ] 25 Ramadhan
+
+---
+
+### 26. Judul
+
+---
+
+teks
+
+- [ ] 26 Ramadhan
+
+---
+
+### 27. Judul
+
+---
+
+teks
+
+- [ ] 27 Ramadhan
+
+---

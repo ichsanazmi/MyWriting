@@ -233,70 +233,6 @@ read more : https://ustadzaris.com/istirahat-berpahala
 
 - [ ] notposted
 
-____
-
-### Tetap Membaca Al-Quran
-
----
-
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Orang yang lancar membaca Alquran akan bersama malaikat utusan yang mulia lagi berbakti, sedangkan orang yang membaca Alquran dengan tersendat-sendat lagi berat, maka ia akan mendapatkan dua pahala (karena telah membaca dan bersusah payah -ed).”
-
-HR Muslim
-Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan Motivasi Membaca Al-Quran di Bulan Ramadhan" dengan sedikit penyesuaian
-
-read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
-
-- [ ] notposted
-
----
-
-### Syafaat Bagi Pembacanya
-
----
-
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Bacalah Al-Quran, karena ia akan datang pada hari kiamat memberikan syafaat kepada pembacanya.”
-
-HR Muslim
-Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan Motivasi Membaca Al-Quran di Bulan Ramadhan" dengan sedikit penyesuaian
-
-read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
-
-- [ ] notposted
-
----
-
-### Waktunya Maksimal Beramal
-
----
-
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Jika telah datang bulan Ramadhan, pintu-pintu surga dibuka, pintu-pintu neraka ditutup, dan setan-setan terbelenggu"
-
-Mutafaqqun 'Alaihi
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Istirahat Yang Berpahala"
-
-read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html
-
-- [ ] notposted
-
----
-
-### Makna Terbukanya Pintu Syurga
-
----
-
-Al-Qodhi Iyadh -Rahimahullah- berkata,
-"Juga dapat bermakna terbukanya pintu surga karena Allah memudahkan berbagai ketaatan pada hamba-Nya di bulan Ramadhan seperti puasa dan shalat malam. Hal ini berbeda dengan bulan-bulan lainnya. Di bulan Ramadhan, orang akan lebih sibuk melakukan kebaikan daripada melakukan maksiat. Inilah sebab mereka dapat memasuki surga dan pintunya. Sedangkan tertutupnya pintu neraka dan terbelenggunya setan, inilah yang mengakibatkan seseorang mudah menjauhi maksiat ketika itu.
-
-Syarh Shahih Muslim, 7:167
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Kenapa Maksiat Masih Terjadi Padahal Setan Diikat di Bulan Ramadhan"
-
-read more : https://rumaysho.com/11168-kenapa-maksiat-masih-terjadi-padahal-setan-diikat-di-bulan-ramadhan.html
-
-- [ ] notposted
-
 ---
 
 ### Lelah Itu Pilihan
@@ -310,23 +246,6 @@ Faidah catatan kajian dengan judul "Hidup Adalah Pilihan" oleh Ustadz Abdullah Z
 watch more : https://www.youtube.com/watch?v=j6APADoANR8&t=2080s
 
 - [ ] notposted
-
-___
-
-### Dusta Saat Puasa
-
-___
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Barangsiapa yang tidak meninggalkan perkataan dusta malah mengamalkannya, maka Allah tidak butuh dari rasa lapar dan haus yang dia tahan"
-
-HR. Bukhari
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
-
-read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
-
-Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
 
 ---
 
@@ -390,38 +309,6 @@ HR. Tirmidzi no. 2518 dan Ahmad 1: 200. Al-Hafizh Abu Thahir mengatakan bahwa sa
 Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
 
 read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
-
----
-
-### Dua Kebahagiaan
-
----
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Bagi orang yang berpuasa ada dua kebahagiaan. Kebahagiaan ketika ia berbuka dan kebahagiaan ketika ia bertemu Rabb-Nya"
-
-HR. Bukhari & Muslim
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
-
-read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html#a_Disunnahkan_menyegerakan_berbuka
-
----
-
-### Meraih Kebaikan Dengan Segera Berbuka
-
----
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Manusia senantiasa dalam kebaikan selama mereka menyegerakan berbuka"
-
-HR. Ibnu Majah, Di shahihkan Syaikh Al-Albani
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
-
-read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
 ---
 
