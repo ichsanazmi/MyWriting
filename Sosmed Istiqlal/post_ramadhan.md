@@ -311,13 +311,23 @@ Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits d
 
 ---
 
-### 20. Judul
+### 20. Shalat Semalam Penuh
 
 ---
 
-teks
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
-- [ ] 20 Ramadhan
+"Siapa yang shalat bersama imam sampai ia selesai, maka ditulis untuknya pahala qiyam satu malam penuh"
+
+
+
+HR. Tirmidzi no. 806 dishahihkan At-Tirmidzi dan Syaikh Al-Albani
+
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Ikutilah Imam Shalat Tarawih 23 Rakaat Hingga Selesai"
+
+read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hingga-selesai.html
+
+- [x] 20 Ramadhan
 
 ---
 
