@@ -286,9 +286,11 @@ HR. Bukhari & Muslim
 
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
 
-read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html#a_Disunnahkan_menyegerakan_berbuka
+read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
-- [ ] 18 Ramadhan
+penjelasan : https://youtu.be/ZtgAVjW--g0
+
+- [x] 18 Ramadhan
 
 ---
 
@@ -318,8 +320,6 @@ Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits d
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Siapa yang shalat bersama imam sampai ia selesai, maka ditulis untuknya pahala qiyam satu malam penuh"
-
-
 
 HR. Tirmidzi no. 806 dishahihkan At-Tirmidzi dan Syaikh Al-Albani
 
