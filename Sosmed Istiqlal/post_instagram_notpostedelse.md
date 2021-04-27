@@ -89,23 +89,6 @@ read more : https://rumaysho.com/15759-khutbah-jumat-tujuh-golongan-yang-mendapa
 
 ___ 
 
-### Puasa Sehari
-
-___
-
-Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
-Barangsiapa melakukan puasa satu hari di jalan Allah (dalam melakukan ketaatan pada Allah), maka Allah akan menjauhkannya dari neraka sejauh perjalanan 70 tahun
-
-HR. Bukhari
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Keutamaan Puasa"
-yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://rumaysho.com/7414-keutamaan-puasa.html
-
-- [ ] notpostedelse
-
-___ 
-
 ### Satu Yang Tetap
 
 ___
@@ -246,21 +229,6 @@ Faidah catatan kajian dengan judul "Hidup Adalah Pilihan" oleh Ustadz Abdullah Z
 watch more : https://www.youtube.com/watch?v=j6APADoANR8&t=2080s
 
 - [ ] notposted
-
----
-
-### Menghindari Cacian dan Perkelahian
-
----
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Jika ada seseorang yang mencacimu dan berbuat usil kepadamu, maka ucapkanlah, Saya sedang berpuasa, saya sedang berpuasa.” 
-
-HR. Ibnu Khuzaimah dalam kitab Shahihnya no. 1996
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-2"
-
-read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
 
 ---
 

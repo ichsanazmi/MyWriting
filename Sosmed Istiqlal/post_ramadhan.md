@@ -133,7 +133,7 @@ Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan 
 
 read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
 
-- [ ] 9 Ramadhan
+- [x] 9 Ramadhan
 
 ___
 
@@ -142,7 +142,7 @@ ___
 ---
 
 Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
-Barangsiapa melakukan puasa satu hari di jalan Allah (dalam melakukan ketaatan pada Allah), maka Allah akan menjauhkannya dari neraka sejauh perjalanan 70 tahun
+"Barangsiapa melakukan puasa satu hari di jalan Allah (dalam melakukan ketaatan pada Allah), maka Allah akan menjauhkannya dari neraka sejauh perjalanan 70 tahun"
 
 HR. Bukhari
 Dinukil dari laman Rumaysho dalam artikel yang berjudul "Keutamaan Puasa"
@@ -150,7 +150,7 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit
 
 read more : https://rumaysho.com/7414-keutamaan-puasa.html
 
-- [ ] 10 Ramadhan
+- [ ] 10 Ramadhan // repost juni '20
 
 ___ 
 
@@ -178,7 +178,7 @@ Rasulullah -shallallahu 'alaihi wasallam bersabda,
 "Jika telah datang bulan Ramadhan, pintu-pintu surga dibuka, pintu-pintu neraka ditutup, dan setan-setan terbelenggu"
 
 Mutafaqqun 'Alaihi
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Istirahat Yang Berpahala"
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Ramadhan Tiba Pintu-Pintu Surga Terbuka"
 
 read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html
 
@@ -221,19 +221,18 @@ Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits d
 
 ___ 
 
-### 15. Berniat Untuk Puasa Ramadhan
+### 15. Istirahat Yang Berpahala
 
 ---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+Rasulullah -shallallahu 'alaihi wasallam bersabda,
+"Hendaknya kalian melakukan qoilulah atau istirahat siang karena setan itu tidak beristirahat siang"
 
-"Barangsiapa yang tidak niat berpuasa sebelum fajar terbit, maka puasanya tidak sah"
+Silsilah Shahihah karya Al Albani no 1627
+Dinukil dari laman UstadzAris dalam artikel yang berjudul "Istirahat Yang Berpahala"
+yang ditulis Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
-HR. An-Nasa'i dan Ahmad, Shahih
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-1"
-
-read more : https://muslim.or.id/39997-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-1.html
+read more : https://ustadzaris.com/istirahat-berpahala
 
 - [ ] 15 Ramadhan
 
@@ -294,22 +293,20 @@ penjelasan : https://youtu.be/ZtgAVjW--g0
 
 ---
 
-### 19. Dusta Saat Puasa
+### 19. Sebagaimana Pahala Orang Itu
 
 ---
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
-"Barangsiapa yang tidak meninggalkan perkataan dusta malah mengamalkannya, maka Allah tidak butuh dari rasa lapar dan haus yang dia tahan"
+"Siapa memberi makan orang yang berpuasa, maka baginya pahala seperti orang yang berpuasa tersebut, tanpa mengurangi pahala orang yang berpuasa itu sedikit pun juga"
 
-HR. Bukhari
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
+HR. Tirmidzi No. 807, At-Tirmidzi berkata hadits ini Hasan Shahih
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Pahala Besar di Balik Memberi Makan Berbuka"
 
-read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
+read more : https://rumaysho.com/1147-pahala-besar-di-balik-memberi-makan-berbuka.html
 
-Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
-
-- [ ] 19 Ramadhan
+- [x] 19 Ramadhan
 
 ---
 
@@ -331,33 +328,52 @@ read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hi
 
 ---
 
-### 21. Judul
+### 21. Langkah Kaki yang menghapus Dosa
 
 ---
 
-teks
+Rasulullah shallallahu ‘alaihi wa sallam bersabda,
 
-- [ ] 21 Ramadhan
+“Maukah kalian aku tunjukkan kepada suatu amal yang dapat menghapus kesalahan (dosa) dan meninggikan derajat?” Para sahabat menjawab, ”Ya, wahai Rasulullah.” Rasulullah bersabda, ”(Yaitu) menyempurnakan wudhu dalam kondisi sulit, banyaknya langkah menuju masjid, menunggu shalat setelah mendirikan shalat. Itulah ar-ribath (kebaikan yang banyak).”
 
----
+HR. Muslim no. 251
+Dinukil dari Muslim.or.id dalam artikel berjudul "Keutamaan Berjalan Menuju Masjid"
 
-### 22. Judul
+read more : https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
 
----
-
-teks
-
-- [ ] 22 Ramadhan
+- [x] 21 Ramadhan // repost september '20
 
 ---
 
-### 23. Judul
+### 22. Meski Seteguk Air
 
 ---
 
-teks
+Rasulullah -Shallallahu 'Alaihi wasallam- bersabda,
 
-- [ ] 23 Ramadhan
+"Sahur adalah makanan yang penuh berkah, Oleh karena itu, janganlah kalian meninggalkannya walaupun hanya dengan minum seteguk air, karena sesungguhnya Allah dan para malaikat bershalawat untuk orang-orang yang makan sahur"
+
+HR Ahmad, 3:12, di shahihkan Syaikh Syu'aib Al-Arnauth
+
+Dinukil dari buku Ramadhan Bersama Nabi, karya Ustadz Muhammad Abduh Tuasikal -hafizhahullah-
+
+- [x] 22 Ramadhan
+
+---
+
+### 23. Pintu Surga Khusus Orang Yang Berpuasa
+
+---
+
+"Sesungguhnya di surga ada pintu yang dinamakan Ar-Rayyan. Orang-orang yang berpuasa di hari kiamat masuk dari pintu itu. Tidak dibolehkan seorang pun memasukinya selain mereka..."
+
+HR. Bukhari, 1763. Muslim, 1947
+
+Dinukil dari laman Islamqa dalam artikel "Orang yang Berpuasa Akan Dipanggil Dari Pintu Ar-Rayyan"
+
+read more : https://islamqa.info/id/answers/13934/orang-yang-berpuasa-akan-dipanggil-dari-pintu-ar-rayyan
+
+- [x] 23 Ramadhan
 
 ---
 
@@ -381,11 +397,21 @@ teks
 
 ---
 
-### 26. Judul
+### 26. Khawatir Akan Tidak Sempurnanya Ibadah
 
 ---
 
-teks
+Ibnu Rajab -Rahimahullah- berkata,
+
+"Sebagian salaf menampakkan kesedihan pada hari idul fitri, kemudian dikatakan pada mereka: ‘Hari ini adalah hari kegembiraan dan kesenangan’!"
+
+Mereka menjawab: ‘Kalian benar, akan tetapi aku hanyalah seorang hamba yang diperintahkan oleh Rabb agar beramal. Aku tidak tahu apakah Rabb menerima amalku atau tidak‘”. 
+
+Latha-if Al-Ma’arif 1/209
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sedih Apabila Amalan Tidak Diterima di Bulan Ramadhan"
+
+read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
 
 - [ ] 26 Ramadhan
 

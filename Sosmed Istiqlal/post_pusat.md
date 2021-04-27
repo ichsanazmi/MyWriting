@@ -829,7 +829,7 @@ read more : https://muslim.or.id/54491-agar-aku-sukses-menuntut-ilmu-bag-7-optim
 
 ___
 
-### 12. Langkah Kaki yang menghapus Dosa
+### 12. Langkah Kaki yang menghapus Dosa (1)
 
 Dari Abu Hurairah radhiyallahu ‘anhu, Rasulullah shallallahu ‘alaihi wa sallam bersabda,
 
