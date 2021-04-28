@@ -232,22 +232,6 @@ watch more : https://www.youtube.com/watch?v=j6APADoANR8&t=2080s
 
 ---
 
-### Berniat Untuk Puasa Ramadhan
-
----
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Barangsiapa yang tidak niat berpuasa sebelum fajar terbit, maka puasanya tidak sah"
-
-HR. An-Nasa'i dan Ahmad, Shahih
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-1"
-
-read more : https://muslim.or.id/39997-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-1.html
-
----
-
 ### Memperbanyak Do'a Di Ramadhan
 
 ---
@@ -280,50 +264,50 @@ read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puas
 
 ---
 
-### Memperbanyak Do'a Di Ramadhan
+### Bersaing Dengan Akhirat
 
 ---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+Hasan al-Bashri -rahimahullah- berkata,
 
-"Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
+"Jika Engkau melihat ada seseorang yang menyaingimu dalam masalah dunia, maka saingilah dia dalam masalah akhirat"
 
-HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
+Lathaiful Ma'arif
 
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
 
-read more : [Sunnah-Sunnah Ketika Berbuka Puasa](https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html)
-
----
-
-### Memperbanyak Do'a Di Ramadhan
+read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 
 ---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
-
-HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
-
-read more : [Sunnah-Sunnah Ketika Berbuka Puasa](https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html)
+### Cita-Cita Tinggi
 
 ---
 
-### Memperbanyak Do'a Di Ramadhan
+Syaikh Bakr Abu Zaid -rahimahullah- berkata,
+
+"Di antara akhlak Islam adalah berhias diri dengan cita-cita tinggi, yang menjadi titik sentral dan faktor pendorong bagi dirimu, juga yang mengawasi gerak-gerik badanmu. Cita-cita yang tinggi bisa mendatangkan kebaikan yang tidak terputus dengan izin Allah, agar Engkau bisa mencapai derajat yang sempurna. Cita-cita itu akan mengalirkan darah kesatriaan dalam urat nadimu dan mengayunkan langkah untuk menjalani dunia ilmu dan amal"
+
+Hilyah Thalib Al-Ilm
+
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
+
+read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 
 ---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+### Sebab Semangat Dalam Mencari Ilmu
 
-"Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
+---
 
-HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
+Syaikh Shalih Al-Utsaimin -rahimahullah- berkata,
 
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
+"Cita-cita tinggi inilah jadi sebab seseorang bisa semangat dalam mencari ilmu. Oleh karenanya seorang penuntut ilmu harusnya memiliki suatu target ketika ia belajar. Jangan sampai ia menyia-nyiakan waktu untuk menggapai cita-cita tersebut"
 
-read more : [Sunnah-Sunnah Ketika Berbuka Puasa](https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html)
+Syarh Thalib Al-Ilm
+
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
+
+read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 
 ---
