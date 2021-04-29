@@ -182,7 +182,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Ramadhan Tiba Pintu
 
 read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html
 
-- [ ] 12 Ramadhan
+- [x] 12 Ramadhan
 
 ___ 
 
@@ -269,7 +269,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketik
 
 read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
-- [ ] 17 Ramadhan
+- [x] 17 Ramadhan
 
 ---
 
@@ -377,11 +377,13 @@ read more : https://islamqa.info/id/answers/13934/orang-yang-berpuasa-akan-dipan
 
 ---
 
-### 24. Judul
+### 24. Belajar Ikhlas
 
 ---
 
-teks
+Puasa melatih anda bagaimana mengarahkan cercaan kepada diri sendiri. puasa pun mengajari anda untuk bertanya : " Sampai kapan kemunafikan, kebohongan dan tipuan ini akan berlangsung?" Puasa mengajarkan kepada anda bagaimana anda hanya menginginkan keridhoan Allah saja, dan tidak menginginkan apapun dari selain-Nya.
+
+Dinukil dari buku Manusia Paling Bahagia di Bulan Ramadhan karya 'Abdurrahman al-Yahya, terbitan Pustaka Ibnu Umar
 
 - [ ] 24 Ramadhan
 
