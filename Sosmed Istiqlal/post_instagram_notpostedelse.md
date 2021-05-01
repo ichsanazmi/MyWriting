@@ -264,7 +264,7 @@ read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puas
 
 ---
 
-### Bersaing Dengan Akhirat
+### Bersaing Dalam Masalah Akhirat
 
 ---
 
