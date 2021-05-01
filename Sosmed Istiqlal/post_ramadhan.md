@@ -137,20 +137,21 @@ read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-a
 
 ___
 
-### 10. Puasa Sehari
+### 10. Bersemangat di Waktu Yang Tersisa
 
 ---
 
-Rasulullah -shallallahu ‘alaihi wasallam bersabda : 
-"Barangsiapa melakukan puasa satu hari di jalan Allah (dalam melakukan ketaatan pada Allah), maka Allah akan menjauhkannya dari neraka sejauh perjalanan 70 tahun"
+Ummul Mu'minin 'Aisyah -Radhiallahu Anha- berkata,
 
-HR. Bukhari
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Keutamaan Puasa"
-yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
+Rasulullah -shallallahu ‘alaihi wa sallam- sangat bersungguh-sungguh pada sepuluh hari terakhir dari bulan Ramadhan, melebihi kesungguhan beliau di waktu yang lainnya.” 
 
-read more : https://rumaysho.com/7414-keutamaan-puasa.html
+HR. Muslim
 
-- [ ] 10 Ramadhan // repost juni '20
+Dinukil dari laman Muslim.or.id dari artikel yang berjudul "Lailatul Qadar dan I'tikaf"
+
+Read more : https://muslim.or.id/356-lailatul-qadar-dan-itikaf.html
+
+- [ ] 10 Ramadhan 
 
 ___ 
 
@@ -186,17 +187,20 @@ read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.ht
 
 ___ 
 
-### 13. Makna Terbukanya Pintu Syurga
+### 13. Menahan Lisan dari Ghibah
 
 ---
 
-Al-Qodhi Iyadh -Rahimahullah- berkata,
-"Juga dapat bermakna terbukanya pintu surga karena Allah memudahkan berbagai ketaatan pada hamba-Nya di bulan Ramadhan seperti puasa dan shalat malam. Hal ini berbeda dengan bulan-bulan lainnya. Di bulan Ramadhan, orang akan lebih sibuk melakukan kebaikan daripada melakukan maksiat. Inilah sebab mereka dapat memasuki surga dan pintunya. Sedangkan tertutupnya pintu neraka dan terbelenggunya setan, inilah yang mengakibatkan seseorang mudah menjauhi maksiat ketika itu.
+Abu Al-'Aliyah (Ulama Tabi'in dari Bashrah) -rahimahullah- berkata,
+"Orang yang puasa ada dalam ibadah selama ia tidak ghibah." 
 
-Syarh Shahih Muslim, 7:167
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Kenapa Maksiat Masih Terjadi Padahal Setan Diikat di Bulan Ramadhan"
 
-read more : https://rumaysho.com/11168-kenapa-maksiat-masih-terjadi-padahal-setan-diikat-di-bulan-ramadhan.html
+
+Ibnu Abi Syaibah Dalam Almushannaf 8982
+
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
+
+source : https://www.facebook.com/story.php?story_fbid=3857932424274366&id=100001729388129
 
 - [ ] 13 Ramadhan
 
@@ -385,15 +389,23 @@ Puasa melatih anda bagaimana mengarahkan cercaan kepada diri sendiri. puasa pun 
 
 Dinukil dari buku Manusia Paling Bahagia di Bulan Ramadhan karya 'Abdurrahman al-Yahya, terbitan Pustaka Ibnu Umar
 
-- [ ] 24 Ramadhan
+- [x] 24 Ramadhan
 
 ---
 
-### 25. Judul
+### 25. Berdoa dan Meminta Ampun Pada Waktu Sahur
 
 ---
 
-teks
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Rabb kita Tabaaraka wa Ta’ala turun ke langit dunia pada sepertiga malam terakhir. Kemudian Allah berfirman, “Siapa saja yang berdoa kepada-Ku, maka akan Aku kabulkan. Siapa yang meminta kepada-Ku, maka akan Aku penuhi. Siapa yang meminta ampunan kepada-Ku, maka akan Aku ampuni.”
+
+HR. Bukhari Muslim
+
+Dinukil dari laman Muslim.or.id dari artikel berjudul "Do'a Sepanjang Ramadhan"
+
+read more : https://muslim.or.id/63336-doa-sepanjang-ramadhan.html
 
 - [ ] 25 Ramadhan
 
@@ -419,11 +431,75 @@ read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bu
 
 ---
 
-### 27. Judul
+### 27. Bersaing Dalam Masalah Akhirat
 
 ---
 
-teks
+Hasan al-Bashri -rahimahullah- berkata,
+
+"Jika Engkau melihat ada seseorang yang menyaingimu dalam masalah dunia, maka saingilah dia dalam masalah akhirat"
+
+Lathaiful Ma'arif
+
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
+
+read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
+
+- [ ] 27 Ramadhan
+
+---
+
+### 28. Ampunan Pada Malam Lailatul Qadar
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+Barangsiapa yang berdiri (menunaikan shalat) pada malam Lailatul Qadar dengan 
+(penuh) keimanan dan pengharapan (pahala), maka dosa-dosanya yang telah 
+lalu akan diampuni.” 
+
+HR. Bukhari & Muslim
+
+Dinukil dari laman Muslim.or.id dari artikel berjudul "semoga kita diampuni selama ramadhan"
+
+Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
+
+- [ ] 27 Ramadhan
+
+---
+
+### 29. Celaka dan Merugi
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Celakalah seorang hamba yang mendapati bulan Ramadhan kemudian Ramadhan berlalu dalam keadaan dosa-dosanya belum diampuni.” 
+
+HR. Ahmad, shahih
+
+Dinukil dari laman Muslim.or.id dari artikel berjudul "semoga kita diampuni selama ramadhan"
+
+Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
+
+- [ ] 27 Ramadhan
+
+---
+
+### 29. Bersaing Dalam Masalah Akhirat
+
+---
+
+Hasan al-Bashri -rahimahullah- berkata,
+
+"Jika Engkau melihat ada seseorang yang menyaingimu dalam masalah dunia, maka saingilah dia dalam masalah akhirat"
+
+Lathaiful Ma'arif
+
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
+
+read more : [Muslim Harus Punya Motivasi Tinggi dalam Belajar Agama](https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html)
 
 - [ ] 27 Ramadhan
 

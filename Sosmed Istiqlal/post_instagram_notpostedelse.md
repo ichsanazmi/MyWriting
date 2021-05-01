@@ -264,22 +264,6 @@ read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puas
 
 ---
 
-### Bersaing Dalam Masalah Akhirat
-
----
-
-Hasan al-Bashri -rahimahullah- berkata,
-
-"Jika Engkau melihat ada seseorang yang menyaingimu dalam masalah dunia, maka saingilah dia dalam masalah akhirat"
-
-Lathaiful Ma'arif
-
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
-
-read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
-
----
-
 ### Cita-Cita Tinggi
 
 ---
@@ -309,5 +293,19 @@ Syarh Thalib Al-Ilm
 Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
 
 read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
+
+---
+
+### Judul
+
+---
+
+Ibnu Rajab Al-Hambali -Rahimahullah- berkata,
+
+“Sebagian salaf berkata, “Dahulu mereka (para salaf) berdoa kepada Allah selama 6 bulan agar mereka disampaikan pada bulan Ramadhan. Kemudian mereka juga berdoa selama 6 bulan agar Allah menerima (amalan mereka di bulan Ramadhan).
+
+Latha’if Al-Ma’arif hal. 232
+
+read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
 
 ---
