@@ -20,7 +20,7 @@ Alangkah butanya hati seorang yang tidak mampu bersabar sesaat, dan memilih untu
 
 Bersemilah Ramadhan, Hal 63 Karya Ustadz Armen Halim Naro, Lc. -Rahimahullah-
 
-- [ ] 2 Ramadhan
+- [x] 2 Ramadhan
 
 ___ 
 
@@ -151,7 +151,7 @@ Dinukil dari laman Muslim.or.id dari artikel yang berjudul "Lailatul Qadar dan I
 
 Read more : https://muslim.or.id/356-lailatul-qadar-dan-itikaf.html
 
-- [ ] 10 Ramadhan 
+- [x] 10 Ramadhan 
 
 ___ 
 
@@ -202,7 +202,7 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
 
 source : https://www.facebook.com/story.php?story_fbid=3857932424274366&id=100001729388129
 
-- [ ] 13 Ramadhan
+- [x] 13 Ramadhan
 
 ___ 
 
@@ -221,7 +221,7 @@ read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puas
 
 Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
 
-- [ ] 14 Ramadhan
+- [x] 14 Ramadhan
 
 ___ 
 
@@ -255,7 +255,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan 
 
 read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
 
-- [ ] 16 Ramadhan
+- [x] 16 Ramadhan
 
 ---
 
@@ -427,7 +427,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sedih Apabila Amala
 
 read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
 
-- [ ] 26 Ramadhan
+- [x] 26 Ramadhan
 
 ---
 
@@ -445,7 +445,7 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Moti
 
 read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 
-- [ ] 27 Ramadhan
+- [x] 27 Ramadhan
 
 ---
 
@@ -465,7 +465,7 @@ Dinukil dari laman Muslim.or.id dari artikel berjudul "semoga kita diampuni sela
 
 Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
-- [ ] 27 Ramadhan
+- [x] 27 Ramadhan
 
 ---
 
@@ -483,7 +483,7 @@ Dinukil dari laman Muslim.or.id dari artikel berjudul "semoga kita diampuni sela
 
 Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
-- [ ] 27 Ramadhan
+- [x] 27 Ramadhan
 
 ---
 
@@ -499,7 +499,7 @@ Lathaiful Ma'arif
 
 Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
 
-read more : [Muslim Harus Punya Motivasi Tinggi dalam Belajar Agama](https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html)
+read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 
 - [ ] 27 Ramadhan
 
