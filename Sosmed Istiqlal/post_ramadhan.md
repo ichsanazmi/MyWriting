@@ -187,7 +187,7 @@ read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.ht
 
 ___ 
 
-### 13. Menahan Lisan dari Ghibah
+### 13. Menjaga Pahala Puasa dari Ghibah
 
 ---
 
