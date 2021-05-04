@@ -194,8 +194,6 @@ ___
 Abu Al-'Aliyah (Ulama Tabi'in dari Bashrah) -rahimahullah- berkata,
 "Orang yang puasa ada dalam ibadah selama ia tidak ghibah." 
 
-
-
 Ibnu Abi Syaibah Dalam Almushannaf 8982
 
 Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
@@ -225,18 +223,22 @@ Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits d
 
 ___ 
 
-### 15. Istirahat Yang Berpahala
+### 15. Do'a Ampunan di Lailatul Qadar
 
 ---
 
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Hendaknya kalian melakukan qoilulah atau istirahat siang karena setan itu tidak beristirahat siang"
+Aisyah -radhiallahu 'anha- beliau bertanya kepada Nabi -shallallahu 'alaihi wasallam-
 
-Silsilah Shahihah karya Al Albani no 1627
-Dinukil dari laman UstadzAris dalam artikel yang berjudul "Istirahat Yang Berpahala"
-yang ditulis Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+"Katakan padaku wahai Rasulullah -shallallahu 'alaihi wasallam, apa pendapatmu, jika aku mengetahui suatu malam adalah lailatul qadar. Apa yang aku katakan didalamnya?” Beliau menjawab,”Katakanlah:" Allahumma innaka 'afuwwun,tuhibbul 'afwa fa'fu 'anni.
 
-read more : https://ustadzaris.com/istirahat-berpahala
+artinya : Ya Allah, Engkau Maha Memberikan Maaf dan Engkau suka memberikan maaf (menghapus kesalahan), karenanya maafkanlah aku (hapuslah dosa-dosaku)
+
+
+
+HR. Tirmidzi dan Ibnu Majah,Hadits ini dinilai shahih oleh Al-Albani
+Dinukil dari laman Rumaysho dalam artikel berjudul "Koreksi Do'a Lailatul Qadar"
+
+read more : https://rumaysho.com/499-koreksi-doa-lailatul-qadar.html
 
 - [ ] 15 Ramadhan
 
