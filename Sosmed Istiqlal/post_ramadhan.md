@@ -233,8 +233,6 @@ Aisyah -radhiallahu 'anha- beliau bertanya kepada Nabi -shallallahu 'alaihi wasa
 
 artinya : Ya Allah, Engkau Maha Memberikan Maaf dan Engkau suka memberikan maaf (menghapus kesalahan), karenanya maafkanlah aku (hapuslah dosa-dosaku)
 
-
-
 HR. Tirmidzi dan Ibnu Majah,Hadits ini dinilai shahih oleh Al-Albani
 Dinukil dari laman Rumaysho dalam artikel berjudul "Koreksi Do'a Lailatul Qadar"
 
@@ -489,7 +487,7 @@ Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
 ---
 
-### 29. Bersaing Dalam Masalah Akhirat
+### 30. Bersaing Dalam Masalah Akhirat
 
 ---
 
