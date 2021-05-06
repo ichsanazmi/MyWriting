@@ -457,11 +457,11 @@ Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 Barangsiapa yang berdiri (menunaikan shalat) pada malam Lailatul Qadar dengan 
 (penuh) keimanan dan pengharapan (pahala), maka dosa-dosanya yang telah 
-lalu akan diampuni.” 
+lalu akan diampuni. 
 
 HR. Bukhari & Muslim
 
-Dinukil dari laman Muslim.or.id dari artikel berjudul "semoga kita diampuni selama ramadhan"
+Dinukil dari laman Muslim.or.id dari artikel berjudul "Semoga Kita Diampuni Selama Ramadhan"
 
 Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
