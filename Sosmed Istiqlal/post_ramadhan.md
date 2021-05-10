@@ -238,7 +238,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Koreksi Do'a Lailatul Qadar"
 
 read more : https://rumaysho.com/499-koreksi-doa-lailatul-qadar.html
 
-- [ ] 15 Ramadhan
+- [x] 15 Ramadhan
 
 ___ 
 
@@ -407,7 +407,7 @@ Dinukil dari laman Muslim.or.id dari artikel berjudul "Do'a Sepanjang Ramadhan"
 
 read more : https://muslim.or.id/63336-doa-sepanjang-ramadhan.html
 
-- [ ] 25 Ramadhan
+- [x] 25 Ramadhan
 
 ---
 
@@ -487,20 +487,39 @@ Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
 ---
 
-### 30. Bersaing Dalam Masalah Akhirat
+### 30. Tak Terluput Dari Hari Yang Tersisa
 
 ---
 
-Hasan al-Bashri -rahimahullah- berkata,
+Rasulullah -shallallaahu ‘alaihi wa sallam- bersabda,
 
-"Jika Engkau melihat ada seseorang yang menyaingimu dalam masalah dunia, maka saingilah dia dalam masalah akhirat"
+“Carilah di sepuluh malam terakhir, apabila tidak mampu maka jangan sampai terluput tujuh malam tersisa.” 
 
-Lathaiful Ma'arif
+HR. Bukhari Muslim
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-27 Adalah Malam Lailatul Qadar"
 
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
+read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
 
-read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
-
-- [ ] 27 Ramadhan
+- [x] 27 Ramadhan
 
 ---
+
+### 31. Kemungkinan Besar Datangnya Malam Lailatul Qadar
+
+___
+
+Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
+"Demi Allah aku tahu kapan malam itu, yaitu malam yang kita diperintahkan oleh Rasulullah untuk menghidupkannya, yaitu malam kedua puluh tujuh”
+HR. Muslim
+
+Syaikh Muhammah bin Shalih Al-‘Ustaimin menjelaskan,
+“Malam ke-27 adalah malam yang paling diharapkan sebagai malam lailatul qadar, sebagaimana pada hadits Ubay bin Ka’ab radhiallahu ‘anhu”. 
+http://www.alukah.net/sharia/0/58346
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-27 Adalah Malam Lailatul Qadar"
+
+read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
+
+- [x] 27 Ramadhan
+
+___
