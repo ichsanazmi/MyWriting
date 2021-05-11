@@ -411,7 +411,7 @@ read more : https://muslim.or.id/63336-doa-sepanjang-ramadhan.html
 
 ---
 
-### 26. Khawatir Akan Tidak Sempurnanya Ibadah
+### 26. Khawatir Akan Tidak Diterimanya Amalan
 
 ---
 
