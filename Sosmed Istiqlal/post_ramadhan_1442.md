@@ -531,7 +531,6 @@ ___
 Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 "Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
 
-
 HR. Muslim No. 1164
 
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Puasa Sunnah 6 Hari Di Bulan Syawwal"

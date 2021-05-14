@@ -232,22 +232,6 @@ watch more : https://www.youtube.com/watch?v=j6APADoANR8&t=2080s
 
 ---
 
-### Memperbanyak Do'a Di Ramadhan
-
----
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
-
-HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
-
-read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
-
----
-
 ### Jujur Yang Menenangkan Jiwa
 
 ---

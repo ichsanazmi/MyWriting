@@ -111,7 +111,7 @@ Telah datang waktunya, ajang untuk saling untuk saling berlomba...
 
 Dimana tidak ada istilah kalah atau menang atas satu sama lain, yang ada hanyalah beruntung atau merugi
 
-- [ ] 8-2-21 // Ramadhan 
+- [x] 8-2-21 // Ramadhan 
 
 ___ 
 
@@ -124,7 +124,7 @@ Barangsiapa yang berpuasa ramadhan atas dasar iman dan mengharap pahala dari All
 
 HR. Bukhari Muslim
 
-- [ ] 9-2-21 // Ramadhan
+- [x] 9-2-21 // Ramadhan
 
 ___ 
 
@@ -143,7 +143,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-- [ ] 10-12-20 // repost post agustus
+- [ ] 10-2-21 // repost post agustus
 
 ___ 
 
@@ -162,7 +162,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-- [ ] 11-12-20 // repost post agustus
+- [ ] 11-2-21 // repost post agustus
 
 ___ 
 
@@ -179,7 +179,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
 
-- [ ] 14-12-20 // repost post agustus
+- [ ] 12-2-21 // repost post agustus
 
 ___ 
 
@@ -199,7 +199,7 @@ Dinukil dari laman Rumaysho.com dalam artikel yang berjudul "Bisakah jadi Lebih 
 read more :
 https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
-- [ ] 15-12-20 // repost post juli
+- [ ] 15-2-21 // repost post juli
 
 ___ 
 
@@ -218,7 +218,7 @@ Imam Asy-syafi'i berkata; "Aku tahu itu, sesungguhnya jika kamu mencacimakiku se
 Adab Asyyafi'i Wa Manaqibih karya Ibnu Abi Hatim Hal. 209
 Dinukil dari Ustadz Musa Mulyadi Luqman, Lc. via WhatsApp dengan sedikit penyesuaian
 
-- [ ] 16-12-20
+- [ ] 16-2-21
 
 ___ 
 
@@ -239,7 +239,7 @@ yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
 
 read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
-- [ ] 17-12-20
+- [ ] 17-2-21
 
 ___ 
 
@@ -259,7 +259,7 @@ yang ditulis Ustadz dr. Raehanul Bahraen, M.Sc Sp.Pk -Hafizhahullah-
 
 read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
-- [ ] 18-12-20
+- [ ] 18-2-21
 
 ___ 
 
@@ -276,7 +276,7 @@ yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
 
 read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
-- [ ] 21-12-20
+- [ ] 19-2-21
 
 ___ 
 
@@ -293,7 +293,7 @@ yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
 
 read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
-- [ ] 22-12-20
+- [ ] 22-2-21
 
 ___ 
 
@@ -308,68 +308,48 @@ yang ditulis Ustadz Roni Nuryusmansyah
 
 read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
-- [ ] 23-12-20
+- [ ] 23-2-21
 
 ___ 
 
-### 18. Telah Datang Waktunya
+### 18. Bersegera Dalam Berbuka
 
 ---
 
-Telah datang waktunya, ajang untuk saling untuk saling berlomba...
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+Manusia senantiasa berada dalam kebaikan selama mereka menyegerakan waktu berbuka
 
-Dimana tidak ada istilah kalah atau menang atas satu sama lain, yang ada hanyalah beruntung atau merugi
+HR. Bukhari Muslim
 
-- [ ] 24-12-20
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Menyegerakan Waktu Buka Puasa"
 
-___ 
+read more : https://rumaysho.com/3435-menyegerakan-waktu-buka-puasa.html
 
-### 19. Judul
-
-___
-
-teks
-
-- [ ] 25-12-20
+- [x] 24-2-21 // ramadhan
 
 ___ 
 
-### 20. Judul
+### 19. Bersabar di Ramadhan
 
-___
+---
 
-teks
+Alangkah butanya hati seorang yang tidak mampu bersabar sesaat, dan memilih untuk mereguk kehinaan abadi
 
-- [ ] 28-12-20
+Bersemilah Ramadhan, Hal 63 Karya Ustadz Armen Halim Naro, Lc. -Rahimahullah-
 
-___ 
-
-### 21. Judul
-
-___
-
-teks
-
-- [ ] 29-12-20
+- [x] 25-2-21 // ramadhan
 
 ___ 
 
-### 22. Judul
+### 20. Keutamaan Shalat Tarawih
 
-___
+---
 
-teks
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+Barangsiapa sholat (tarawih) di bulan ramadhan atas dasar iman dan mengharap pahala dari Allah, maka dosanya yang telah lalu akan diampuni
 
-- [ ] 30-12-20
+HR. Bukhari Muslim
 
-___ 
+- [x] 26-2-21 // ramadhan
 
-### 23. Judul
-
-___
-
-teks
-
-- [ ] 31-12-20
-
-___ 
+____
