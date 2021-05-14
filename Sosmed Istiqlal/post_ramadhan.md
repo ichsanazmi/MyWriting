@@ -523,3 +523,21 @@ read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatu
 - [x] 27 Ramadhan
 
 ___
+
+### 32. Keutamaan Puasa Syawwal
+
+---
+
+Rasulullah -Shallallahu 'alahi wasallam- bersabda,
+"Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
+
+
+HR. Muslim No. 1164
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Puasa Sunnah 6 Hari Di Bulan Syawwal"
+
+read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-syawwal.html
+
+- [x] 27 Ramadhan
+
+---
