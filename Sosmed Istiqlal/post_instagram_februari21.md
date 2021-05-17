@@ -7,7 +7,8 @@ ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
 “Tidaklah seorang laki-laki mandi pada hari Jum’at, lalu bersuci semaksimal mungkin, memakai wewangian miliknya atau minyak wangi keluarganya, lalu keluar rumah menuju masjid, dia tidak memisahkan dua orang pada tempat duduknya, lalu dia shalat sebanyak yang dia mampu dan diam mendengarkan khutbah imam, kecuali dia akan diampuni dosa-dosanya yang ada antara Jum’at itu dan Jum’at yang lainnya.” 
-(HR. Bukhari no. 883)
+
+HR. Bukhari no. 883
 
 Dinukil dari Muslim.or.id dalam artikel berjudul "Memperbanyak Sholat Sunnah Sebelum Datangnya Khatib Jumat"
 yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
