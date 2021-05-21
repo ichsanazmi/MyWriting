@@ -15,7 +15,7 @@ yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
 
 read more : https://muslim.or.id/58161-memperbanyak-shalat-sunnah-sebelum-datangnya-khatib-jumat.html
 
-- [ ] 1-2-21 // repost agustus
+- [x] 1-2-21 // repost agustus
 
 ___ 
 
@@ -180,7 +180,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
 
-- [ ] 12-2-21 // repost post agustus
+- [x] 12-2-21 // repost post agustus
 
 ___ 
 
