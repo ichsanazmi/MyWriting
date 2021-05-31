@@ -200,7 +200,7 @@ Dinukil dari laman Rumaysho.com dalam artikel yang berjudul "Bisakah jadi Lebih 
 read more :
 https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
-- [ ] 15-2-21 // repost post juli
+- [x] 15-2-21 // repost post juli
 
 ___ 
 
