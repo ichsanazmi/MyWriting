@@ -83,7 +83,7 @@ Dinukil dari laman Muslim.or.id dari artikel yang berjudul "Lailatul Qadar dan I
 
 Read more : https://muslim.or.id/356-lailatul-qadar-dan-itikaf.html
 
-- [ ] 5-3-21 // ramadhan
+- [x] 5-3-21 // ramadhan
 
 ___ 
 

@@ -293,3 +293,37 @@ Latha’if Al-Ma’arif hal. 232
 read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
 
 ---
+
+### Makan Dengan Tangan Kanan
+
+____
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Jika seseorang dari kalian makan maka makanlah dengan tangan kanannya dan jika minum maka minumlah dengan tangan kanannya. Karena setan makan dan minum dengan tangan kirinya” 
+
+
+
+HR. Muslim no. 2020
+
+read more : https://muslim.or.id/24266-hukum-makan-dan-minum-dengan-tangan-kiri.html
+
+___
+
+### Pintu Surga Bagi Wanita
+
+___
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Apabila seorang wanita mengerjakan shalat lima waktu, mengerjakan puasa di bulan Ramadhan, menjaga kemaluan, dan menaati suami, maka ia akan masuk surga dari pintu mana saja yang ia inginkan” 
+
+
+
+HR. Ibnu Hibban no. 4163. Dishahihkan oleh Al-Albani dalam Shahih at-Targhib no. 2411
+
+read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
+
+___
+
+_
