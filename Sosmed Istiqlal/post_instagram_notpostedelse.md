@@ -2,7 +2,7 @@
 
 ___ 
 
-### Lupa Akan Tujuan Penciptaan
+### Lupa Akan Tujuan Penciptaan 
 
 ___
 
@@ -379,3 +379,6 @@ read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-
 ___
 
 
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMTkzMjExNTE2OV19
+-->
