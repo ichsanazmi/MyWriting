@@ -378,7 +378,13 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Muslim Harus Punya Motivasi 
 read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 ___
 
+### Mengikuti Pemerintah
+___
+Mengikuti arahan Ulama, Pemerintah, dan Medis  dalam hal merenggangkan shaff shalat jamaah di wilayah yang dikhawatirkan rentan penularan bukanlah amalan yang salah dan menyelisihi Assunnah.
+
+Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
+___
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTkzMjExNTE2OV19
+eyJoaXN0b3J5IjpbMTkzODg0OTM5MywxOTMyMTE1MTY5XX0=
 -->
