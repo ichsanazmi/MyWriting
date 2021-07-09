@@ -97,7 +97,7 @@ Jika kita mengabaikan prokes, lantaran khawatir omongan orang nyinyir, lalu akib
 
 Bila demikian, mengapa kita ambil pusing omongan mereka?
 
-Ustadz Abdullah Zaen -hafizhahullah-
+Ustadz Abdullah Zaen, MA-hafizhahullah-
 
 - [x] 8-4-21
 ___
@@ -148,4 +148,211 @@ watch more : https://www.youtube.com/watch?v=j6APADoANR8
 
 - [x] 13-4-21
 
+___
+
+### 10. Sebab Semangat Dalam Mencari Ilmu
+
+___
+
+Syaikh Shalih Al-Utsaimin -rahimahullah- berkata,
+
+"Cita-cita tinggi inilah jadi sebab seseorang bisa semangat dalam mencari ilmu. Oleh karenanya seorang penuntut ilmu harusnya memiliki suatu target ketika ia belajar. Jangan sampai ia menyia-nyiakan waktu dari menggapai cita-cita tersebut"
+
+Syarh Hilyah Thalib Al-Ilm
+
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama" dengan sedikit perubahan dari admin
+
+read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
+
+- [x] 14-4-21
+
+____
+
+### 11. Cita-Cita Tinggi
+
+___
+
+Syaikh Bakr Abu Zaid -rahimahullah- berkata,
+
+"Di antara akhlak Islam adalah berhias diri dengan cita-cita tinggi, yang menjadi titik sentral dan faktor pendorong bagi dirimu, juga yang mengawasi gerak-gerik badanmu. Cita-cita yang tinggi bisa mendatangkan kebaikan yang tidak terputus dengan izin Allah, agar Engkau bisa mencapai derajat yang sempurna. Cita-cita itu akan mengalirkan darah kesatriaan dalam urat nadimu dan mengayunkan langkah untuk menjalani dunia ilmu dan amal"
+
+Hilyah Thalib Al-Ilm
+
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
+
+read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
+
+- [x] 15-4-21
+
+___
+
+### 12. Sebaik-baik persaingan
+___
+Hasan Al-Bashri -rahimahullah- berkata,
+ “Jika Engkau melihat ada seseorang yang menyaingimu dalam masalah dunia, maka saingilah dia dalam masalah akhirat.” 
+Lathaif Al-Ma’arif, hlm. 428
+
+Dinukil dari laman Rumaysho dalam artikel berjudul "Muslim Harus Punya Motivasi Tinggi dalam Belajar Agama"
+read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
+
+-[x] 16-4-21
+
+___
+
+### 13. Efek Buruk Dosa di Dunia
+___
+Efek buruk maksiat di dunia antara lain: menyebabkan rezeki seret. Memunculkan kegelisahan.
+Menimbulkan ketidakharmonisan hubungan.
+Segala urusan menjadi ruwet.
+Melemahkan tubuh dan hati. Mengakibatkan malas beribadah.
+Menghilangkan keberkahan umur.
+Dan masih banyak lagi dampak buruk lain dari maksiat.
+
+Itu baru efek negatifnya di dunia.
+
+Ustadz Abdullah Zaen, Lc. MA. -hafizhahullah-
+
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Menghindari Dampak Buruk Dosa"
+read more: https://muslim.or.id/52803-menghindari-dampak-buruk-dosa.html
+
+- [x] 19-4-21
+___
+
+### 14. Berakhlaq yang Baik
+___
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"berakhlaqlah dengan sesama dengan akhlaq yang baik"
+
+HR. Tirmidzi no. 1987. Imam At-Tirmidzi mengatakan bahwa hadits ini hasan shahih.
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Aku Ingin Bertaubat Tetapi"
+yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
+
+read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
+
+- [x] 20-4-21
+___
+### 15. Kejujuran Yang Menenangkan Jiwa
+
+---
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
+
+HR. Tirmidzi no. 2518 dan Ahmad 1:200. Al-Hafizh Abu Thahir mengatakan bahwa sanad hadits ini shahih
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
+
+read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
+
+- [x] 21-4-21
+___
+### 16. Makan Dengan Tangan Kanan
+
+____
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Jika seseorang dari kalian makan maka makanlah dengan tangan kanannya dan jika minum maka minumlah dengan tangan kanannya. Karena setan makan dan minum dengan tangan kirinya” 
+
+HR. Muslim no. 2020
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Hukum Makan dan Minum Dengan Tangan Kiri"
+
+read more : https://muslim.or.id/24266-hukum-makan-dan-minum-dengan-tangan-kiri.html
+
+- [x] 22-4-21
+___
+### 17. Selalu Memohon Ampun
+
+___
+
+Suatu saat Rasulullah -Shallallahu ‘Alaihi Wasallam- datang saat kami sedang duduk-duduk.
+Beliau bersabda, “Setiap pagi aku pasti selalu beristighfar seratus kali”
+HR. Ibn Abi Syaibah dalam al-Mushannaf dishahihkan Syaikh  al-Albani -rahimahullah-
+
+Inilah kebiasaan harian Rasulullah -Shallallahu ‘alaihi wasallam-.
+Padahal beliau telah diampuni dosa-dosanya oleh Allah dan sudah dijamin masuk surga.
+Bagaimana dengan kita?
+
+Ustadz Abdullah Zaen, Lc. MA. -hafizhahullah-
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Menghindari Dampak Buruk Dosa" dengan sedikit penyuntingan 
+
+read more: https://muslim.or.id/52803-menghindari-dampak-buruk-dosa.html
+
+- [x] 23-4-21
+___
+### 18. Terdepan dalam Berjuang
+Wuhaib bin Warad -rahimahullah- berkata,
+"Jika engkau mampu agar tidak ada seorang pun yang mendahului mu menuju Allah, Maka lakukanlah"
+Lathaif Al-Ma'arif, hlm. 428
+
+Dinukil dari laman Rumaysho dalam artikel berjudul "Muslim Harus Punya Motivasi Tinggi dalam Belajar Agama"
+read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
+
+- [] 26-4-21
+___
+
+### 19. Naungan Allah Bagi Pemuda Shalih
+
+___
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Tujuh golongan yang dinaungi Allâh dalam naungan-Nya pada hari di mana tidak ada naungan kecuali naungan-Nya... (salah satunya) Seorang pemuda yang tumbuh dewasa dalam beribadah kepada Allah"*
+
+"Kenapa disebut pemuda? Karena pemuda asalnya nafsunya begitu tinggi pada dunia dan kebanyakan itu lalai dari akhirat. Kalau ada pemuda yang rajin berjamaah di masjid, rajin menghadiri shalat fajar, akhlaknya pun bagus pada bapak-ibunya, dialah pemuda yang jadi harapan akan mendapatkan naungan Allah pada hari kiamat.
+
+Pemuda seperti itu sangat jarang kita temui saat ini karena kebanyakan pemuda itu lalai, di antara mereka lebih suka bersenang-senang dan berfoya-foya. Ada kesempatan untuk bermain game, atau ngebut-ngebutan di sore hari, atau bermain band, waktu mereka habis untuk hal-hal sia-sia semacam itu, bahkan maksiat pun ada yang dijadikan hobi. Untuk saat ini jarang sekali kita lihat pemuda yang mau sadar untuk ke masjid kecuali yang dirahmati oleh Allah subhanahu wa ta’ala.
+
+Maka pantas saja, Nabi shallallahu ‘alaihi wa sallam memasukkan pemuda yang rajin ibadah dalam golongan yang akan mendapatkan naungan Allah pada hari kiamat."
+
+*HR. Bukhari dan Muslim
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Khutbah Jumat Tujuh Golongan yang Mendapatkan Naungan Allah Pada Hari Kiamat"
+yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://rumaysho.com/15759-khutbah-jumat-tujuh-golongan-yang-mendapatkan-naungan-allah-pada-hari-kiamat.html
+
+- [] 27-4-21
+___
+
+### 20. Tidak Bersegera Dalam Beribadah
+
+___
+
+Rasulullah -shallallahu 'alaihi wasallam- melihat diantara shahabat ada yang mengakhirkan berangkat ke masjid, maka beliau bersabda,
+“Tidaklah suatu kaum mengakhirkan (yaitu menuju masjid) hingga Allah akan mengakhirkan mereka” 
+
+Syaikh Ibnu ‘Utsaimin -rahimahullah- berkata,
+“Oleh karena itu hendaklah orang-orang merasa takut apabila mereka mengakhirkan suatu ibadah, mereka akan diuji dalam bentuk Allah ‘azza wa jalla akhirkan dalam segala bentuk kebaikan”
+
+Ikhtishar Fatawa Ibnu ‘Utsaimin 13/54
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Shaf Pertama"
+
+read more : https://muslim.or.id/7492-keutamaan-shaf-pertama.html
+
+- [] 28-4-21 // repost 25-08-20
+___
+
+### 21. Bersyukur Dahulu
+___
+Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu :
+“Bersyukur dulu baru bisa bahagia
+Bukan menunggu bahagia dulu baru bersyukur”
+
+Dinukil dari laman Muslimafiyah.com dalam artikel berjudul "Penjelasan Makna Doa dan Dzikir Sehari-Hari (1)"
+
+read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
+
+- [] 29-4-21 // repost 9-9-20
+___
+
+### 15. Jujur Yang Menenangkan Jiwa
+
+---
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Tinggalkanlah yang meragukanmu pada apa yang tidak meragukanmu. Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
+
+HR. Tirmidzi no. 2518 dan Ahmad 1: 200. Al-Hafizh Abu Thahir mengatakan bahwa sanad hadits ini shahih
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
+
+read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
+
+- [] 30-4-21
 ___

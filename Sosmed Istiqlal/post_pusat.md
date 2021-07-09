@@ -16,7 +16,7 @@ dalam artikel yang di tulis oleh Ustadz Abdullah Taslim, Lc. MA. -Hafizhahullah-
 
 read more : https://muslim.or.id/20127-bersyukur-ketika-senang-dan-bersabar-ketika-mendapat-bencana.html
 
-- [ ] 20-07-20
+- [x] 20-07-20
 
 ___ 
 
@@ -35,7 +35,7 @@ Nasehat yang menyentuh dari Syaikhunâ, Sulthan bin Abdillah al-'Āmiriy hafizha
 Dinukil dari status facebook Ustadz Abu Sa'id Neno Triyono -Hafizhahullah- ( https://www.facebook.com/abu.s.triyono.5 ).
 Judul dibuat oleh admin
 
-- [ ] 21-07-20
+- [x] 21-07-20
 
 ___ 
 
@@ -59,7 +59,7 @@ dalam artikel yang berjudul "Menjadi Istri yang Menyenangkan Hati Suami" yang di
 
 read more : https://muslim.or.id/57646-menjadi-istri-yang-menyenangkan-hati-suami.html
 
-- [ ] 22-07-20
+- [x] 22-07-20
 
 ___ 
 
@@ -75,7 +75,7 @@ dengan mengatakan :
 'Aku telah berdo'a, namun tak kunjung diijabahi'
 HR. Bukhari No 5865, dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
-- [ ] 23-07-20
+- [x] 23-07-20
 
 ___ 
 
@@ -85,11 +85,11 @@ ___
 
 Rasulullah shallallahu ‘alaihi wa sallam bersabda :
 "Barangsiapa yang Allah kehendaki menjadi baik
-maka Allah faqihkan (memahamkan) dia terhadap agama
-"
+maka Allah faqihkan (memahamkan) dia terhadap agama"
+
 HR. Bukhari No 69, dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
-- [ ] 24-07-20
+- [x] 24-07-20
 
 ___ 
 
@@ -107,7 +107,7 @@ dalam artikel yang ditulis Wiwit Hardi P -semoga Allah menjaga beliau-
 
 read more : https://muslimah.or.id/7233-2-nikmat-yang-banyak-dilalaikan.html
 
-- [ ] 26-07-20
+- [x] 26-07-20
 
 ___ 
 
@@ -120,7 +120,7 @@ Syaikhul Islam Ibnu Taimiyah rahimahullah berkata,
 Majmu' Fatawa, 8/454, Dinukil dari status Ustadz Abu Razin Taufiq -Hafizhahullah-
 (https://www.facebook.com/abu.yusha/)
 
-- [ ] 27-07-20
+- [x] 27-07-20
 
 ___ 
 
@@ -137,7 +137,7 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://muslim.or.id/294-puasa-sunnah.html
 
-- [ ] 28-07-20
+- [x] 28-07-20
 
 ___ 
 
@@ -172,7 +172,7 @@ dalam artikel yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://muslim.or.id/17854-puasa-senin-kamis.html
 
-- [ ] 30-07-20
+- [x] 30-07-20
 
 ___ 
 
@@ -190,7 +190,7 @@ Muhammad Abduh Tuasikal, M.Sc -hafizhahullah- yang berjudul "Lakukanlah Puasa Su
 
 read more : https://rumaysho.com/863-lakukanlah-puasa-sunnah-minimal-sebulan-3-kali.html
 
-- [ ] 31-07-20
+- [x] 31-07-20
 
 ___ 
 
@@ -519,7 +519,7 @@ read more : https://rumaysho.com/17030-mengejar-shaf-pertama.html
 
 ___ 
 
-### 16. Tidak Bersegera Dalam Beribadah
+### 16. Tidak Bersegera Dalam Beribadah (1)
 
 ___
 
@@ -729,7 +729,7 @@ read more : https://hadits.in/muslim/4816
 
 ___
 
-### 7. Bersyukur Dahulu
+### 7. Bersyukur Dahulu (1)
 
 Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu :
 “Bersyukur dulu baru bisa bahagia
