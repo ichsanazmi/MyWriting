@@ -146,5 +146,8 @@ Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 HR. Ibnu Hibban no. 4163. Dishahihkan oleh Al-Albani dalam Shahih at-Targhib no. 2411
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Oleh Lelaki"
 
-read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
+
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbNTQ2NzE3MTkxXX0=
+-->
