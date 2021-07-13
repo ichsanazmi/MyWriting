@@ -160,13 +160,18 @@ Faidah :
 4. Amalan yang kecil saja harus ikhlas, apalagi amalan yang besar.
 Ustadz Abduh Tuasikal, M.Sc -hafizhahullah-
 
-Dinukil dari laman Rumaysho dalam artikel berjudul "Amal Kita Masih Sedikit"
+Dinukil dari laman Rumaysho dalam artikel berjudul "Amal Kita Masih Sedikit" dengan sedikit perubahan
 read more : https://rumaysho.com/28566-amal-kita-masih-sedikit.html
 ___
 ### Judul
 ___
+Rasulullah shallallahu ‘alaihi wa sallam bersabda,
+“Barangsiapa yang mempelajari suatu ilmu (belajar agama) yang seharusnya diharap adalah wajah Allah, tetapi ia mempelajarinya hanyalah untuk mencari harta benda dunia, maka dia tidak akan mendapatkan wangi surga di hari kiamat.” (HR. Abu Daud no. 3664, Ibnu Majah no. 252 dan Ahmad 2: 338. Syaikh Al Albani mengatakan bahwa hadits ini shahih).
 
+
+
+Sumber https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.html
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ1MDU4NzI4NSwtMTQzMDAwOTY5MSw1ND
-Y3MTcxOTFdfQ==
+eyJoaXN0b3J5IjpbNzMxODI3Mjk2LC0xNDMwMDA5NjkxLDU0Nj
+cxNzE5MV19
 -->
