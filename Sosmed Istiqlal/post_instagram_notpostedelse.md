@@ -166,12 +166,15 @@ ___
 ### Judul
 ___
 Rasulullah shallallahu ‘alaihi wa sallam bersabda,
-“Barangsiapa yang mempelajari suatu ilmu (belajar agama) yang seharusnya diharap adalah wajah Allah, tetapi ia mempelajarinya hanyalah untuk mencari harta benda dunia, maka dia tidak akan mendapatkan wangi surga di hari kiamat.” (HR. Abu Daud no. 3664, Ibnu Majah no. 252 dan Ahmad 2: 338. Syaikh Al Albani mengatakan bahwa hadits ini shahih).
+“Barangsiapa yang mempelajari suatu ilmu (belajar agama) yang seharusnya diharap adalah wajah Allah, tetapi ia mempelajarinya hanyalah untuk mencari harta benda dunia, maka dia tidak akan mendapatkan wangi surga di hari kiamat.” 
 
+HR. Abu Daud no. 3664, Ibnu Majah no. 252 dan Ahmad 2: 338. Syaikh Al Albani mengatakan bahwa hadits ini shahih
 
+Dinukil dari laman Rumaysho dalam artikel berjudul "Belajar Agama Hanya Untuk Mencari Dunia"
+read more : https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.html
+___
 
-Sumber https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.html
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzMxODI3Mjk2LC0xNDMwMDA5NjkxLDU0Nj
-cxNzE5MV19
+eyJoaXN0b3J5IjpbLTYxOTEwNTA1NiwtMTQzMDAwOTY5MSw1ND
+Y3MTcxOTFdfQ==
 -->
