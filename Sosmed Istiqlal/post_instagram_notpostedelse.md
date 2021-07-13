@@ -158,12 +158,15 @@ Faidah :
 2. Selalulah merasa kurang dalam beramal, jangan pernah puas dengan yang sedikit.
 3. Ibadah itu harus ikhlas, cari ridha Allah.
 4. Amalan yang kecil saja harus ikhlas, apalagi amalan yang besar.
-Usta
+Ustadz Abduh Tuasikal, M.Sc -hafizhahullah-
 
-Dinukil dari laman Rumaysho
+Dinukil dari laman Rumaysho dalam artikel berjudul "Amal Kita Masih Sedikit"
 read more : https://rumaysho.com/28566-amal-kita-masih-sedikit.html
+___
+### Judul
+___
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NjI2Njg4NDUsLTE0MzAwMDk2OTEsNT
-Q2NzE3MTkxXX0=
+eyJoaXN0b3J5IjpbLTQ1MDU4NzI4NSwtMTQzMDAwOTY5MSw1ND
+Y3MTcxOTFdfQ==
 -->
