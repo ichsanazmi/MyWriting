@@ -150,9 +150,19 @@ ___
 ### Judul
 ___
 Maimun bin Mihran -rahimahullah- berkata,
+"Sungguh Amal kalian itu sedikit, Berbuat ikhlaslah untuk yang sedikit ini"
+(Al-Hilyah Karya Abu Nu'aim, 4:29)
 
+Faidah :
+1. Kita jangan merasa telah beramal banyak.
+2. Selalulah merasa kurang dalam beramal, jangan pernah puas dengan yang sedikit.
+3. Ibadah itu harus ikhlas, cari ridha Allah.
+4. Amalan yang kecil saja harus ikhlas, apalagi amalan yang besar.
+
+Dinukil dari laman
+read more : https://rumaysho.com/28566-amal-kita-masih-sedikit.html
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTAyMzE5NDc1NywtMTQzMDAwOTY5MSw1ND
-Y3MTcxOTFdfQ==
+eyJoaXN0b3J5IjpbNzMzOTYzMjU4LC0xNDMwMDA5NjkxLDU0Nj
+cxNzE5MV19
 -->
