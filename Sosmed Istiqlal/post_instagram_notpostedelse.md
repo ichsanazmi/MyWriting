@@ -148,7 +148,11 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Ole
 
 ___
 ### Judul
+___
+Maimun bin Mihran -rahimahullah- berkata,
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0MzAwMDk2OTEsNTQ2NzE3MTkxXX0=
+eyJoaXN0b3J5IjpbMTAyMzE5NDc1NywtMTQzMDAwOTY5MSw1ND
+Y3MTcxOTFdfQ==
 -->
