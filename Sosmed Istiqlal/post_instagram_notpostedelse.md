@@ -192,12 +192,21 @@ Nabi -Shallallahu 'alaihi wasallam- bersabda,
 "Berdoalah kepada Allah dalam keadaan kalian yakin akan dikabulkan. Ketahuilah bahwa sungguh Allah biasanya tidak mengabulkan doa yang keluar dari hati yang tidak konsentrasi dan lalai"
 
 HR. Tirmidzi, hasan
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agara Do'a dikabulkan bag-2"
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agar Do'a dikabulkan bag-2"
 
 read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.html
 ___
+### Judul
+___
+Di antara tanda tidak hadirnya hati ketika berdoa adalah banyaknya gerakan yang tidak perlu ketika berdoa. Engkau dapati ada orang yang lisannya berucap, namun tangannya sibuk memainkan tanah, atau memegang baju, atau melakukan aktivitas lainnya. Atau Engkau dapati pandangannya menoleh ke kanan dan ke kiri saat berdoa. Itu semua menunjukkan hatinya tidak ikut hadir ketika berdoa. Oleh karena itu, tatkala ‘Umar bin ‘Abdil Aziz Rahimahullah melihat seseorang yang berdoa sambil memainkan kerikil di tangannya, maka beliau berkata kepadanya,
 
+“Tidak bisakah Engkau membuang kerikil itu dan Engkau fokus untuk ikhlas berdoa kepada Allah?” 
+
+Hilyatul Auliyaa’ karya Abu Nu'aim -rahimahullah-
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agar Do'a dikabulkan bag-2"
+read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.html
+___
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5MDAxMzM3NDksLTM1MzA3OTc2LC02MT
+eyJoaXN0b3J5IjpbLTE1Mjk0MzgwMTIsLTM1MzA3OTc2LC02MT
 kxMDUwNTYsLTE0MzAwMDk2OTEsNTQ2NzE3MTkxXX0=
 -->
