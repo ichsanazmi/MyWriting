@@ -187,7 +187,17 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Ingin Jadi Youtuber Terk
 read more : https://muslim.or.id/67391-ingin-jadi-youtuber-terkenal.html
 ___
 ### Judul 
+___
+Nabi -Shallallahu 'alaihi wasallam- bersabda,
+"Berdoalah kepada Allah dalam keadaan kalian yakin akan dikabulkan. Ketahuilah bahwa sungguh Allah biasanya tidak mengabulkan doa yang keluar dari hati yang tidak konsentrasi dan lalai"
+
+HR. Tirmidzi, hasan
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agara Do'a dikabulkan bag-2"
+
+read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.html
+___
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk3MTczMTczNywtMzUzMDc5NzYsLTYxOT
-EwNTA1NiwtMTQzMDAwOTY5MSw1NDY3MTcxOTFdfQ==
+eyJoaXN0b3J5IjpbLTE5MDAxMzM3NDksLTM1MzA3OTc2LC02MT
+kxMDUwNTYsLTE0MzAwMDk2OTEsNTQ2NzE3MTkxXX0=
 -->
