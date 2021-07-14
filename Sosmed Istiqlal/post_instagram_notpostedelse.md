@@ -173,8 +173,20 @@ HR. Abu Daud no. 3664, Ibnu Majah no. 252 dan Ahmad 2: 338. Syaikh Al Albani men
 Dinukil dari laman Rumaysho dalam artikel berjudul "Belajar Agama Hanya Untuk Mencari Dunia"
 read more : https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.html
 ___
+### Judul
+___
+Nabi -Shallallahu 'alaihi wasallam- bersabda,
+"Jauhilah sifat suka dipuji, karena dengan dipuji-puji itu seakan-akan engkau disembelih"
+HR. Ahmad no. 16460, Dishahihkan Syaikh Al-Albani
 
+Al-Munawi -rahimahullah- menjelaskan,
+"Karena senang dipuji akan menjadi penyakit bagi agama orang yang memuji ataupun yang dipuji. Disebut oleh Nabi -shallallahu 'alaihi wasallam- sebagai "disembelih" karena ini akan mematikan hati, sehingga mati pula agamanya. Juga orang yang dipuji seperti disembelih, karena ia akan tertipu dengan sifat ujub dan sombong" 
+Faidhul Qadir, 3/129
+
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Ingin Jadi Youtuber Terkenal"
+read more : https://muslim.or.id/67391-ingin-jadi-youtuber-terkenal.html
+___
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYxOTEwNTA1NiwtMTQzMDAwOTY5MSw1ND
-Y3MTcxOTFdfQ==
+eyJoaXN0b3J5IjpbLTM1MzA3OTc2LC02MTkxMDUwNTYsLTE0Mz
+AwMDk2OTEsNTQ2NzE3MTkxXX0=
 -->
