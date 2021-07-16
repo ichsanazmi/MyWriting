@@ -206,7 +206,22 @@ Hilyatul Auliyaa’ karya Abu Nu'aim -rahimahullah-
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agar Do'a dikabulkan bag-2"
 read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.html
 ___
+### Judul
+___
+Diriwayatkan oleh 'Abdullah bin 'Amr -radhiallahu 'anhu-,
+"Ada seseorang yang berkata,
+Wahai Rasulullah -shallallahu 'alaihi wasallam- menjawab,
+Ucapkanlah seperti yang mereka kumandangkan. Jika telah selesai, maka berdoalah, niscaya akan dikabulkan."
+
+HR. Abu Dawud, hasan
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agar Doa Dikabulkan bag-3"
+
+read more : https://muslim.or.id/66869-kiat-kiat-agar-doa-dikabulkan-bag-3.html
+___
+### Judul
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1Mjk0MzgwMTIsLTM1MzA3OTc2LC02MT
-kxMDUwNTYsLTE0MzAwMDk2OTEsNTQ2NzE3MTkxXX0=
+eyJoaXN0b3J5IjpbLTgwMTg1MjI4MywtMTUyOTQzODAxMiwtMz
+UzMDc5NzYsLTYxOTEwNTA1NiwtMTQzMDAwOTY5MSw1NDY3MTcx
+OTFdfQ==
 -->
