@@ -2,7 +2,7 @@
 
 ___ 
 
-### Lupa Akan Tujuan Penciptaan 
+### Lupa Akan Tujuan Penciptaan
 
 ___
 
@@ -139,6 +139,7 @@ read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bu
 ### Pintu Surga Bagi Wanita
 
 ___
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Apabila seorang wanita mengerjakan shalat lima waktu, mengerjakan puasa di bulan Ramadhan, menjaga kemaluan, dan menaati suami, maka ia akan masuk surga dari pintu mana saja yang ia inginkan” 
@@ -146,7 +147,25 @@ Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 HR. Ibnu Hibban no. 4163. Dishahihkan oleh Al-Albani dalam Shahih at-Targhib no. 2411
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Oleh Lelaki"
 
+read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
+___
+
+### Bersabar Atas Ujian
+
+___
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Sesungguhnya besarnya ganjaran itu sesuai besarnya ujian. Dan sungguh bila Allah Ta'ala mencintai suatu kaum, maka Allah akan mengujinya. Siapa yang ridho akan ujian itu, maka baginya keridhoan Allah. Dan Siapa yang marah atau benci terhadap ujian itu, maka baginya kebencian Allah"
+
+HR. Tirmidzi, hasan
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Bolehkah Menghina Covid19 dengan Kata-Kata Kasar"
+
+read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kata-kasar.html
+
+___
+
+### Judul
 
 <!--stackedit_data:
 eyJoaXN0b3J5IjpbNTQ2NzE3MTkxXX0=

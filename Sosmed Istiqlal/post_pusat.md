@@ -141,7 +141,7 @@ read more : https://muslim.or.id/294-puasa-sunnah.html
 
 ___ 
 
-### 9. Puasa 'Arafah
+### 9. Puasa 'Arafah (1)
 
 ___
 
@@ -3610,6 +3610,7 @@ read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 - [ ] 03-08-20
 
 ___ 
+
 <!--stackedit_data:
 eyJoaXN0b3J5IjpbODI3Mzc5ODIwXX0=
 -->
