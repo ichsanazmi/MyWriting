@@ -16,7 +16,7 @@ dalam artikel yang di tulis oleh Ustadz Abdullah Taslim, Lc. MA. -Hafizhahullah-
 
 read more : https://muslim.or.id/20127-bersyukur-ketika-senang-dan-bersabar-ketika-mendapat-bencana.html
 
-- [x ] 20-07-20
+- [x] 20-07-20
 
 ___ 
 
@@ -35,7 +35,7 @@ Nasehat yang menyentuh dari Syaikhunâ, Sulthan bin Abdillah al-'Āmiriy hafizha
 Dinukil dari status facebook Ustadz Abu Sa'id Neno Triyono -Hafizhahullah- ( https://www.facebook.com/abu.s.triyono.5 ).
 Judul dibuat oleh admin
 
-- [x ] 21-07-20
+- [x] 21-07-20
 
 ___ 
 
@@ -59,7 +59,7 @@ dalam artikel yang berjudul "Menjadi Istri yang Menyenangkan Hati Suami" yang di
 
 read more : https://muslim.or.id/57646-menjadi-istri-yang-menyenangkan-hati-suami.html
 
-- [x ] 22-07-20
+- [x] 22-07-20
 
 ___ 
 
@@ -75,7 +75,7 @@ dengan mengatakan :
 'Aku telah berdo'a, namun tak kunjung diijabahi'
 HR. Bukhari No 5865, dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
-- [x ] 23-07-20
+- [x] 23-07-20
 
 ___ 
 
@@ -89,7 +89,7 @@ maka Allah faqihkan (memahamkan) dia terhadap agama"
 "
 HR. Bukhari No 69, dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
-- [x ] 24-07-20
+- [x] 24-07-20
 
 ___ 
 
@@ -107,7 +107,7 @@ dalam artikel yang ditulis Wiwit Hardi P -semoga Allah menjaga beliau-
 
 read more : https://muslimah.or.id/7233-2-nikmat-yang-banyak-dilalaikan.html
 
-- [x ] 26-07-20
+- [x] 26-07-20
 
 ___ 
 
@@ -190,7 +190,7 @@ Muhammad Abduh Tuasikal, M.Sc -hafizhahullah- yang berjudul "Lakukanlah Puasa Su
 
 read more : https://rumaysho.com/863-lakukanlah-puasa-sunnah-minimal-sebulan-3-kali.html
 
-- [x ] 31-07-20
+- [x] 31-07-20
 
 ___ 
 
@@ -207,7 +207,7 @@ dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul 
 
 read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
-- [ ] 03-08-20
+- [x] 03-08-20
 
 ___ 
 
@@ -227,7 +227,7 @@ dinukil dari laman Rumaysho.com, dalam tulisan Ustadz Muhammad Abduh Tuasikal, M
 read more : 
 https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
-- [ ] 04-08-20
+- [x] 04-08-20
 
 ___ 
 
@@ -244,7 +244,7 @@ Dari ‘Abdullah bin ‘Amr bin Al ‘Ash, Rasulullah -shallallahu ‘alaihi wa 
 HR. Bukhari no. 1979, Dinukil dari laman Rumaysho.com dalam artikel yang ditulis Ustadz
 Muhammad Abduh Tuasikal, M.Sc -hafizhahullah- yang berjudul "Lakukanlah Puasa Sunnah Minimal Sebulan 3 Kali"
 
-- [ ] 05-08-20
+- [x] 05-08-20
 
 ___ 
 
@@ -291,7 +291,7 @@ dalam artikel yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahu
 
 read more : https://rumaysho.com/917-amalan-istimewa-di-hari-jumat.html
 
-- [ ] 07-08-20
+- [x] 07-08-20
 
 ___ 
 
@@ -310,7 +310,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-- [ ] 10-08-20
+- [x] 10-08-20
 
 ___ 
 
@@ -330,7 +330,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-- [ ] 11-08-20
+- [x] 11-08-20
 
 ___ 
 
@@ -347,7 +347,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
 
-- [ ] 12-08-20
+- [x] 12-08-20
 
 ___ 
 
@@ -372,7 +372,7 @@ yang ditulis oleh Ustadz Yulian Purnama, S.Kom -Hafizhahullah-
 
 read more : https://kangaswad.wordpress.com/2020/08/02/melatih-akhlak-mulia/
 
-- [ ] 13-08-20
+- [x] 13-08-20
 
 ___ 
 
@@ -387,7 +387,7 @@ Faidah catatan kajian dengan judul "7 Tips Bahagia di Zaman Now" oleh Ustadz Dr 
 
 watch more : https://www.youtube.com/watch?v=NW59PUoiWOo
 
-- [ ] 14-08-20
+- [x] 14-08-20
 
 ___ 
 
@@ -409,14 +409,12 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tuntunan.html
 
-- [ ] 17-08-20
+- [x] 17-08-20
 
 ___ 
 
 ### 11. Puasa Asyuro
-
 ___
-
 Abu Qotadah Al Anshoriy berkata,
 
 وَسُئِلَ عَنْ صَوْمِ يَوْمِ عَرَفَةَ فَقَالَ « يُكَفِّرُ السَّنَةَ الْمَاضِيَةَ وَالْبَاقِيَةَ ». قَالَ وَسُئِلَ عَنْ صَوْمِ يَوْمِ عَاشُورَاءَ فَقَالَ « يُكَفِّرُ السَّنَةَ الْمَاضِيَةَ
@@ -429,14 +427,12 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tuntunan.html
 
-- [ ] 18-08-20
+- [x] 18-08-20
 
 ___ 
 
 ### 12. Puasa Tasu'a
-
 ___
-
 Ketika ada yang mengatakan bahwa 9 muharram adalah hari yang diagungkan yahudi dan nashrani, Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
 فَإِذَا كَانَ الْعَامُ الْمُقْبِلُ – إِنْ شَاءَ اللَّهُ – صُمْنَا الْيَوْمَ التَّاسِعَ
@@ -456,14 +452,12 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tuntunan.html
 
-- [ ] 19-08-20
+- [x] 19-08-20
 
 ___ 
 
 ### 13. Bid'ah 10 Muharram
-
 ___
-
 al-Hafizh Ibnu Rojab berkata,
  “Adapun menjadikan hari asyuro sebagai hari kesedihan/ratapan sebagaimana dilakukan oleh kaum Rofidhah karena terbunuhnya Husain bin Ali, maka hal itu termasuk perbuatan orang yang tersesat usahanya dalama kehidupan dunia sedangkan dia mengira berbuat baik. Allah dan rasulNya saja tidak pernah memerintahkan agar hari mushibah dan kematian para Nabi dijadikan ratapan, lantas bagaimana dengan orang yang selain mereka?!”
 
@@ -474,14 +468,12 @@ yang ditulis oleh Ustadz Syahrul Fatwa, Lc. -Hafizhahullah-
 
 read more : https://muslim.or.id/23085-11-amalan-bidah-di-bulan-muharram.html
 
-- [ ] 20-08-20
+- [x] 20-08-20
 
 ___ 
 
 ### 14. Adab Menghadiri Shalat Jum'at (1)
-
 ___
-
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
 لاَ يَغْتَسِلُ رَجُلٌ يَوْمَ الجُمُعَةِ، وَيَتَطَهَّرُ مَا اسْتَطَاعَ مِنْ طُهْرٍ، وَيَدَّهِنُ مِنْ دُهْنِهِ، أَوْ يَمَسُّ مِنْ طِيبِ بَيْتِهِ، ثُمَّ يَخْرُجُ فَلاَ يُفَرِّقُ بَيْنَ اثْنَيْنِ، ثُمَّ يُصَلِّي مَا كُتِبَ لَهُ، ثُمَّ يُنْصِتُ إِذَا تَكَلَّمَ الإِمَامُ، إِلَّا غُفِرَ لَهُ مَا بَيْنَهُ وَبَيْنَ الجُمُعَةِ الأُخْرَى
@@ -494,7 +486,7 @@ yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
 
 read more : https://muslim.or.id/58161-memperbanyak-shalat-sunnah-sebelum-datangnya-khatib-jumat.html
 
-- [ ] 21-08-20
+- [x] 21-08-20
 
 ___ 
 
@@ -515,14 +507,12 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/17030-mengejar-shaf-pertama.html
 
-- [ ] 24-08-20
+- [x] 24-08-20
 
 ___ 
 
 ### 16. Tidak Bersegera Dalam Beribadah (1)
-
 ___
-
 Rasulullah -shallallahu 'alaihi wasallam- melihat diantara shahabat ada yang mengakhirkan berangkat ke masjid, maka beliau bersabda,
 
   لا يَزَالُ قَوْمٌ يَتَأَخَّرُونَ حَتَّى يُؤَخِّرَهُمْ اللَّهُ
@@ -542,14 +532,12 @@ yang ditulis  Ustadz Yhouga Pratama, S.T -Hafizhahullah-
 
 read more : https://muslim.or.id/7492-keutamaan-shaf-pertama.html
 
-- [ ] 25-08-20
+- [x] 25-08-20
 
 ___ 
 
 ### 17. Karakter Wanita Shalihah (1)
-
 ___
-
 Allah Ta’ala berfirman,
 
 فَالصَّالِحَاتُ قَانِتَاتٌ حَافِظَاتٌ لِلْغَيْبِ بِمَا حَفِظَ اللَّهُ
@@ -563,14 +551,12 @@ yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
 
 read more : https://muslim.or.id/57256-para-wanita-perindu-surga.html
 
-- [ ] 26-08-20
+- [x] 26-08-20
 
 ___ 
 
 ### 18. Berbanding Lurus (1)
-
 ___
-
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
 إِذَا أَصْبَحَ ابْنُ آدَمَ فَإِنَّ الْأَعْضَاءَ كُلَّهَا تُكَفِّرُ اللِّسَانَ فَتَقُولُ : اتَّقِ اللَّهَ فِينَا فَإِنَّمَا نَحْنُ بِكَ ؛ فَإِنْ اسْتَقَمْتَ اسْتَقَمْنَا ، وَإِنْ اعْوَجَجْتَ اعْوَجَجْنَا
@@ -583,14 +569,11 @@ yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
 
 read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
-- [ ] 27-08-20
-
+- [x] 27-08-20
 ___ 
 
 ### 19. Istiqomahnya Lisan (1)
-
 ___
-
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
 لَا يَسْتَقِيمُ إِيمَانُ عَبْدٍ حَتَّى يَسْتَقِيمَ قَلْبُهُ ، وَلَا يَسْتَقِيمُ قَلْبُهُ حَتَّى يَسْتَقِيمَ لِسَانُهُ
@@ -603,14 +586,12 @@ yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
 
 read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
-- [ ] 28-08-20
+- [x] 28-08-20
 
 ___ 
 
 ### 20. Kegembiraan Saudaramu (1)
-
 ___
-
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Seutama-utama amal shalih ialah hendaknya engkau memasukkan kegembiraan kepada saudaramu yang beriman" 
 
@@ -618,7 +599,7 @@ HR. Ibnu Abid Dunya, dihasankan Syaikh Al-Albani dalam Shahiih Al Jaami'ush Shag
 Dinukil dari buku berjudul Adab Bergaul Agar Dicintai Allah Kemudian Dicintai Manusia hal 17
 yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 
-- [ ] 31-08-20
+- [x] 31-08-20
 
 ___ 
 
@@ -636,12 +617,12 @@ dengan sedikit penyesuaian
 
 read more : -
 
-- [ ] 1-9-20
+- [x] 1-9-20
 
 ___ 
 
 ### 2. Lebih Baik dari Dunia dan Seisinya (1)
-
+___
 Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya
 
 HR. Muslim no.1193
@@ -2204,7 +2185,7 @@ yang ditulis Ustadz Roni Nuryusmansyah dengan sedikit penyesuaian
 
 read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
-- [ ] 22-12-20
+- [x] 22-12-20
 
 ___ 
 
@@ -2219,7 +2200,7 @@ yang ditulis Ustadz Roni Nuryusmansyah
 
 read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
-- [ ] 23-12-20
+- [x] 23-12-20
 
 ___ 
 

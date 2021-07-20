@@ -1,9 +1,7 @@
 # Post Instagram April
 
 ### 1. Celaka dan Merugi
-
----
-
+___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Celakalah seorang hamba yang mendapati bulan Ramadhan kemudian Ramadhan berlalu dalam keadaan dosa-dosanya belum diampuni.”
@@ -16,12 +14,10 @@ Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
 - [x] 1-4-21 // Ramadhan
 
----
+___
 
 ### 2. Tak Terluput Dari Hari Yang Tersisa
-
----
-
+___
 Rasulullah -shallallaahu ‘alaihi wa sallam- bersabda,
 
 “Carilah di sepuluh malam terakhir, apabila tidak mampu maka jangan sampai terluput tujuh malam tersisa.”
@@ -32,12 +28,10 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-2
 read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
 
 - [x] 2-4-21 // ramadhan
-
----
+___
 
 ### 3. Kemungkinan Besar Datangnya Malam Lailatul Qadar
-
----
+___
 
 Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
 "Demi Allah aku tahu kapan malam itu, yaitu malam yang kita diperintahkan oleh Rasulullah untuk menghidupkannya, yaitu malam kedua puluh tujuh”
@@ -51,12 +45,10 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-2
 read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
 
 - [x] 5-4-21// ramadhan
-
----
+___
 
 ### 4. Keutamaan Puasa Syawwal
-
----
+___
 
 Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 "Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
@@ -68,13 +60,10 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Puasa Sun
 read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-syawwal.html
 
 - [x] 6-4-21// ramadhan
-
----
-
-### 5. Luasnya Ampunan Dari Allah
-
 ___
 
+### 5. Luasnya Ampunan Dari Allah
+___
 Allah -Tabaraka Wa Ta'ala- berfirman,
 
 “Wahai anak Adam, selagi engkau berdoa kepada-Ku dan berharap kepada-Ku melainkan Aku akan ampuni dosa yang ada padamu dan Aku tidak peduli (seberapa banyak).
@@ -142,8 +131,7 @@ read more : https://konsultasisyariah.com/20268-cara-berbakti-kepada-orang-tua-s
 ___
 
 ### 9. Lelah Itu Pilihan
-
----
+___
 
 "mendidik anak, memiliki kepedulian untuk mendidik anak itu capek. tapi hasilnya itu menyenangkan hati. nanti insyaAllah anak itu tersebut saat kita sudah tua, dia akan peduli dengan orang tuanya. karena ketika kecil, kita peduli dengan dia."
 
@@ -242,13 +230,10 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 
 - [x] 20-4-21
-
 ___
 
 ### 15. Kejujuran Yang Menenangkan Jiwa
-
----
-
+___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
@@ -259,13 +244,10 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apaka
 read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
 
 - [x] 21-4-21
-
 ___
 
 ### 16. Makan Dengan Tangan Kanan
-
-____
-
+___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Jika seseorang dari kalian makan maka makanlah dengan tangan kanannya dan jika minum maka minumlah dengan tangan kanannya. Karena setan makan dan minum dengan tangan kirinya” 
@@ -314,9 +296,7 @@ read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-
 ___
 
 ### 19. Naungan Allah Bagi Pemuda Shalih
-
 ___
-
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Tujuh golongan yang dinaungi Allâh dalam naungan-Nya pada hari di mana tidak ada naungan kecuali naungan-Nya... (salah satunya) Seorang pemuda yang tumbuh dewasa dalam beribadah kepada Allah"*
 
@@ -333,13 +313,10 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit
 read more : https://rumaysho.com/15759-khutbah-jumat-tujuh-golongan-yang-mendapatkan-naungan-allah-pada-hari-kiamat.html
 
 - [] 27-4-21
-
 ___
 
 ### 20. Tidak Bersegera Dalam Beribadah
-
 ___
-
 Rasulullah -shallallahu 'alaihi wasallam- melihat diantara shahabat ada yang mengakhirkan berangkat ke masjid, maka beliau bersabda,
 “Tidaklah suatu kaum mengakhirkan (yaitu menuju masjid) hingga Allah akan mengakhirkan mereka” 
 
@@ -356,9 +333,7 @@ read more : https://muslim.or.id/7492-keutamaan-shaf-pertama.html
 ___
 
 ### 21. Bersyukur Dahulu
-
 ___
-
 Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu :
 “Bersyukur dulu baru bisa bahagia
 Bukan menunggu bahagia dulu baru bersyukur”
@@ -368,13 +343,10 @@ Dinukil dari laman Muslimafiyah.com dalam artikel berjudul "Penjelasan Makna Doa
 read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
 
 - [] 29-4-21 // repost 9-9-20
-
 ___
 
 ### 22. Puasa 'Arafah
-
----
-
+___
 Rasulullah -Shallallahu ‘alaihi wa sallam- bersabda,
 
 “Puasa Arafah (9 Dzulhijjah) dapat menghapuskan dosa setahun yang lalu dan setahun akan datang....”
@@ -385,6 +357,5 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Kemuliaan dan Keist
 
 read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah.html
 
-- [] 30-4-21 // repost 29-7-20
-
+- [x] 30-4-21 // repost 29-7-20
 ___
