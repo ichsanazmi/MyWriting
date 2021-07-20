@@ -266,6 +266,48 @@ read more : https://muslim.or.id/66869-kiat-kiat-agar-doa-dikabulkan-bag-3.html
 
 ___
 
+### Judul
+
+___
+
+Ikrimah (murid Ibn Abbas) mengatakan:
+Doa berikut dianjurkan untuk dibaca pada hari tasyrik:
+رَبَّنَا آتِنَا فِي الدُّنْيَا حَسَنَةً وَفِي الْآخِرَةِ حَسَنَةً وَقِنَا عَذَابَ النَّارِ
+Rabbanaa aatina fiddunya hasanah wa fil aakhirati hasanah, wa qinaa adzaabannnar
+"Wahai Rabb kami, berilah kami kebaikan di dunia dan kebaikan di akhirat, dan peliharalah kami dari adzab neraka"
+Lathaiful Ma’arif, Hal. 505
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
+
+___
+
+### Judul
+
+___
+
+Diriwayatkan bahwa Abu Musa Al-Asy'ari berkata ketika khutbah di hari An-Nahr('Idul Adha),
+"Tiga hari setelah an-nahr(yaitu hari tasyriq), itulah yang disebut oleh Allah dengan Ayyam Ma'dudat (Hari yang terbilang). Do'a pada hari tersebut tidak akan tertolak (pasti terkabul), maka segeralah berdoa dengan berharap kepada-Nya"
+Lathaiful Ma'arif, Hal 505-506
+
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "5 Amalan di Hari Tasyriq" dengan sedikit penyesuaian
+read more : https://muslim.or.id/18565-5-amalan-di-hari-tasyriq.html
+
+___
+
+### Judul
+
+___
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
+HR. Muslim
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
+
+___
+
 <!--stackedit_data:
 eyJoaXN0b3J5IjpbLTgwMTg1MjI4MywtMTUyOTQzODAxMiwtMz
 UzMDc5NzYsLTYxOTEwNTA1NiwtMTQzMDAwOTY5MSw1NDY3MTcx
