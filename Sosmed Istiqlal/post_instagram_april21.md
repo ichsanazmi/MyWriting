@@ -2,6 +2,8 @@
 
 ### 1. Celaka dan Merugi
 ___
+---
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Celakalah seorang hamba yang mendapati bulan Ramadhan kemudian Ramadhan berlalu dalam keadaan dosa-dosanya belum diampuni.”
@@ -14,10 +16,12 @@ Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
 - [x] 1-4-21 // Ramadhan
 
-___
+___---
 
 ### 2. Tak Terluput Dari Hari Yang Tersisa
 ___
+---
+
 Rasulullah -shallallaahu ‘alaihi wa sallam- bersabda,
 
 “Carilah di sepuluh malam terakhir, apabila tidak mampu maka jangan sampai terluput tujuh malam tersisa.”
@@ -29,9 +33,11 @@ read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatu
 
 - [x] 2-4-21 // ramadhan
 ___
+---
 
 ### 3. Kemungkinan Besar Datangnya Malam Lailatul Qadar
 ___
+---
 
 Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
 "Demi Allah aku tahu kapan malam itu, yaitu malam yang kita diperintahkan oleh Rasulullah untuk menghidupkannya, yaitu malam kedua puluh tujuh”
@@ -46,9 +52,11 @@ read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatu
 
 - [x] 5-4-21// ramadhan
 ___
+---
 
 ### 4. Keutamaan Puasa Syawwal
 ___
+---
 
 Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 "Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
@@ -62,8 +70,11 @@ read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-sya
 - [x] 6-4-21// ramadhan
 ___
 
+---
 ### 5. Luasnya Ampunan Dari Allah
+
 ___
+
 Allah -Tabaraka Wa Ta'ala- berfirman,
 
 “Wahai anak Adam, selagi engkau berdoa kepada-Ku dan berharap kepada-Ku melainkan Aku akan ampuni dosa yang ada padamu dan Aku tidak peduli (seberapa banyak).
@@ -132,6 +143,7 @@ ___
 
 ### 9. Lelah Itu Pilihan
 ___
+---
 
 "mendidik anak, memiliki kepedulian untuk mendidik anak itu capek. tapi hasilnya itu menyenangkan hati. nanti insyaAllah anak itu tersebut saat kita sudah tua, dia akan peduli dengan orang tuanya. karena ketika kecil, kita peduli dengan dia."
 
@@ -234,6 +246,7 @@ ___
 
 ### 15. Kejujuran Yang Menenangkan Jiwa
 ___
+---
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
@@ -247,7 +260,9 @@ read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puas
 ___
 
 ### 16. Makan Dengan Tangan Kanan
-___
+
+____
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Jika seseorang dari kalian makan maka makanlah dengan tangan kanannya dan jika minum maka minumlah dengan tangan kanannya. Karena setan makan dan minum dengan tangan kirinya” 
@@ -296,6 +311,7 @@ read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-
 ___
 
 ### 19. Naungan Allah Bagi Pemuda Shalih
+
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Tujuh golongan yang dinaungi Allâh dalam naungan-Nya pada hari di mana tidak ada naungan kecuali naungan-Nya... (salah satunya) Seorang pemuda yang tumbuh dewasa dalam beribadah kepada Allah"*
@@ -316,7 +332,9 @@ read more : https://rumaysho.com/15759-khutbah-jumat-tujuh-golongan-yang-mendapa
 ___
 
 ### 20. Tidak Bersegera Dalam Beribadah
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- melihat diantara shahabat ada yang mengakhirkan berangkat ke masjid, maka beliau bersabda,
 “Tidaklah suatu kaum mengakhirkan (yaitu menuju masjid) hingga Allah akan mengakhirkan mereka” 
 
@@ -346,16 +364,25 @@ read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari
 ___
 
 ### 22. Puasa 'Arafah
-___
-Rasulullah -Shallallahu ‘alaihi wa sallam- bersabda,
+___15. Jujur Yang Menenangkan Jiwa
+
+---
+Rasulullah -Shallallahu ‘'alaihi wa sallam- bersabda,
 
 “Puasa Arafah (9 Dzulhijjah) dapat menghapuskan dosa setahun yang lalu dan setahun akan datang....”
 
 HR. Muslim no. 1162
+"Tinggalkanlah yang meragukanmu pada apa yang tidak meragukanmu. Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
 
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Kemuliaan dan Keistimewaan Hari Arafah"
+HR. Tirmidzi no. 2518 dan Ahmad 1: 200. Al-Hafizh Abu Thahir mengatakan bahwa sanad hadits ini shahih
+Dinukil dari laman Muslim.or.idRumaysho dalam artikel yang berjudul "Kemuliaan dan Keistimewaan Hari Arafah"
 
-read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah.html
+read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafahBohong Saat Puasa Apakah Membatalkan Puasa"
+
+read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
 
 - [x] 30-4-21 // repost 29-7-20
 ___
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTU4NDg3NDM0OV19
+-->
