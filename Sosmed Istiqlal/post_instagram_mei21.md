@@ -9,7 +9,7 @@ HR. Muslim
 Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
 read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
 
-- [] 3-5-21 
+- [x] 3-5-21 
 ___
 
 ### 2. Perbanyak Berdoa Ketika Tasyriq
@@ -21,7 +21,7 @@ Lathaiful Ma'arif, Hal 505-506
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "5 Amalan di Hari Tasyriq" dengan sedikit penyesuaian
 read more : https://muslim.or.id/18565-5-amalan-di-hari-tasyriq.html
 
-- [] 4-5-21
+- [x] 4-5-21
 ___
 
 ### 3. Do'a Ketika Hari Tasyriq
@@ -36,7 +36,7 @@ Lathaiful Ma’arif, Hal. 505
 Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
 read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
 
-- [] 5-5-21
+- [x] 5-5-21
 ___
 
 ### 4. Memohon ke Yang Maha Baik
