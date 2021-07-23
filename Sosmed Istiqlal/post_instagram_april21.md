@@ -3,6 +3,7 @@
 ### 1. Celaka dan Merugi
 
 ___
+---
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -16,11 +17,12 @@ Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
 - [x] 1-4-21 // Ramadhan
 
-___
+___---
 
 ### 2. Tak Terluput Dari Hari Yang Tersisa
 
 ___
+---
 
 Rasulullah -shallallaahu ‘alaihi wa sallam- bersabda,
 
@@ -34,10 +36,12 @@ read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatu
 - [x] 2-4-21 // ramadhan
 
 ___
+---
 
 ### 3. Kemungkinan Besar Datangnya Malam Lailatul Qadar
 
 ___
+---
 
 Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
 "Demi Allah aku tahu kapan malam itu, yaitu malam yang kita diperintahkan oleh Rasulullah untuk menghidupkannya, yaitu malam kedua puluh tujuh”
@@ -53,10 +57,12 @@ read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatu
 - [x] 5-4-21// ramadhan
 
 ___
+---
 
 ### 4. Keutamaan Puasa Syawwal
 
 ___
+---
 
 Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 "Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
@@ -71,6 +77,7 @@ read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-sya
 
 ___
 
+---
 ### 5. Luasnya Ampunan Dari Allah
 
 ___
@@ -144,6 +151,7 @@ ___
 ### 9. Lelah Itu Pilihan
 
 ___
+---
 
 "mendidik anak, memiliki kepedulian untuk mendidik anak itu capek. tapi hasilnya itu menyenangkan hati. nanti insyaAllah anak itu tersebut saat kita sudah tua, dia akan peduli dengan orang tuanya. karena ketika kecil, kita peduli dengan dia."
 
@@ -248,7 +256,7 @@ ___
 ### 15. Kejujuran Yang Menenangkan Jiwa
 
 ___
-
+---
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
@@ -264,7 +272,7 @@ ___
 
 ### 16. Makan Dengan Tangan Kanan
 
-___
+____
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -326,7 +334,7 @@ Pemuda seperti itu sangat jarang kita temui saat ini karena kebanyakan pemuda it
 
 Maka pantas saja, Nabi shallallahu ‘alaihi wa sallam memasukkan pemuda yang rajin ibadah dalam golongan yang akan mendapatkan naungan Allah pada hari kiamat."
 
-HR. Bukhari dan Muslim
+*HR. Bukhari dan Muslim
 Dinukil dari laman Rumaysho dalam artikel yang berjudul "Khutbah Jumat Tujuh Golongan yang Mendapatkan Naungan Allah Pada Hari Kiamat"
 yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
 
@@ -363,7 +371,7 @@ Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah ya
 “Bersyukur dulu baru bisa bahagia
 Bukan menunggu bahagia dulu baru bersyukur”
 
-Ustadz Raehanul Bahraen, M.Sc Sp.Pk -hafizhahullah-
+Ustadz Raehanul Bahraen, M.Sc Sp.Pk -hafizhahullah-Dinukil dari laman Muslimafiyah.com dalam artikel berjudul "Penjelasan Makna Doa dan Dzikir Sehari-Hari (1)"
 
 read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
 
@@ -374,17 +382,26 @@ ___
 ### 22. Puasa 'Arafah
 
 ___
+15. Jujur Yang Menenangkan Jiwa
 
-Rasulullah -Shallallahu ‘alaihi wa sallam- bersabda,
+---
+Rasulullah -Shallallahu ‘'alaihi wa sallam- bersabda,
 
 “Puasa Arafah (9 Dzulhijjah) dapat menghapuskan dosa setahun yang lalu dan setahun akan datang....”
 
 HR. Muslim no. 1162
+"Tinggalkanlah yang meragukanmu pada apa yang tidak meragukanmu. Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
 
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Kemuliaan dan Keistimewaan Hari Arafah"
+HR. Tirmidzi no. 2518 dan Ahmad 1: 200. Al-Hafizh Abu Thahir mengatakan bahwa sanad hadits ini shahih
+Dinukil dari laman Muslim.or.idRumaysho dalam artikel yang berjudul "Kemuliaan dan Keistimewaan Hari Arafah"
 
-read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah.html
+read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafahBohong Saat Puasa Apakah Membatalkan Puasa"
+
+read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
 
 - [x] 30-4-21 // repost 29-7-20
 
 ___
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTExMTIzOTYwOV19
+-->
