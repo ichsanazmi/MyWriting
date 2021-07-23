@@ -84,9 +84,13 @@ Nabi -Shallallahu 'alaihi wasallam- bersabda,
 HR. Tirmidzi, hasan
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agar Do'a dikabulkan bag-2"
 
-read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.html
+read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.htmlJudul
 
-- [] 11-5-21
+---
+
+text
+
+- [x] 11-5-21
 ___
 
 ### 8. Menjauhi Sifat Suka Dipuji
@@ -116,7 +120,9 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Belajar Agama Hanya Untuk Me
 read more : https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.html
 
 - [] 13-5-21
-___
+___-4-21 
+
+---
 
 ### 10. Maksimal dalam Mengikhlaskan Amal
 ___
@@ -146,9 +152,13 @@ Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 HR. Tirmidzi, hasan
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Bolehkah Menghina Covid19 dengan Kata-Kata Kasar"
 
-read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kata-kasar.html
+read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kata-kasar.htmlJudul
 
-- [] 17-5-21
+---
+
+text
+
+- [x] 17-5-21
 ___
 
 ### 12. Pintu Surga Bagi Wanita
@@ -163,7 +173,9 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Ole
 read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
 - [] 18-5-21
-___
+___-4-21
+
+---
 
 ### 13. Judul
 ___
@@ -199,6 +211,13 @@ text
 
 - [x] 25-5-21
 ___
+---
+
+text
+
+- [x] 1-4-21
+
+---
 
 ### 18. Judul
 ___
@@ -228,3 +247,13 @@ text
 - [x] 31-5-21
 ___
 
+---
+
+text
+
+- [x] 1-4-21
+
+---
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTEyNzUyNjI2MDldfQ==
+-->
