@@ -16,3 +16,6 @@ Post Number
 184. Perbanyak Berdoa Ketika Tasyriq
 185. Do'a Ketika Hari Tasyriq
 186. Memohon Ke Yang Maha Baik
+187. Mustajabnya Berdoa Selepas Adzan
+188. Fokus Ketika Berdoa
+189. 

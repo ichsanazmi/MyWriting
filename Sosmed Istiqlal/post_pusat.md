@@ -414,7 +414,9 @@ read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tun
 ___ 
 
 ### 11. Puasa Asyuro
+
 ___
+
 Abu Qotadah Al Anshoriy berkata,
 
 وَسُئِلَ عَنْ صَوْمِ يَوْمِ عَرَفَةَ فَقَالَ « يُكَفِّرُ السَّنَةَ الْمَاضِيَةَ وَالْبَاقِيَةَ ». قَالَ وَسُئِلَ عَنْ صَوْمِ يَوْمِ عَاشُورَاءَ فَقَالَ « يُكَفِّرُ السَّنَةَ الْمَاضِيَةَ
@@ -432,7 +434,9 @@ read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tun
 ___ 
 
 ### 12. Puasa Tasu'a
+
 ___
+
 Ketika ada yang mengatakan bahwa 9 muharram adalah hari yang diagungkan yahudi dan nashrani, Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
 فَإِذَا كَانَ الْعَامُ الْمُقْبِلُ – إِنْ شَاءَ اللَّهُ – صُمْنَا الْيَوْمَ التَّاسِعَ
@@ -457,7 +461,9 @@ read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tun
 ___ 
 
 ### 13. Bid'ah 10 Muharram
+
 ___
+
 al-Hafizh Ibnu Rojab berkata,
  “Adapun menjadikan hari asyuro sebagai hari kesedihan/ratapan sebagaimana dilakukan oleh kaum Rofidhah karena terbunuhnya Husain bin Ali, maka hal itu termasuk perbuatan orang yang tersesat usahanya dalama kehidupan dunia sedangkan dia mengira berbuat baik. Allah dan rasulNya saja tidak pernah memerintahkan agar hari mushibah dan kematian para Nabi dijadikan ratapan, lantas bagaimana dengan orang yang selain mereka?!”
 
@@ -473,7 +479,9 @@ read more : https://muslim.or.id/23085-11-amalan-bidah-di-bulan-muharram.html
 ___ 
 
 ### 14. Adab Menghadiri Shalat Jum'at (1)
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
 لاَ يَغْتَسِلُ رَجُلٌ يَوْمَ الجُمُعَةِ، وَيَتَطَهَّرُ مَا اسْتَطَاعَ مِنْ طُهْرٍ، وَيَدَّهِنُ مِنْ دُهْنِهِ، أَوْ يَمَسُّ مِنْ طِيبِ بَيْتِهِ، ثُمَّ يَخْرُجُ فَلاَ يُفَرِّقُ بَيْنَ اثْنَيْنِ، ثُمَّ يُصَلِّي مَا كُتِبَ لَهُ، ثُمَّ يُنْصِتُ إِذَا تَكَلَّمَ الإِمَامُ، إِلَّا غُفِرَ لَهُ مَا بَيْنَهُ وَبَيْنَ الجُمُعَةِ الأُخْرَى
@@ -512,7 +520,9 @@ read more : https://rumaysho.com/17030-mengejar-shaf-pertama.html
 ___ 
 
 ### 16. Tidak Bersegera Dalam Beribadah (1)
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- melihat diantara shahabat ada yang mengakhirkan berangkat ke masjid, maka beliau bersabda,
 
   لا يَزَالُ قَوْمٌ يَتَأَخَّرُونَ حَتَّى يُؤَخِّرَهُمْ اللَّهُ
@@ -537,7 +547,9 @@ read more : https://muslim.or.id/7492-keutamaan-shaf-pertama.html
 ___ 
 
 ### 17. Karakter Wanita Shalihah (1)
+
 ___
+
 Allah Ta’ala berfirman,
 
 فَالصَّالِحَاتُ قَانِتَاتٌ حَافِظَاتٌ لِلْغَيْبِ بِمَا حَفِظَ اللَّهُ
@@ -556,7 +568,9 @@ read more : https://muslim.or.id/57256-para-wanita-perindu-surga.html
 ___ 
 
 ### 18. Berbanding Lurus (1)
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
 إِذَا أَصْبَحَ ابْنُ آدَمَ فَإِنَّ الْأَعْضَاءَ كُلَّهَا تُكَفِّرُ اللِّسَانَ فَتَقُولُ : اتَّقِ اللَّهَ فِينَا فَإِنَّمَا نَحْنُ بِكَ ؛ فَإِنْ اسْتَقَمْتَ اسْتَقَمْنَا ، وَإِنْ اعْوَجَجْتَ اعْوَجَجْنَا
@@ -570,10 +584,13 @@ yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
 read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
 - [x] 27-08-20
+
 ___ 
 
 ### 19. Istiqomahnya Lisan (1)
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
 لَا يَسْتَقِيمُ إِيمَانُ عَبْدٍ حَتَّى يَسْتَقِيمَ قَلْبُهُ ، وَلَا يَسْتَقِيمُ قَلْبُهُ حَتَّى يَسْتَقِيمَ لِسَانُهُ
@@ -591,7 +608,9 @@ read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 ___ 
 
 ### 20. Kegembiraan Saudaramu (1)
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Seutama-utama amal shalih ialah hendaknya engkau memasukkan kegembiraan kepada saudaramu yang beriman" 
 
@@ -622,7 +641,9 @@ read more : -
 ___ 
 
 ### 2. Lebih Baik dari Dunia dan Seisinya (1)
+
 ___
+
 Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya
 
 HR. Muslim no.1193

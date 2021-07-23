@@ -309,7 +309,7 @@ Lathaif Al-Ma'arif, hlm. 428
 Dinukil dari laman Rumaysho dalam artikel berjudul "Muslim Harus Punya Motivasi Tinggi dalam Belajar Agama"
 read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 
-- [] 26-4-21
+- [n] 26-4-21
 
 ___
 
@@ -318,7 +318,7 @@ ___
 ___
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-"Tujuh golongan yang dinaungi Allâh dalam naungan-Nya pada hari di mana tidak ada naungan kecuali naungan-Nya... (salah satunya) Seorang pemuda yang tumbuh dewasa dalam beribadah kepada Allah"*
+"Tujuh golongan yang dinaungi Allâh dalam naungan-Nya pada hari di mana tidak ada naungan kecuali naungan-Nya... (salah satunya) Seorang pemuda yang tumbuh dewasa dalam beribadah kepada Allah"
 
 "Kenapa disebut pemuda? Karena pemuda asalnya nafsunya begitu tinggi pada dunia dan kebanyakan itu lalai dari akhirat. Kalau ada pemuda yang rajin berjamaah di masjid, rajin menghadiri shalat fajar, akhlaknya pun bagus pada bapak-ibunya, dialah pemuda yang jadi harapan akan mendapatkan naungan Allah pada hari kiamat.
 
@@ -327,12 +327,11 @@ Pemuda seperti itu sangat jarang kita temui saat ini karena kebanyakan pemuda it
 Maka pantas saja, Nabi shallallahu ‘alaihi wa sallam memasukkan pemuda yang rajin ibadah dalam golongan yang akan mendapatkan naungan Allah pada hari kiamat."
 
 HR. Bukhari dan Muslim
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Khutbah Jumat Tujuh Golongan yang Mendapatkan Naungan Allah Pada Hari Kiamat"
-yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Khutbah Jumat Tujuh Golongan yang Mendapatkan Naungan Allah Pada Hari Kiamat" dengan sedikit penyesuaian
 
 read more : https://rumaysho.com/15759-khutbah-jumat-tujuh-golongan-yang-mendapatkan-naungan-allah-pada-hari-kiamat.html
 
-- [] 27-4-21
+- [n] 27-4-21
 
 ___
 
@@ -351,7 +350,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Shaf Pert
 
 read more : https://muslim.or.id/7492-keutamaan-shaf-pertama.html
 
-- [] 28-4-21 // repost 25-08-20
+- [n] 28-4-21 // repost 25-08-20
 
 ___
 
@@ -367,7 +366,7 @@ Ustadz Raehanul Bahraen, M.Sc Sp.Pk -hafizhahullah-
 
 read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
 
-- [] 29-4-21 // repost 9-9-20
+- [n] 29-4-21 // repost 9-9-20
 
 ___
 
