@@ -18,4 +18,5 @@ Post Number
 186. Memohon Ke Yang Maha Baik
 187. Mustajabnya Berdoa Selepas Adzan
 188. Fokus Ketika Berdoa
-189. 
+189. Yakin Dalam Berdoa
+190. Menjauhi Sifat Suka Dipuji

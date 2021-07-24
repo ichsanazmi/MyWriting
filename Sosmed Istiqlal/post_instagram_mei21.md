@@ -103,18 +103,10 @@ Nabi -Shallallahu 'alaihi wasallam- bersabda,
 HR. Tirmidzi, hasan
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agar Do'a dikabulkan bag-2"
 
-read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.htmlJudul
+read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.html
 
----
-
-<<<<<<< HEAD
 - [] 11-5-21
 
-=======
-text
-
-- [x] 11-5-21
->>>>>>> 2c072862fbf985037ca9a4516882d68e827c4b28
 ___
 
 ### 8. Menjauhi Sifat Suka Dipuji
@@ -149,14 +141,10 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Belajar Agama Hanya Untuk Me
 read more : https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.html
 
 - [] 13-5-21
-<<<<<<< HEAD
-
-___
-=======
-___-4-21 
 
 ---
->>>>>>> 2c072862fbf985037ca9a4516882d68e827c4b28
+
+
 
 ### 10. Maksimal dalam Mengikhlaskan Amal
 
@@ -191,19 +179,13 @@ Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 HR. Tirmidzi, hasan
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Bolehkah Menghina Covid19 dengan Kata-Kata Kasar"
 
-read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kata-kasar.htmlJudul
+read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kata-kasar.html
 
----
-
-<<<<<<< HEAD
 - [] 17-5-21
 
-=======
-text
-
-- [x] 17-5-21
->>>>>>> 2c072862fbf985037ca9a4516882d68e827c4b28
 ___
+
+
 
 ### 12. Pintu Surga Bagi Wanita
 
@@ -219,14 +201,10 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Ole
 read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
 - [] 18-5-21
-<<<<<<< HEAD
 
-___
-=======
-___-4-21
+___ 
 
----
->>>>>>> 2c072862fbf985037ca9a4516882d68e827c4b28
+
 
 ### 13. Judul
 
@@ -276,14 +254,9 @@ text
 
 - [x] 25-5-21
 
-___
 ---
 
-text
 
-- [x] 1-4-21
-
----
 
 ### 18. Judul
 
@@ -322,18 +295,3 @@ ___
 text
 
 - [x] 31-5-21
-
-<<<<<<< HEAD
-___
-=======
----
-
-text
-
-- [x] 1-4-21
-
----
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyNzUyNjI2MDldfQ==
--->
->>>>>>> 2c072862fbf985037ca9a4516882d68e827c4b28
