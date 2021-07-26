@@ -50,9 +50,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-2
 read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
 
 - [x] 5-4-21// ramadhan
-
 ___
----
 
 ### 4. Keutamaan Puasa Syawwal
 ___
@@ -142,7 +140,6 @@ ___
 ### 9. Lelah Itu Pilihan
 
 ___
----
 
 "mendidik anak, memiliki kepedulian untuk mendidik anak itu capek. tapi hasilnya itu menyenangkan hati. nanti insyaAllah anak itu tersebut saat kita sudah tua, dia akan peduli dengan orang tuanya. karena ketika kecil, kita peduli dengan dia."
 
@@ -245,9 +242,7 @@ read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 ___
 
 ### 15. Kejujuran Yang Menenangkan Jiwa
-
 ___
----
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
@@ -263,7 +258,7 @@ ___
 
 ### 16. Makan Dengan Tangan Kanan
 
-____
+___
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -300,7 +295,7 @@ read more: https://muslim.or.id/52803-menghindari-dampak-buruk-dosa.html
 ___
 
 ### 18. Terdepan dalam Berjuang
-
+___
 Wuhaib bin Warad -rahimahullah- berkata,
 "Jika engkau mampu agar tidak ada seorang pun yang mendahului mu menuju Allah, Maka lakukanlah"
 Lathaif Al-Ma'arif, hlm. 428
@@ -308,14 +303,12 @@ Lathaif Al-Ma'arif, hlm. 428
 Dinukil dari laman Rumaysho dalam artikel berjudul "Muslim Harus Punya Motivasi Tinggi dalam Belajar Agama"
 read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 
-- [n] 26-4-21
+- [x] 26-4-21
 
 ___
 
 ### 19. Naungan Allah Bagi Pemuda Shalih
-
 ___
-
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Tujuh golongan yang dinaungi Allâh dalam naungan-Nya pada hari di mana tidak ada naungan kecuali naungan-Nya... (salah satunya) Seorang pemuda yang tumbuh dewasa dalam beribadah kepada Allah"
 
@@ -325,25 +318,18 @@ Pemuda seperti itu sangat jarang kita temui saat ini karena kebanyakan pemuda it
 
 Maka pantas saja, Nabi shallallahu ‘alaihi wa sallam memasukkan pemuda yang rajin ibadah dalam golongan yang akan mendapatkan naungan Allah pada hari kiamat."
 
-<<<<<<< HEAD
-HR. Bukhari dan Muslim
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Khutbah Jumat Tujuh Golongan yang Mendapatkan Naungan Allah Pada Hari Kiamat" dengan sedikit penyesuaian
-=======
 *HR. Bukhari dan Muslim
 Dinukil dari laman Rumaysho dalam artikel yang berjudul "Khutbah Jumat Tujuh Golongan yang Mendapatkan Naungan Allah Pada Hari Kiamat"
 yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah- dengan sedikit penyesuaian
->>>>>>> 2c072862fbf985037ca9a4516882d68e827c4b28
 
 read more : https://rumaysho.com/15759-khutbah-jumat-tujuh-golongan-yang-mendapatkan-naungan-allah-pada-hari-kiamat.html
 
-- [n] 27-4-21
+- [x] 27-4-21
 
 ___
 
 ### 20. Tidak Bersegera Dalam Beribadah
-
 ___
-
 Rasulullah -shallallahu 'alaihi wasallam- melihat diantara shahabat ada yang mengakhirkan berangkat ke masjid, maka beliau bersabda,
 “Tidaklah suatu kaum mengakhirkan (yaitu menuju masjid) hingga Allah akan mengakhirkan mereka” 
 
@@ -355,14 +341,12 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Shaf Pert
 
 read more : https://muslim.or.id/7492-keutamaan-shaf-pertama.html
 
-- [n] 28-4-21 // repost 25-08-20
+- [x] 28-4-21 // repost 25-08-20
 
 ___
 
 ### 21. Bersyukur Dahulu
-
 ___
-
 Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu :
 “Bersyukur dulu baru bisa bahagia
 Bukan menunggu bahagia dulu baru bersyukur”
@@ -371,16 +355,12 @@ Ustadz Raehanul Bahraen, M.Sc Sp.Pk -hafizhahullah-Dinukil dari laman Muslimafiy
 
 read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
 
-- [n] 29-4-21 // repost 9-9-20
+- [x] 29-4-21 // repost 9-9-20
 
 ___
 
 ### 22. Puasa 'Arafah
-
 ___
-15. Jujur Yang Menenangkan Jiwa
-
----
 Rasulullah -Shallallahu ‘'alaihi wa sallam- bersabda,
 
 “Puasa Arafah (9 Dzulhijjah) dapat menghapuskan dosa setahun yang lalu dan setahun akan datang....”
@@ -391,13 +371,9 @@ HR. Muslim no. 1162
 HR. Tirmidzi no. 2518 dan Ahmad 1: 200. Al-Hafizh Abu Thahir mengatakan bahwa sanad hadits ini shahih
 Dinukil dari laman Muslim.or.idRumaysho dalam artikel yang berjudul "Kemuliaan dan Keistimewaan Hari Arafah"
 
-read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafahBohong Saat Puasa Apakah Membatalkan Puasa"
-
-read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
+read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah
 
 - [x] 30-4-21 // repost 29-7-20
 
 ___
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExMTIzOTYwOV19
--->
+
