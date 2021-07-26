@@ -1,9 +1,7 @@
 # Post Instagram April
 
 ### 1. Celaka dan Merugi
-
 ___
----
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -17,12 +15,12 @@ Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
 - [x] 1-4-21 // Ramadhan
 
-___---
+___
 
 ### 2. Tak Terluput Dari Hari Yang Tersisa
 
 ___
----
+
 
 Rasulullah -shallallaahu ‘alaihi wa sallam- bersabda,
 
@@ -36,12 +34,9 @@ read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatu
 - [x] 2-4-21 // ramadhan
 
 ___
----
 
 ### 3. Kemungkinan Besar Datangnya Malam Lailatul Qadar
-
 ___
----
 
 Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
 "Demi Allah aku tahu kapan malam itu, yaitu malam yang kita diperintahkan oleh Rasulullah untuk menghidupkannya, yaitu malam kedua puluh tujuh”
@@ -60,10 +55,7 @@ ___
 ---
 
 ### 4. Keutamaan Puasa Syawwal
-
 ___
----
-
 Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 "Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
 
@@ -77,7 +69,6 @@ read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-sya
 
 ___
 
----
 ### 5. Luasnya Ampunan Dari Allah
 
 ___

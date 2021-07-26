@@ -141,10 +141,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Belajar Agama Hanya Untuk Me
 read more : https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.html
 
 - [] 13-5-21
-
----
-
-
+___
 
 ### 10. Maksimal dalam Mengikhlaskan Amal
 
