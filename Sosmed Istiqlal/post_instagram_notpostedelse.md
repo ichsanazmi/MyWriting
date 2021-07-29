@@ -130,3 +130,17 @@ read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bu
 
 ___
 
+### Menghindari Rasa Malas Sejak Pagi
+___
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Setan akan mengikat tengkuk salah seorang dari kalian saat dia tidur dengan tiga ikatan. Dengan setiap ikatan, dia akan membisikkan padamu bahwa malam masih panjang. Jika dia terbangun lalu berdzikir kepada Allah, lepaslah satu ikatan. Jika dia berwudhu, maka lepaslah dua ikatan. Jika dia melanjutkan dengan shalat, maka lepaslah seluruh ikatan itu. Sehingga pada harinya, dia mulai dengan penuh semangat dan jiwanya pun sehat. Namun jika tidak, dia akan memasuki waktu pagi dengan jiwa yang sakit dan penuh dengan kemalasan"
+
+HR Bukhari Muslim
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Menjaga Shalat Subuh Secara Berjama'ah"
+
+read more : https://muslim.or.id/59314-menjaga-salat-subuh-secara-berjamaah.html
+___
+
+
+
