@@ -61,7 +61,6 @@ Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
 ___
 
 ### 5. Mustajabnya Berdo'a Selepas Adzan
-
 ___
 
 Diriwayatkan oleh 'Abdullah bin 'Amr -radhiallahu 'anhu-,
@@ -78,7 +77,6 @@ read more : https://muslim.or.id/66869-kiat-kiat-agar-doa-dikabulkan-bag-3.html
 ___
 
 ### 6. Fokus Ketika Berdo'a
-
 ___
 
 Di antara tanda tidak hadirnya hati ketika berdoa adalah banyaknya gerakan yang tidak perlu ketika berdoa. Engkau dapati ada orang yang lisannya berucap, namun tangannya sibuk memainkan tanah, atau memegang baju, atau melakukan aktivitas lainnya. Atau Engkau dapati pandangannya menoleh ke kanan dan ke kiri saat berdoa. Itu semua menunjukkan hatinya tidak ikut hadir ketika berdoa. Oleh karena itu, tatkala ‘Umar bin ‘Abdil Aziz Rahimahullah melihat seseorang yang berdoa sambil memainkan kerikil di tangannya, maka beliau berkata kepadanya,
