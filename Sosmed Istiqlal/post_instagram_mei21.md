@@ -72,7 +72,7 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agar Doa Dikab
 
 read more : https://muslim.or.id/66869-kiat-kiat-agar-doa-dikabulkan-bag-3.html
 
-- [ ] 7-5-21
+- [x] 7-5-21
 
 ___
 
@@ -87,7 +87,7 @@ Hilyatul Auliyaa’ karya Abu Nu'aim -rahimahullah-
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agar Do'a dikabulkan bag-2"
 read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.html
 
-- [] 10-5-21
+- [x] 10-5-21
 
 ___
 
