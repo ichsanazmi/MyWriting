@@ -20,3 +20,4 @@ Post Number
 188. Fokus Ketika Berdoa
 189. Yakin Dalam Berdoa
 190. Menjauhi Sifat Suka Dipuji
+191. Meluruskan Niat Belajar

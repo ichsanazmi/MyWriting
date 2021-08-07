@@ -108,7 +108,6 @@ read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.html
 ___
 
 ### 8. Menjauhi Sifat Suka Dipuji
-
 ___
 
 Nabi -Shallallahu 'alaihi wasallam- bersabda,

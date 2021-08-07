@@ -142,5 +142,41 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Menjaga Shalat Subuh Sec
 read more : https://muslim.or.id/59314-menjaga-salat-subuh-secara-berjamaah.html
 ___
 
+### Manfaat Mengingat Kematian
+___
+Ad-Daqqaq -rahimahullah- menjelaskan,
+“Barangsiapa yang banyak mengingat kematian, dia akan dimuliakan dengan tiga perkara, yaitu: (1) bersegera dalam bertaubat, (2) hati yang qanaah, (3) bersemangat melakukan ibadah.
 
+Barangsiapa yang lupa mengingat kematian, dia akan dihukum dengan tiga perkara, yaitu: (1) menunda-nunda taubat, (2) tidak rida terhadap pemberian (takdir) Allah, (3) malas beribadah” 
+
+At-Tadzkirah, 1: 27
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Begini Maksud Perintah Sering Mengingat Kematian"
+Read more : https://muslim.or.id/59956-begini-maksud-perintah-sering-mengingat-kematian.html
+___
+
+### Orang Yang Paling Cerdas
+___
+Ibnu ‘Umar -radhiyallahu ‘anhuma- pernah bertanya kepada Rasulullah -shallallahu alaihi wasallam-,
+“Lalu mukmin manakah yang paling cerdas ?"
+Beliau -shallallahu ‘alaihi wasallam- bersabda, 
+"Yang paling banyak mengingat kematian dan yang paling baik dalam mempersiapkan diri untuk  untuk alam berikutnya. Itulah mereka yang paling cerdas" 
+
+HR. Ibnu Majah
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Begini Maksud Perintah Sering Mengingat Kematian"
+Read More : https://muslim.or.id/59956-begini-maksud-perintah-sering-mengingat-kematian.html
+___
+
+### Mata Yang Selamat Dari Neraka
+___
+Nabi Shallallâhu ‘alaihi wa sallam bersabda,
+
+عينان لا تمسهما النار ، عين بكت من خشية الله ، وعين باتت تحرس في سبيل الله
+
+“Ada dua buah mata yang tidak akan tersentuh api neraka, (Salah satunya) mata yang menangis karena merasa takut kepada Allah...” 
+
+
+HR. Tirmidzi, No. 1639, disahihkan Syaikh Al-Albani 
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Sering menangis karena film sedih namun tidak pernah menangis karena Allah" dengan sedikit penyesuaian 
+Read More : https://muslim.or.id/28438-sering-menangis-karena-film-sedih-namun-tidak-pernah-menangis-karena-allah.html
+___
 
