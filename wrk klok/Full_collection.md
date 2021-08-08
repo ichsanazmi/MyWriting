@@ -16,4 +16,12 @@ Sumber: https://muslim.or.id/66507-kematian-pasti-datang.html
 ‘Amar bin Yasir Radhiyallahu’anhu berkata, “Cukuplah kematian sebagai pemberi nasihat dan pelajaran. Cukuplah keyakinan sebagai kekayaan. Dan cukuplah ibadah sebagai kegiatan yang menyibukkan.”
 
 Sumber: https://muslim.or.id/66507-kematian-pasti-datang.html
+## Seni Mengalah
+Menikah adalah seni mengalah
 
+Fokus menunaikan kewajiban masing-masing
+
+Maka hak itu akan mengalir dengan sendirinya
+Sudah saatnya intropeksi
+
+sumber : https://muslimafiyah.com/ia-tetap-bertahan-bersama-mu.html
