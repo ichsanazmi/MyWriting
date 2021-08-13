@@ -181,3 +181,15 @@ Read More : https://muslim.or.id/28438-sering-menangis-karena-film-sedih-namun-t
 ___
 ### Di Doakan Malaikat
 
+
+___
+### Dosa (blm fix)
+___
+Yahya bin Mu'adz -rahimahullah- mengatakan,
+"Jangan berprasangka bahwa Allah itu lamban mengabulkan doamu padahal jalan ijabah doa telah kau tutup rapat-rapat dengan berbagai dosa yang kau lakukan"
+
+Siyar A'lam Nubala, 15/13, 
+Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
+
+Read More : https://www.facebook.com/story.php?story_fbid=170577962960816&id=100005284324087
+___
