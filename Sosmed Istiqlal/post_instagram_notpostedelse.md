@@ -193,3 +193,15 @@ Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
 
 Read More : https://www.facebook.com/story.php?story_fbid=170577962960816&id=100005284324087
 ___
+### Memperbanyak Puasa di Muharram
+___
+Dari Abu Hurairah -radhiallahu 'anhu- berkata,
+"Sebaik-baik puasa setelah ramadhan adalah puasa di bulan Allah, bulan Muharram"
+
+HR. Muslim
+Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan Muharram"
+
+read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
+// repost 17-08-20
+___
+### Keutamaan Puasa Asyura
