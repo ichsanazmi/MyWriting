@@ -195,7 +195,7 @@ Read More : https://www.facebook.com/story.php?story_fbid=170577962960816&id=100
 ___
 ### Memperbanyak Puasa di Muharram
 ___
-Dari Abu Hurairah -radhiallahu 'anhu- berkata,
+Abu Hurairah -radhiallahu 'anhu- berkata,
 "Sebaik-baik puasa setelah ramadhan adalah puasa di bulan Allah, bulan Muharram"
 
 HR. Muslim
@@ -205,3 +205,15 @@ read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 // repost 17-08-20
 ___
 ### Keutamaan Puasa Asyura
+___
+Abu Qatadah Al-Anshori -radhiallahu 'anhu- berkata,
+"Nabi -Shallallahu 'Alaihi Wasallam- ditanya tentang puasa asyuro' , beliau menjawab, 
+Puasa Asyuro' menjadi penebus dosa setahun yang telah lewat"
+
+HR. Muslim dan Ahmad
+Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan Muharram"
+
+read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
+// repost 18-08-20
+___
+### Puasa Tasu'a
