@@ -89,7 +89,9 @@ read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masj
 ___ 
 
 ### Keutamaan Menuntut Ilmu
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam bersabda,
 "Tidaklah suatu kaum berkumpul di salah satu rumah dari rumah-rumah Allah (masjid) membaca Kitabullah dan saling mempelajarinya, melainkan akan turun kepada mereka sakinah (ketenangan), mereka akan dinaungi rahmat, mereka akan dilingkupi para malaikat dan Allah akan menyebut-nyebut mereka di sisi para makhluk yang dimuliakan di sisi-Nya"
 
@@ -102,7 +104,9 @@ read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masj
 ___ 
 
 ### Istirahat Yang Berpahala
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam bersabda,
 "Hendaknya kalian melakukan qoilulah atau istirahat siang karena setan itu tidak beristirahat siang"
 
@@ -131,6 +135,7 @@ read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bu
 ___
 
 ### Menghindari Rasa Malas Sejak Pagi
+
 ___
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
@@ -140,10 +145,13 @@ HR Bukhari Muslim
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Menjaga Shalat Subuh Secara Berjama'ah"
 
 read more : https://muslim.or.id/59314-menjaga-salat-subuh-secara-berjamaah.html
+
 ___
 
 ### Manfaat Mengingat Kematian
+
 ___
+
 Ad-Daqqaq -rahimahullah- menjelaskan,
 “Barangsiapa yang banyak mengingat kematian, dia akan dimuliakan dengan tiga perkara, yaitu: (1) bersegera dalam bertaubat, (2) hati yang qanaah, (3) bersemangat melakukan ibadah.
 
@@ -152,10 +160,13 @@ Barangsiapa yang lupa mengingat kematian, dia akan dihukum dengan tiga perkara, 
 At-Tadzkirah, 1: 27
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Begini Maksud Perintah Sering Mengingat Kematian"
 Read more : https://muslim.or.id/59956-begini-maksud-perintah-sering-mengingat-kematian.html
+
 ___
 
 ### Orang Yang Paling Cerdas
+
 ___
+
 Ibnu ‘Umar -radhiyallahu ‘anhuma- pernah bertanya kepada Rasulullah -shallallahu alaihi wasallam-,
 “Lalu mukmin manakah yang paling cerdas ?"
 Beliau -shallallahu ‘alaihi wasallam- bersabda, 
@@ -164,27 +175,33 @@ Beliau -shallallahu ‘alaihi wasallam- bersabda,
 HR. Ibnu Majah
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Begini Maksud Perintah Sering Mengingat Kematian"
 Read More : https://muslim.or.id/59956-begini-maksud-perintah-sering-mengingat-kematian.html
+
 ___
 
 ### Mata Yang Selamat Dari Neraka
+
 ___
+
 Nabi Shallallâhu ‘alaihi wa sallam bersabda,
 
 عينان لا تمسهما النار ، عين بكت من خشية الله ، وعين باتت تحرس في سبيل الله
 
 “Ada dua buah mata yang tidak akan tersentuh api neraka, (Salah satunya) mata yang menangis karena merasa takut kepada Allah...” 
 
-
 HR. Tirmidzi, No. 1639, disahihkan Syaikh Al-Albani 
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Sering menangis karena film sedih namun tidak pernah menangis karena Allah" dengan sedikit penyesuaian 
 Read More : https://muslim.or.id/28438-sering-menangis-karena-film-sedih-namun-tidak-pernah-menangis-karena-allah.html
+
 ___
+
 ### Di Doakan Malaikat
 
+___
+
+### Dosa (blm fix)
 
 ___
-### Dosa (blm fix)
-___
+
 Yahya bin Mu'adz -rahimahullah- mengatakan,
 "Jangan berprasangka bahwa Allah itu lamban mengabulkan doamu padahal jalan ijabah doa telah kau tutup rapat-rapat dengan berbagai dosa yang kau lakukan"
 
@@ -192,28 +209,7 @@ Siyar A'lam Nubala, 15/13,
 Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
 
 Read More : https://www.facebook.com/story.php?story_fbid=170577962960816&id=100005284324087
-___
-### Memperbanyak Puasa di Muharram
-___
-Abu Hurairah -radhiallahu 'anhu- berkata,
-"Sebaik-baik puasa setelah ramadhan adalah puasa di bulan Allah, bulan Muharram"
 
-HR. Muslim
-Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan Muharram"
-
-read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
-// repost 17-08-20
 ___
-### Keutamaan Puasa Asyura
-___
-Abu Qatadah Al-Anshori -radhiallahu 'anhu- berkata,
-"Nabi -Shallallahu 'Alaihi Wasallam- ditanya tentang puasa asyuro' , beliau menjawab, 
-Puasa Asyuro' menjadi penebus dosa setahun yang telah lewat"
 
-HR. Muslim dan Ahmad
-Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan Muharram"
-
-read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
-// repost 18-08-20
-___
 ### Puasa Tasu'a

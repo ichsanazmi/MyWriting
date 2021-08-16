@@ -433,7 +433,7 @@ read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tun
 
 ___
 
-### 12. Puasa Tasu'a
+### 12. Puasa Tasu'a (1)
 
 ___
 
@@ -1055,7 +1055,7 @@ https://muslim.or.id/58612-pondasi-tegaknya-ibadah.html
 ___
 
 - [x] 2-10-20
-
+  
   ### 2. Sebuah Perjalanan
 
 ___
@@ -1074,7 +1074,7 @@ http://abul-jauzaa.blogspot.com/2008/08/salaf-dalam-rasa-takut-dan-muraqabah.htm
 ___
 
 - [x] 5-10-20
-
+  
   ### 3. Pionir Kebaikan
 
 ___
@@ -1095,7 +1095,7 @@ https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 ___
 
 - [x] 6-10-20
-
+  
   ### 4. Doa Berlindung Dari Keburukan
 
 ___
@@ -1115,7 +1115,7 @@ https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 ___
 
 - [x] 7-10-20
-
+  
   ### 5. Yakin Akan Rezeki
 
 ___
@@ -1135,7 +1135,7 @@ https://muslim.or.id/25097-mengapa-ada-yang-mati-kelaparan-padahal-rezeki-sudah-
 ___
 
 - [x] 8-10-20
-
+  
   ### 6. Merasa Cukup
 
 ___
@@ -1158,7 +1158,7 @@ https://muslim.or.id/50745-setan-menakut-nakuti-dengan-kemiskinan.html
 ___
 
 - [x] 9-10-20
-
+  
   ### 7. Doa Naik Kendaraan
 
 ___
@@ -1183,7 +1183,7 @@ https://konsultasisyariah.com/22104-doa-agar-dijamin-aman-ketika-keluar-rumah.ht
 ___
 
 - [x] 12-10-20 / repost 20-07-20
-
+  
   ### 8. Keindahan Sabar (Juni '20)
 
 ___
@@ -1202,7 +1202,7 @@ https://muslim.or.id/20127-bersyukur-ketika-senang-dan-bersabar-ketika-mendapat-
 ___
 
 - [x] 13-10-20
-
+  
   ### 9. Qanaah
 
 ___
@@ -1223,7 +1223,7 @@ https://muslim.or.id/25091-kiat-kiat-agar-bisa-qanaah.html
 ___
 
 - [x] 14-10-20 / repost 23-07-20
-
+  
   ### 10. Bersabar Dalam Berdoa
 
 ___
@@ -1243,7 +1243,7 @@ https://hadits.in/bukhari/5865
 ___
 
 - [x] 15-10-20
-
+  
   ### 11. Pahala Shalat Sepanjang Malam
 
 ___
@@ -1262,7 +1262,7 @@ https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 ___
 
 - [x] 16-10-20
-
+  
   ### 12. Syafaat Bagi Pembacanya
 
 ___
@@ -1282,7 +1282,7 @@ https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 ___
 
 - [x] 19-10-20
-
+  
   ### 13. 10 Kebaikan
 
 ___
@@ -1301,7 +1301,7 @@ https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 ___
 
 - [x] 20-10-20  
-
+  
   ### 14. Berharaplah Diterima
 
 ___
@@ -1319,7 +1319,7 @@ https://www.facebook.com/musamulyadi/posts/3421645881236358
 ___
 
 - [x] 21-10-20 / repost 24-07-20
-
+  
   ### 15. Tanda Kebaikan
 
 ___
@@ -1339,7 +1339,7 @@ https://hadits.in/bukhari/69
 ___
 
 - [x] 22-10-20
-
+  
   ### 16. Teman yang Shalih
 
 ___
@@ -1442,7 +1442,7 @@ https://shahihfiqih.com/tazkiyatun-nafz/carilah-teman-yang-shalih/
 ___
 
 * [x] 29-10-20
-
+  
   ### 21. Doa agar tidak malas, disucikan jiwa, dan diberikan hati yang khusyuk
 
 ___
@@ -1465,7 +1465,7 @@ https://rumaysho.com/21000-doa-agar-tidak-malas-disucikan-jiwa-diberi-hati-yang-
 ___
 
 * [x] 30-10-20 / repost 27-07-20
-
+  
   ### 22. Kedermawanan yang tercela (Juni '20)
 
 ___
@@ -2743,370 +2743,371 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 read more : [Arti Laa Hawla wa Laa Quwwata Illa Billah | Rumaysho.Com](https://rumaysho.com/14840-arti-laa-hawla-wa-laa-quwwata-illa-billah.html)
 
 - [ ] 29-1-21# Post Instagram Januari
-
+  
   ### 1. Besar dan Kecil Perkara
-
+  
   ---
-
+  
   Dalam sebuah syair disebutkan,
   Perkara yang kecil akan nampak besar, dimata orang berjiwa kecil,
   Perkara yang besar akan nampaknya kecil, dimata orang berjiwa besar.
-
+  
   Ta’lim al-Muta’allim Thariq al-Ta’allum, karya al-Zarnudji
   Dinukil dari status facebook
   yang ditulis oleh Ustadz Muhamad Fajri, M.Pd.I -Hafizhahullah- dengan sedikit penyesuaian
-
+  
   read more : https://www.facebook.com/fajri1411/posts/1412878952397650
-
+  
   - [ ] 1-1-21
-
+  
   ---
-
+  
   ### 2. Syukuri yang Sedikit
-
+  
   ---
-
+  
   Rasulullah -shallallahu 'alaihi wasallam- bersabda,
   Barang siapa yang tidak mensyukuri sesuatu yang sedikit, maka ia tidak akan mampu mensyukuri sesuatu yang banyak
-
+  
   HR. Ahmad, 4:278. Syaikh Al-Albani mengatakan bahwa hadits ini hasan sebagaimana dalam Silsilah Al-Ahadits Ash-Shahihah, no. 667, 2:272
   Dinukil dari laman Rumaysho dalam artikel yang berjudul "Manfaat Bersyukur Kembali Kepada Yang Bersyukur"
   yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
-
+  
   read more : [Manfaat Bersyukur Kembali kepada yang Bersyukur | Rumaysho.Com](https://rumaysho.com/25932-manfaat-bersyukur-kembali-pada-yang-bersyukur.html)
-
+  
   - [ ] 3-1-21
-
+  
   ---
-
+  
   ### 3. Penggugur Dosa
-
+  
   ---
-
+  
   Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
   "Tidaklah seorang muslim tertimpa suatu kelelahan, atau penyakit, atau kehawatiran, atau kesedihan, atau gangguan, bahkan duri yang melukainya melainkan Allah akan menghapus kesalahan-kesalahannya karenanya"
-
+  
   HR. Al-Bukhari no. 5642 dan Muslim no. 2573
   Dinukil dari laman MuslimAfiyah dalam artikel yang berjudul "Rasa Lelah Adalah Penghapus Dosa"
   yang ditulis Ustadz dr Raehanul Bahraen, Sp.Pk -Hafizhahullah- dengan sedikit penyesuaian
-
+  
   read more : [Rasa Lelah Adalah Penghapus Dosa | MuslimAfiyah](https://muslimafiyah.com/rasa-lelah-adalah-penghapus-dosa.html)
-
+  
   - [ ] 4-1-21
-
+  
   ---
-
+  
   ### 4. Sebanding dengan Cobaan
-
+  
   ---
-
+  
   Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
   "Besarnya pahala sesuai dengan besarnya cobaan, dan sesungguhnya apabila Allah mencintai suatu kaum maka Dia akan menguji mereka. Oleh karena itu, barangsiapa ridla (menerima cobaan tersebut) maka baginya keridlaan, dan barangsiapa murka maka baginya kemurkaan.”
-
+  
   HR. Ibnu Majah 2/1338 no. 4021
   Dinukil dari laman Firanda.com dalam artikel yang berjudul "Sepuluh sebab penggugur Dosa"
   yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah-
-
+  
   read more : [Sepuluh Sebab Penggugur Dosa | Firanda.com](https://firanda.com/3759-sepuluh-sebab-penggugur-dosa.html)
-
+  
   - [ ] 5-1-21
-
+  
   ---
-
+  
   ### 5. Tak Membawa Apa-Apa
-
+  
   ---
-
+  
   Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
   "Manusia akan dikumpulkan pada hari kiamat –atau bersabda dengan redaksi para hamba- dalam keadaan tidak berpakaian, tidak berkhitan, dan tidak buhman” Lalu kami bertanya, “Apakah buhman itu?” Beliau bersabda, “Tidak ada sesuatupun yang kalian bawa."
-
+  
   HR. Ahmad 3/459 no. 16085
   Dinukil dari laman Firanda.com dalam artikel yang berjudul "Sepuluh sebab penggugur Dosa"
   yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah-
-
+  
   read more : [Sepuluh Sebab Penggugur Dosa | Firanda.com](https://firanda.com/3759-sepuluh-sebab-penggugur-dosa.html)
-
+  
   - [ ] 6-1-21
-
+  
   ---
-
+  
   ### 6. Bukan Jalan Keluar
-
+  
   ---
-
+  
   Seandainya kematian itu merupakan jalan keluar dari segala masalah kehidupan,
   Niscaya ia akan menjadi sebuah pilihan,
   Bagi para jiwa yang tertimpa beratnya ujian.
   Akan tetapi setelah kematian masih ada kehidupan,
   Dimana segala permasalahan dunia apapun akan terlihat ringan,
   Bila dibandingkan dengan beratnya akhirat dan pertanggung jawaban.
-
+  
   Dinukil dari status facebook
   yang ditulis oleh Ustadz Boris Tanesia -Hafizhahullah-
-
+  
   read more : https://web.facebook.com/story.php?story_fbid=10216632512146046&id=1257341801
-
+  
   - [ ] 7-1-21
-
+  
   ---
-
+  
   ### 7. Sebelum Menyesal
-
+  
   ---
-
+  
   Rasulullah -Shallallahu 'alaihi Wasallam- bersabda,
   "Menjauhlah dari apa-apa yang membuat meminta maaf karenanya"
-
+  
   Dihasankan oleh Syaikh Al-Albani dalam Jami' Ash-Shahih
   Dinukil dari status facebook
   yang ditulis oleh Ustadz Musa Mulyadi Luqman, Lc. -Hafizhahullah- dengan sedikit perubahan
-
+  
   read more : https://www.facebook.com/musamulyadi/posts/3742809029120040
-
+  
   - [ ] 8-1-21
-
+  
   ---
-
+  
   ### 8. Ujian Berupa Harta
-
+  
   ---
-
+  
   Ibnul Qayyim -rahimahullah- berkata,
   "Kapan saja harta itu di tanganmu bukan di hatimu, tidak akan memudaratkanmu walau pun banyak, dan kapan saja ada dalam hatimu, akan memudaratkanmu walau pun tidak ada dalam tanganmu sedikitpun."
-
+  
   Madaarijus Saalikin
   Dinukil dari status facebook
   yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit penyesuaian
-
+  
   read more : https://web.facebook.com/story.php?story_fbid=3639808006086810&id=100001729388129
-
+  
   - [ ] 11-1-21
-
+  
   ---
-
+  
   ### 9. Selalu Bertaqwa
-
+  
   ---
-
+  
   Rasulullah -shallallahu 'alaihi wasallam- bersabda,
   "Bertakwalah kepada Allah di mana saja kamu berada"
-
+  
   HR. Tirmidzi no. 1987. Imam At-Tirmidzi mengatakan bahwa hadits ini hasan shahih.
   Dinukil dari laman Rumaysho.com dalam artikel berjudul "Aku Ingin Bertaubat Tetapi"
   yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
-
+  
   read more : [Aku Ingin Bertaubat, Tetapi ... | Rumaysho.Com](https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html)
-
+  
   - [ ] 12-1-21
-
+  
   ---
-
+  
   ### 10. Standar Perdagangan Islam
-
+  
   ---
-
+  
   Halal itu standar minimal, kualitas, kreatifitas, amanah, dan kompetitif itu standar ideal.
   Jangan hanya modal klaim halal namun minus kualitas.
-
+  
   Dinukil dari status facebook
   yang ditulis oleh Ustadz Dr. Muhammad Arifin Badri, Lc. MA. -Hafizhahullah- dengan sedikit penyesuaian
-
+  
   read more : https://web.facebook.com/story.php?story_fbid=259400962213308&id=100044302190144
-
+  
   ```
   #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #dagang #jualan
   ```
-
+  
   - [ ] 13-1-21
-
+  
   ---
-
+  
   ### 11. Karakter Wanita Shalihah
-
+  
   ---
-
+  
   Allah Ta’ala berfirman,
-
+  
   فَالصَّالِحَاتُ قَانِتَاتٌ حَافِظَاتٌ لِلْغَيْبِ بِمَا حَفِظَ اللَّهُ
-
+  
   “Sebab itu maka wanita yang salihah, ialah yang taat kepada Allah, lagi memelihara diri ketika suaminya tidak ada. Hal itu karena Allah telah memelihara (mereka).”
-
+  
   QS. An-Nisa’ 4:34
   Dinukil dari laman Muslim.or.id dalam artikel berjudul "Para Wanita Perindu Surga"
   yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
-
+  
   read more : [Para Wanita Perindu Surga](https://muslim.or.id/57256-para-wanita-perindu-surga.html)
-
+  
   ```
   #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #wanita #shalihah
   ```
-
+  
   - [ ] 14-1-21 // repost post agustus
-
+  
   ---
-
+  
   ### 12. Buah Dari Ilmu
-
+  
   ---
-
+  
   Seorang lelaki mencerca Imam Waki', namun beliau tidak membalasnya, lalu ada yang berkata kepadanya,
   "tidakkah engkau membalasnya!?",
   Beliau berkata,
   "Jadi untuk apa kita mempelajari Ilmu !?"
-
+  
   Raudhatul Uqalaa
   Dinukil dari status facebook
   yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit penyesuaian
-
+  
   read more : https://web.facebook.com/story.php?story_fbid=3667743613293249&id=100001729388129
+  
   ```
   #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #ilmu
   ```
-
+  
   - [ ] 15-1-21
-
+  
   ---
-
+  
   ### 13. Kematian yang Mendadak
-
+  
   ---
-
+  
   Mati mendadak itu pemusnah semua teori hidup sehat, jadi wahai saudaraku, banyak banyaklah bersiap untuk kesehatan di hari Akhirat
-
+  
   Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah- dengan sedikit penyesuaian
-
+  
   read more : https://www.facebook.com/story.php?story_fbid=2755210197879933&id=100001729388129
-
+  
   ```
   #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #mati
   ```
-
+  
   - [ ] 18-1-21
-
+  
   ---
-
+  
   ### 14. Keutamaan Shaf Awal
-
+  
   ---
-
+  
   Rasulullah -shallallahu 'alaihi wasallam- bersabda,
   “Seandainya orang-orang mengetahui pahala azan dan shaf pertama, kemudian mereka tidak mendapatkannya melainkan dengan cara mengadakan undian, pasti mereka melakukannya.”
-
+  
   HR. Bukhari Muslim
   Dinukil dari laman Rumaysho dalam artikel berjudul "Mengejar Shaf Pertama"
   yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
-
+  
   read more : [Mengejar Shaf Pertama | Rumaysho.Com](https://rumaysho.com/17030-mengejar-shaf-pertama.html)
-
+  
   ```
   #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #shalat #shaf_awal
   ```
-
+  
   - [ ] 19-1-21 //repost agustus
-
+  
   ---
-
+  
   ### 15. Berbanding Lurus
-
+  
   ---
-
+  
   Rasulullah -shallallahu 'alaihi wasallam- bersabda,
   “Jika manusia berada di waktu pagi, maka semua anggota badannya menyalahkan lisan. Mereka berkata, “ Wahai lisan, bertakwalah kepada Allah dalam urusan kami karena sesungguhnya kami tergantung pada dirimu, Jika kamu bersikap lurus, maka kami pun akan lurus. Namun jika engkau menyimpang, maka kamipun akan menyimpang. “
-
+  
   HR. Tirmidzi, shahih
   Dinukil dari laman Muslim.or.id dalam artikel berjudul "Buah Manis Menjaga Lisan"
   yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
-
+  
   read more : [Buah Manis Menjaga Lisan](https://muslim.or.id/57826-buah-manis-menjaga-lisan.html)
-
+  
   ```
   #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #lurus #istiqomah
   ```
-
+  
   - [ ] 20-1-21 //repost agustus
-
+  
   ---
-
+  
   ### 16. Istiqomahnya Lisan
-
+  
   ---
-
+  
   Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-
+  
   لَا يَسْتَقِيمُ إِيمَانُ عَبْدٍ حَتَّى يَسْتَقِيمَ قَلْبُهُ ، وَلَا يَسْتَقِيمُ قَلْبُهُ حَتَّى يَسْتَقِيمَ لِسَانُهُ
-
+  
   “Tidak akan lurus di atas jalan istiqomah iman seorang hamba sebelum istiqomah hatinya, dan tidak akan istiqomah hatinya sebelum istiqomah lisannnya”.
-
+  
   HR. Ahmad, shahih
   Dinukil dari Muslim.or.id dalam artikel berjudul "Buah Manis Menjaga Lisan"
   yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
-
+  
   read more : [Buah Manis Menjaga Lisan](https://muslim.or.id/57826-buah-manis-menjaga-lisan.html)
-
+  
   ```
   #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #lurus #istiqomah
   ```
-
+  
   - [ ] 21-1-21 //repost agustus
-
+  
   ---
-
+  
   ### 17. Kegembiraan Saudaramu
-
+  
   ---
-
+  
   Rasulullah -shallallahu 'alaihi wasallam- bersabda,
   "Seutama-utama amal shalih ialah hendaknya engkau memasukkan kegembiraan kepada saudaramu yang beriman"
-
+  
   HR. Ibnu Abid Dunya, dihasankan Syaikh Al-Albani dalam Shahiih Al Jaami'ush Shaghir no. 1096
   Dinukil dari buku berjudul Adab Bergaul Agar Dicintai Allah Kemudian Dicintai Manusia hal 17
   yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
-
+  
   ```
   #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #gembira
   ```
-
+  
   - [ ] 22-1-21 //repost agustus
-
+  
   ---
-
+  
   ### 18. Berputar Arah
-
+  
   ---
-
+  
   Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
   Rindu masa lalu dan tidak menghancurkan jejaknya
-
+  
   apapun yang tersisa dari masa jahiliyahmu hancurkan dan relakan, itulah taubat hijrah yang sesungguhnya
-
+  
   Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
   dengan sedikit penyesuaian
-
+  
   - [ ] 25-1-21 //repost september
-
+  
   ---
-
+  
   ### 19. Lebih Baik dari Dunia dan Seisinya
-
+  
   ---
-
+  
   Rasulullah -shallallahu 'alahi wasallam- bersabda,
   "Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya"
-
+  
   HR. Muslim no.1193
   Dinukil dari KonsultasiSyariah.com dalam artikel berjudul "Keutamaan Shalat Qabliyah Shubuh"
   yang ditulis oleh Ustadz Nurfitri Hadi -Hafizhahullah-
-
+  
   read more : [Keutamaan Shalat Qabliyah Shubuh | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/10341-keutamaan-shalat-qabliyah-shubuh.html)
-
+  
   - [ ] 26-1-21 // repost September
-
+  
   ---
-
+  
   ### 20. Larangan Mencela Takdir
-
+  
   ---
-
+  
   Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda :
   Apabila kamu tertimpa suatu kemalangan, maka janganlah kamu mengatakan
   'Seandainya tadi saya berbuat begini dan begitu, niscaya tidak akan menjadi begini dan begitu'.
@@ -3114,46 +3115,46 @@ read more : [Arti Laa Hawla wa Laa Quwwata Illa Billah | Rumaysho.Com](https://r
   قَدَرُ اللَّهِ وَمَا شَاءَ فَعَلَ
   ( lni sudah takdir Allah dan apa yang dikehendaki-Nya pasti akan dilaksanakan-Nya )
   Karena sesungguhnya ungkapan kata 'law' (seandainya) akan membukakan jalan bagi godaan syetan.'"
-
+  
   HR. Muslim no. 4816
   Dinukil dari Ensiklopedia Hadits Lidwa Pustaka
-
+  
   read more : [Hadits Muslim 4816 tentang 'Rasulullah shallallahu 'alaihi wasallam bersabda: 'Orang mukmin yang "](https://hadits.in/muslim/4816)
-
+  
   - [ ] 27-1-21 // repost september
-
+  
   ---
-
+  
   ### 21. Harapan atau Angan
-
+  
   ---
-
+  
   Syaikh Abdul Aziz ar-Rajihi menjelaskan,
   "Harapan itu disertai dengan mengerahkan kesungguhan dan bertawakal dengan sebaik-baiknya. Namun ia berubah menjadi angan-angan tatkala upayanya dilakukan dengan bermalas-malasan"
-
+  
   Syarh al-Ushul ats-Tsalatsah, hal. 59k
   Dinukil dari Muslimafiyah.com dalam artikel berjudul "Untuk Apa Kamu Hidup"
   oleh Ustadz Ari Wahyudi, S.Si -Hafizhahullah-
-
+  
   read more : [Untuk Apa Kamu Hidup?](https://muslim.or.id/58455-untuk-apa-kamu-hidup.html)
-
+  
   - [ ] 28-1-21 // repost september
-
+  
   ---
-
+  
   ### 22. Makna Laa Haula Wa Laa Quwwata Illa BIllah
-
+  
   ---
-
+  
   Ibnu Mas'ud -Radhiallahu 'anhu- berkata,
   “Tidak ada daya untuk menghindarkan diri dari maksiat selain dengan perlindugan dari Allah. Tidak ada kekuatan untuk melaksanakan ketaatan selain dengan pertolongan Allah.”
-
+  
   Syarh Shahih Muslim
   Dinukil dari laman Rumaysho dalam artikel berjudul "Arti laa Hawla Wa Laa Quwwata Illa Billah"
   yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
-
+  
   read more : [Arti Laa Hawla wa Laa Quwwata Illa Billah | Rumaysho.Com](https://rumaysho.com/14840-arti-laa-hawla-wa-laa-quwwata-illa-billah.html)
-
+  
   - [ ] 29-1-21
 
 ## Februari 21
@@ -3581,6 +3582,7 @@ ___
 ## April 21 (done)
 
 ### 1. Celaka dan Merugi
+
 ___
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
@@ -3601,7 +3603,6 @@ ___
 
 ___
 
-
 Rasulullah -shallallaahu ‘alaihi wa sallam- bersabda,
 
 “Carilah di sepuluh malam terakhir, apabila tidak mampu maka jangan sampai terluput tujuh malam tersisa.”
@@ -3616,6 +3617,7 @@ read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatu
 ___
 
 ### 3. Kemungkinan Besar Datangnya Malam Lailatul Qadar
+
 ___
 
 Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
@@ -3630,10 +3632,13 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-2
 read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
 
 - [x] 5-4-21// ramadhan
+
 ___
 
 ### 4. Keutamaan Puasa Syawwal
+
 ___
+
 Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 "Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
 
@@ -3822,7 +3827,9 @@ read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 ___
 
 ### 15. Kejujuran Yang Menenangkan Jiwa
+
 ___
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
@@ -3875,7 +3882,9 @@ read more: https://muslim.or.id/52803-menghindari-dampak-buruk-dosa.html
 ___
 
 ### 18. Terdepan dalam Berjuang
+
 ___
+
 Wuhaib bin Warad -rahimahullah- berkata,
 "Jika engkau mampu agar tidak ada seorang pun yang mendahului mu menuju Allah, Maka lakukanlah"
 Lathaif Al-Ma'arif, hlm. 428
@@ -3888,7 +3897,9 @@ read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-
 ___
 
 ### 19. Naungan Allah Bagi Pemuda Shalih
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Tujuh golongan yang dinaungi Allâh dalam naungan-Nya pada hari di mana tidak ada naungan kecuali naungan-Nya... (salah satunya) Seorang pemuda yang tumbuh dewasa dalam beribadah kepada Allah"
 
@@ -3909,7 +3920,9 @@ read more : https://rumaysho.com/15759-khutbah-jumat-tujuh-golongan-yang-mendapa
 ___
 
 ### 20. Tidak Bersegera Dalam Beribadah
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- melihat diantara shahabat ada yang mengakhirkan berangkat ke masjid, maka beliau bersabda,
 “Tidaklah suatu kaum mengakhirkan (yaitu menuju masjid) hingga Allah akan mengakhirkan mereka” 
 
@@ -3926,7 +3939,9 @@ read more : https://muslim.or.id/7492-keutamaan-shaf-pertama.html
 ___
 
 ### 21. Bersyukur Dahulu
+
 ___
+
 Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu :
 “Bersyukur dulu baru bisa bahagia
 Bukan menunggu bahagia dulu baru bersyukur”
@@ -3940,7 +3955,9 @@ read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari
 ___
 
 ### 22. Puasa 'Arafah
+
 ___
+
 Rasulullah -Shallallahu ‘'alaihi wa sallam- bersabda,
 
 “Puasa Arafah (9 Dzulhijjah) dapat menghapuskan dosa setahun yang lalu dan setahun akan datang....”

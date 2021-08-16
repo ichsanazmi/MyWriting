@@ -61,6 +61,7 @@ Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
 ___
 
 ### 5. Mustajabnya Berdo'a Selepas Adzan
+
 ___
 
 Diriwayatkan oleh 'Abdullah bin 'Amr -radhiallahu 'anhu-,
@@ -77,6 +78,7 @@ read more : https://muslim.or.id/66869-kiat-kiat-agar-doa-dikabulkan-bag-3.html
 ___
 
 ### 6. Fokus Ketika Berdo'a
+
 ___
 
 Di antara tanda tidak hadirnya hati ketika berdoa adalah banyaknya gerakan yang tidak perlu ketika berdoa. Engkau dapati ada orang yang lisannya berucap, namun tangannya sibuk memainkan tanah, atau memegang baju, atau melakukan aktivitas lainnya. Atau Engkau dapati pandangannya menoleh ke kanan dan ke kiri saat berdoa. Itu semua menunjukkan hatinya tidak ikut hadir ketika berdoa. Oleh karena itu, tatkala ‘Umar bin ‘Abdil Aziz Rahimahullah melihat seseorang yang berdoa sambil memainkan kerikil di tangannya, maka beliau berkata kepadanya,
@@ -108,6 +110,7 @@ read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.html
 ___
 
 ### 8. Menjauhi Sifat Suka Dipuji
+
 ___
 
 Nabi -Shallallahu 'alaihi wasallam- bersabda,
@@ -138,6 +141,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Belajar Agama Hanya Untuk Me
 read more : https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.html
 
 - [] 13-5-21
+
 ___
 
 ### 10. Maksimal dalam Mengikhlaskan Amal
@@ -179,8 +183,6 @@ read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kat
 
 ___
 
-
-
 ### 12. Pintu Surga Bagi Wanita
 
 ___
@@ -198,25 +200,36 @@ read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
 ___ 
 
+### 13. Keutamaan Puasa Asyura
 
+---
 
-### 13. Judul
+Abu Qatadah Al-Anshori -radhiallahu 'anhu- berkata,
+"Nabi -Shallallahu 'Alaihi Wasallam- ditanya tentang puasa asyuro' , beliau menjawab, 
+Puasa Asyuro' menjadi penebus dosa setahun yang telah lewat"
+
+HR. Muslim dan Ahmad
+Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan Muharram"
+
+read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
+
+- [ ] 19-5-21 // repost 18-08-20
 
 ___
 
-text
+### 14. Memperbanyak Puasa di Muharram
 
-- [x] 19-5-21
+---
 
-___
+Abu Hurairah -radhiallahu 'anhu- berkata,
+"Sebaik-baik puasa setelah ramadhan adalah puasa di bulan Allah, bulan Muharram"
 
-### 14. Judul
+HR. Muslim
+Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan Muharram"
 
-___
+read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 
-text
-
-- [x] 20-5-21
+- [x] 20-5-21 // repost 17-08-20
 
 ___
 
@@ -249,8 +262,6 @@ text
 - [x] 25-5-21
 
 ---
-
-
 
 ### 18. Judul
 
