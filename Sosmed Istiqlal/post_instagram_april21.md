@@ -1,6 +1,7 @@
 # Post Instagram April
 
 ### 1. Celaka dan Merugi
+
 ___
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
@@ -21,7 +22,6 @@ ___
 
 ___
 
-
 Rasulullah -shallallaahu ‘alaihi wa sallam- bersabda,
 
 “Carilah di sepuluh malam terakhir, apabila tidak mampu maka jangan sampai terluput tujuh malam tersisa.”
@@ -36,6 +36,7 @@ read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatu
 ___
 
 ### 3. Kemungkinan Besar Datangnya Malam Lailatul Qadar
+
 ___
 
 Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
@@ -50,10 +51,13 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-2
 read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
 
 - [x] 5-4-21// ramadhan
+
 ___
 
 ### 4. Keutamaan Puasa Syawwal
+
 ___
+
 Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 "Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
 
@@ -242,7 +246,9 @@ read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 ___
 
 ### 15. Kejujuran Yang Menenangkan Jiwa
+
 ___
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Sesungguhnya kejujuran lebih menenangkan jiwa, sedangkan dusta akan menggelisahkan jiwa."
@@ -295,7 +301,9 @@ read more: https://muslim.or.id/52803-menghindari-dampak-buruk-dosa.html
 ___
 
 ### 18. Terdepan dalam Berjuang
+
 ___
+
 Wuhaib bin Warad -rahimahullah- berkata,
 "Jika engkau mampu agar tidak ada seorang pun yang mendahului mu menuju Allah, Maka lakukanlah"
 Lathaif Al-Ma'arif, hlm. 428
@@ -308,7 +316,9 @@ read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-
 ___
 
 ### 19. Naungan Allah Bagi Pemuda Shalih
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Tujuh golongan yang dinaungi Allâh dalam naungan-Nya pada hari di mana tidak ada naungan kecuali naungan-Nya... (salah satunya) Seorang pemuda yang tumbuh dewasa dalam beribadah kepada Allah"
 
@@ -329,7 +339,9 @@ read more : https://rumaysho.com/15759-khutbah-jumat-tujuh-golongan-yang-mendapa
 ___
 
 ### 20. Tidak Bersegera Dalam Beribadah
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- melihat diantara shahabat ada yang mengakhirkan berangkat ke masjid, maka beliau bersabda,
 “Tidaklah suatu kaum mengakhirkan (yaitu menuju masjid) hingga Allah akan mengakhirkan mereka” 
 
@@ -346,7 +358,9 @@ read more : https://muslim.or.id/7492-keutamaan-shaf-pertama.html
 ___
 
 ### 21. Bersyukur Dahulu
+
 ___
+
 Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu :
 “Bersyukur dulu baru bisa bahagia
 Bukan menunggu bahagia dulu baru bersyukur”
@@ -360,7 +374,9 @@ read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari
 ___
 
 ### 22. Puasa 'Arafah
+
 ___
+
 Rasulullah -Shallallahu ‘'alaihi wa sallam- bersabda,
 
 “Puasa Arafah (9 Dzulhijjah) dapat menghapuskan dosa setahun yang lalu dan setahun akan datang....”
@@ -376,4 +392,3 @@ read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah
 - [x] 30-4-21 // repost 29-7-20
 
 ___
-

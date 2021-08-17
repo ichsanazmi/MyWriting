@@ -184,11 +184,8 @@ read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kat
 ___
 
 ### 12. Pintu Surga Bagi Wanita
-
 ___
-
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
 "Apabila seorang wanita mengerjakan shalat lima waktu, mengerjakan puasa di bulan Ramadhan, menjaga kemaluan, dan menaati suami, maka ia akan masuk surga dari pintu mana saja yang ia inginkan” 
 
 HR. Ibnu Hibban no. 4163. Dishahihkan oleh Al-Albani dalam Shahih at-Targhib no. 2411
@@ -197,13 +194,10 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Ole
 read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
 - [] 18-5-21
-
 ___ 
 
 ### 13. Keutamaan Puasa Asyura
-
----
-
+___
 Abu Qatadah Al-Anshori -radhiallahu 'anhu- berkata,
 "Nabi -Shallallahu 'Alaihi Wasallam- ditanya tentang puasa asyuro' , beliau menjawab, 
 Puasa Asyuro' menjadi penebus dosa setahun yang telah lewat"
@@ -218,7 +212,6 @@ read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 ___
 
 ### 14. Memperbanyak Puasa di Muharram
-
 ---
 
 Abu Hurairah -radhiallahu 'anhu- berkata,
@@ -229,17 +222,25 @@ Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan 
 
 read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 
-- [x] 20-5-21 // repost 17-08-20
+- [ ] 20-5-21 // repost 17-08-20
 
 ___
 
-### 15. Judul
+### 15. Puasa Tasu'a
 
 ___
 
-text
+ada sahabat yang berkata: "Ya Rasulullah, sesungguhnya hari Asyuro' adalah hari yang diagungkan orang yahudi dan nasrani"
+Kemudian Nabi -Shallallahu 'alaihi wasallam- bersabda,
+"Tahun depan, kita akan berpuasa di tanggal 9".
+Namun belum sampai tahun depan, Nabi -shallallahu 'alaihi wasallam- sudah diwafatkan
 
-- [x] 21-5-21
+HR. Bukhari
+Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan Muharram"
+
+read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
+
+- [x] 21-5-21 // repost 18-08-20
 
 ___
 
