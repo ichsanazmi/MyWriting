@@ -460,7 +460,7 @@ read more : https://muslim.or.id/18663-banyak-puasa-di-bulan-muharram-adakah-tun
 
 ___
 
-### 13. Bid'ah 10 Muharram
+### 13. Bid'ah 10 Muharram (1)
 
 ___
 

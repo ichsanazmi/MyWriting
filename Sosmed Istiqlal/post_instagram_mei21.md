@@ -164,13 +164,11 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Amal Kita Masih Sedikit" den
 read more : https://rumaysho.com/28566-amal-kita-masih-sedikit.html
 
 - [] 14-5-21
-
 ___
+
 
 ### 11. Bersabar Atas Ujian
-
 ___
-
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Sesungguhnya besarnya ganjaran itu sesuai besarnya ujian. Dan sungguh bila Allah Ta'ala mencintai suatu kaum, maka Allah akan mengujinya. Siapa yang ridho akan ujian itu, maka baginya keridhoan Allah. Dan Siapa yang marah atau benci terhadap ujian itu, maka baginya kebencian Allah"
 
@@ -180,8 +178,8 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Bolehkah Menghina Covid1
 read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kata-kasar.html
 
 - [] 17-5-21
-
 ___
+
 
 ### 12. Pintu Surga Bagi Wanita
 ___
@@ -196,6 +194,7 @@ read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 - [] 18-5-21
 ___ 
 
+
 ### 13. Keutamaan Puasa Asyura
 ___
 Abu Qatadah Al-Anshori -radhiallahu 'anhu- berkata,
@@ -207,13 +206,12 @@ Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan 
 
 read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 
-- [ ] 19-5-21 // repost 18-08-20
-
+- [x] 19-5-21 // repost 18-08-20
 ___
 
-### 14. Memperbanyak Puasa di Muharram
----
 
+### 14. Memperbanyak Puasa di Muharram
+___
 Abu Hurairah -radhiallahu 'anhu- berkata,
 "Sebaik-baik puasa setelah ramadhan adalah puasa di bulan Allah, bulan Muharram"
 
@@ -223,13 +221,11 @@ Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan 
 read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 
 - [ ] 20-5-21 // repost 17-08-20
-
 ___
+
 
 ### 15. Puasa Tasu'a
-
 ___
-
 ada sahabat yang berkata: "Ya Rasulullah, sesungguhnya hari Asyuro' adalah hari yang diagungkan orang yahudi dan nasrani"
 Kemudian Nabi -Shallallahu 'alaihi wasallam- bersabda,
 "Tahun depan, kita akan berpuasa di tanggal 9".
@@ -244,13 +240,16 @@ read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 
 ___
 
-### 16. Judul
-
+### 16. Bid'ah 10 Muharram
 ___
+al-Hafizh Ibnu Rojab berkata,
+“Adapun menjadikan hari asyuro sebagai hari kesedihan/ratapan sebagaimana dilakukan oleh kaum Rofidhah karena terbunuhnya Husain bin Ali, maka hal itu termasuk perbuatan orang yang tersesat usahanya dalam kehidupan dunia sedangkan dia mengira berbuat baik. Allah dan rasulNya saja tidak pernah memerintahkan agar hari mushibah dan kematian para Nabi dijadikan ratapan, lantas bagaimana dengan orang yang selain mereka?!”
 
-text
+Lathoiful Ma'arif, Hlm 113
+Dinukil dari Muslim.or.id dalam artikel berjudul "11 Amalan Bidah di Bulan Muharram"
+read more : https://muslim.or.id/23085-11-amalan-bidah-di-bulan-muharram.html
 
-- [x] 24-5-21
+- [x] 24-5-21 // repost 19-08-20
 
 ___
 
