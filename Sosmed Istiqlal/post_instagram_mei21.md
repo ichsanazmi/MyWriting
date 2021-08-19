@@ -145,9 +145,7 @@ read more : https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.ht
 ___
 
 ### 10. Maksimal dalam Mengikhlaskan Amal
-
 ___
-
 Maimun bin Mihran -rahimahullah- berkata,
 "Sungguh Amal kalian itu sedikit, Berbuat ikhlaslah untuk yang sedikit ini"
 (Al-Hilyah Karya Abu Nu'aim, 4:29)
@@ -166,7 +164,6 @@ read more : https://rumaysho.com/28566-amal-kita-masih-sedikit.html
 - [] 14-5-21
 ___
 
-
 ### 11. Bersabar Atas Ujian
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
@@ -180,7 +177,6 @@ read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kat
 - [] 17-5-21
 ___
 
-
 ### 12. Pintu Surga Bagi Wanita
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
@@ -192,8 +188,8 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Ole
 read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
 - [] 18-5-21
-___ 
 
+___ 
 
 ### 13. Keutamaan Puasa Asyura
 ___
@@ -202,27 +198,30 @@ Abu Qatadah Al-Anshori -radhiallahu 'anhu- berkata,
 Puasa Asyuro' menjadi penebus dosa setahun yang telah lewat"
 
 HR. Muslim dan Ahmad
-Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan Muharram"
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Bulan Muharram"
 
 read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 
 - [x] 19-5-21 // repost 18-08-20
-___
 
+___
 
 ### 14. Memperbanyak Puasa di Muharram
 ___
 Abu Hurairah -radhiallahu 'anhu- berkata,
 "Sebaik-baik puasa setelah ramadhan adalah puasa di bulan Allah, bulan Muharram"
-
 HR. Muslim
-Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan Muharram"
 
-read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
+Imam An-Nawawi -rahimahullah- berkata,
+"Hadits ini menunjukkan bahwa muharram adalah bulan yang paling mulia untuk melaksanakan puasa sunnah"
+Syarah Shahih Muslim
 
-- [ ] 20-5-21 // repost 17-08-20
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Keutamaan Bulan Ramadhan"
+
+read more : https://konsultasisyariah.com/8913-keutamaan-bulan-muharram.html
+
+- [x] 20-5-21 // repost 17-08-20
 ___
-
 
 ### 15. Puasa Tasu'a
 ___
@@ -232,7 +231,7 @@ Kemudian Nabi -Shallallahu 'alaihi wasallam- bersabda,
 Namun belum sampai tahun depan, Nabi -shallallahu 'alaihi wasallam- sudah diwafatkan
 
 HR. Bukhari
-Dinukil dari laman "Konsultasi Syariah" dalam artikel berjudul "Amalan di Bulan Muharram"
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Bulan Muharram"
 
 read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 
@@ -241,7 +240,9 @@ read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 ___
 
 ### 16. Bid'ah 10 Muharram
+
 ___
+
 al-Hafizh Ibnu Rojab berkata,
 “Adapun menjadikan hari asyuro sebagai hari kesedihan/ratapan sebagaimana dilakukan oleh kaum Rofidhah karena terbunuhnya Husain bin Ali, maka hal itu termasuk perbuatan orang yang tersesat usahanya dalam kehidupan dunia sedangkan dia mengira berbuat baik. Allah dan rasulNya saja tidak pernah memerintahkan agar hari mushibah dan kematian para Nabi dijadikan ratapan, lantas bagaimana dengan orang yang selain mereka?!”
 
