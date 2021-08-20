@@ -209,7 +209,25 @@ Siyar A'lam Nubala, 15/13,
 Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
 
 Read More : https://www.facebook.com/story.php?story_fbid=170577962960816&id=100005284324087
-
 ___
 
-# 
+### Dampak Yang Besar
+___
+Yahya ibn Abi Katsir Al-Yamani -rahimahullah- berkata,
+"Orang yang berbuat namimah (adu domba) membuat kerusakan hanya dalam waktu sesaat mengalahkan kerusakan yang diperbuat tukang sihir dalam waktu sebulan"
+
+Hilyatul Aulia, 3:70
+Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi yang haram dan akhlak jelek penutup"
+
+read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
+___
+
+### Ghibah
+___
+Hai orang-orang yang beriman, jauhilah kebanyakan prasangka, karena sebagian dari prasangka itu dosa. Dan janganlah mencari-cari keburukan orang. Jangan pula menggunjing satu sama lain. Adakah seorang di antara kamu yang suka memakan daging saudaranya yang sudah mati? Maka tentulah kamu merasa jijik kepadanya. dan bertakwalah kepada Allah. Sesungguhnya Allah Maha Penerima taubat lagi Maha Penyayang.”
+
+QS. Al Hujurat: 12
+Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi yang haram dan akhlak jelek penutup"
+
+read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
+___
