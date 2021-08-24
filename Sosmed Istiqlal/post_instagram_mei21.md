@@ -129,9 +129,7 @@ read more : https://muslim.or.id/67391-ingin-jadi-youtuber-terkenal.html
 ___
 
 ### 9. Meluruskan Niat Belajar
-
 ___
-
 Rasulullah shallallahu ‘alaihi wa sallam bersabda,
 “Barangsiapa yang mempelajari suatu ilmu (belajar agama) yang seharusnya diharap adalah wajah Allah, tetapi ia mempelajarinya hanyalah untuk mencari harta benda dunia, maka dia tidak akan mendapatkan wangi surga di hari kiamat.” 
 
@@ -141,7 +139,6 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Belajar Agama Hanya Untuk Me
 read more : https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.html
 
 - [] 13-5-21
-
 ___
 
 ### 10. Maksimal dalam Mengikhlaskan Amal
@@ -151,7 +148,6 @@ Maimun bin Mihran -rahimahullah- berkata,
 (Al-Hilyah Karya Abu Nu'aim, 4:29)
 
 Faidah :
-
 1. Kita jangan merasa telah beramal banyak.
 2. Selalulah merasa kurang dalam beramal, jangan pernah puas dengan yang sedikit.
 3. Ibadah itu harus ikhlas, cari ridha Allah.
@@ -162,6 +158,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Amal Kita Masih Sedikit" den
 read more : https://rumaysho.com/28566-amal-kita-masih-sedikit.html
 
 - [] 14-5-21
+
 ___
 
 ### 11. Bersabar Atas Ujian
@@ -175,6 +172,7 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Bolehkah Menghina Covid1
 read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kata-kasar.html
 
 - [] 17-5-21
+
 ___
 
 ### 12. Pintu Surga Bagi Wanita
@@ -188,7 +186,6 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Ole
 read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
 - [] 18-5-21
-
 ___ 
 
 ### 13. Keutamaan Puasa Asyura
@@ -221,10 +218,13 @@ Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Keutamaan Bulan Ra
 read more : https://konsultasisyariah.com/8913-keutamaan-bulan-muharram.html
 
 - [x] 20-5-21 // repost 17-08-20
+
 ___
 
 ### 15. Puasa Tasu'a
+
 ___
+
 ada sahabat yang berkata: "Ya Rasulullah, sesungguhnya hari Asyuro' adalah hari yang diagungkan orang yahudi dan nasrani"
 Kemudian Nabi -Shallallahu 'alaihi wasallam- bersabda,
 "Tahun depan, kita akan berpuasa di tanggal 9".
