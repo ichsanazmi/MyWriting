@@ -105,7 +105,7 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Kiat-Kiat Agar Do'a dika
 
 read more : https://muslim.or.id/66756-kiat-kiat-agar-doa-dikabulkan-bag-2.html
 
-- [] 11-5-21
+- [x] 11-5-21
 
 ___
 
@@ -124,12 +124,14 @@ Faidhul Qadir, 3/129
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Ingin Jadi Youtuber Terkenal"
 read more : https://muslim.or.id/67391-ingin-jadi-youtuber-terkenal.html
 
-- [] 12-5-21
+- [x] 12-5-21
 
 ___
 
 ### 9. Meluruskan Niat Belajar
+
 ___
+
 Rasulullah shallallahu ‘alaihi wa sallam bersabda,
 “Barangsiapa yang mempelajari suatu ilmu (belajar agama) yang seharusnya diharap adalah wajah Allah, tetapi ia mempelajarinya hanyalah untuk mencari harta benda dunia, maka dia tidak akan mendapatkan wangi surga di hari kiamat.” 
 
@@ -138,16 +140,20 @@ HR. Abu Daud no. 3664, Ibnu Majah no. 252 dan Ahmad 2: 338. Syaikh Al Albani men
 Dinukil dari laman Rumaysho dalam artikel berjudul "Belajar Agama Hanya Untuk Mencari Dunia"
 read more : https://rumaysho.com/7252-belajar-agama-hanya-untuk-mencari-dunia.html
 
-- [] 13-5-21
+- [x] 13-5-21
+
 ___
 
 ### 10. Maksimal dalam Mengikhlaskan Amal
+
 ___
+
 Maimun bin Mihran -rahimahullah- berkata,
 "Sungguh Amal kalian itu sedikit, Berbuat ikhlaslah untuk yang sedikit ini"
 (Al-Hilyah Karya Abu Nu'aim, 4:29)
 
 Faidah :
+
 1. Kita jangan merasa telah beramal banyak.
 2. Selalulah merasa kurang dalam beramal, jangan pernah puas dengan yang sedikit.
 3. Ibadah itu harus ikhlas, cari ridha Allah.
@@ -162,7 +168,9 @@ read more : https://rumaysho.com/28566-amal-kita-masih-sedikit.html
 ___
 
 ### 11. Bersabar Atas Ujian
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Sesungguhnya besarnya ganjaran itu sesuai besarnya ujian. Dan sungguh bila Allah Ta'ala mencintai suatu kaum, maka Allah akan mengujinya. Siapa yang ridho akan ujian itu, maka baginya keridhoan Allah. Dan Siapa yang marah atau benci terhadap ujian itu, maka baginya kebencian Allah"
 
@@ -171,12 +179,14 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Bolehkah Menghina Covid1
 
 read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kata-kasar.html
 
-- [] 17-5-21
+- [x] 17-5-21
 
 ___
 
 ### 12. Pintu Surga Bagi Wanita
+
 ___
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 "Apabila seorang wanita mengerjakan shalat lima waktu, mengerjakan puasa di bulan Ramadhan, menjaga kemaluan, dan menaati suami, maka ia akan masuk surga dari pintu mana saja yang ia inginkan” 
 
@@ -186,10 +196,13 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Ole
 read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
 - [] 18-5-21
+
 ___ 
 
 ### 13. Keutamaan Puasa Asyura
+
 ___
+
 Abu Qatadah Al-Anshori -radhiallahu 'anhu- berkata,
 "Nabi -Shallallahu 'Alaihi Wasallam- ditanya tentang puasa asyuro' , beliau menjawab, 
 Puasa Asyuro' menjadi penebus dosa setahun yang telah lewat"
@@ -204,7 +217,9 @@ read more : https://konsultasisyariah.com/8907-amalan-di-bulan-muharram.html
 ___
 
 ### 14. Memperbanyak Puasa di Muharram
+
 ___
+
 Abu Hurairah -radhiallahu 'anhu- berkata,
 "Sebaik-baik puasa setelah ramadhan adalah puasa di bulan Allah, bulan Muharram"
 HR. Muslim
@@ -251,18 +266,20 @@ Dinukil dari Muslim.or.id dalam artikel berjudul "11 Amalan Bidah di Bulan Muhar
 read more : https://muslim.or.id/23085-11-amalan-bidah-di-bulan-muharram.html
 
 - [x] 24-5-21 // repost 19-08-20
-
 ___
 
-### 17. Judul
-
+### 17. Cobaan Bagi Laki-Laki
 ___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Tidaklah ada sepeninggalku fitnah (cobaan) yang paling berbahaya bagi lelaki selain fitnah (cobaan) terhadap wanita”
 
-text
+HR. Bukhari & Muslim 
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Oleh Laki-Laki"
 
-- [x] 25-5-21
+Read More : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
----
+- [] 25-5-21
+___
 
 ### 18. Judul
 

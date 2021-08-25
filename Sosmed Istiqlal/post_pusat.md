@@ -172,7 +172,7 @@ dalam artikel yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://muslim.or.id/17854-puasa-senin-kamis.html
 
-- [x ] 30-07-20
+- [x] 30-07-20
 
 ___
 
@@ -2522,7 +2522,7 @@ QS. An-Nisa’ 4:34
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Para Wanita Perindu Surga"
 yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
 
-read more : [Para Wanita Perindu Surga](https://muslim.or.id/57256-para-wanita-perindu-surga.html)
+read more : https://muslim.or.id/57256-para-wanita-perindu-surga.html
 
 ```
 #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #wanita #shalihah
