@@ -1,3 +1,11 @@
+## 18. Air Mata
+
+## 18. Air Mata
+
+## 18. Air Mata
+
+## 18. Air Mata
+
 # Post Instagram Mei
 
 ### 1. Hari Banyak Mengingat Allah
@@ -266,10 +274,13 @@ Dinukil dari Muslim.or.id dalam artikel berjudul "11 Amalan Bidah di Bulan Muhar
 read more : https://muslim.or.id/23085-11-amalan-bidah-di-bulan-muharram.html
 
 - [x] 24-5-21 // repost 19-08-20
+
 ___
 
 ### 17. Cobaan Bagi Laki-Laki
+
 ___
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 "Tidaklah ada sepeninggalku fitnah (cobaan) yang paling berbahaya bagi lelaki selain fitnah (cobaan) terhadap wanita”
 
@@ -278,16 +289,21 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Ole
 
 Read More : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
-- [] 25-5-21
-___
-
-### 18. Judul
+- [x] 25-5-21
 
 ___
 
-text
+## 18. Air Mata Rasa Takut
+___
+Nabi Shallallâhu ‘alaihi wa sallam bersabda,
+“Ada dua buah mata yang tidak akan tersentuh api neraka, (Salah satunya) mata yang menangis karena merasa takut kepada Allah...”
 
-- [x] 26-5-21
+HR. Tirmidzi, No. 1639, disahihkan Syaikh Al-Albani 
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Sering menangis karena film sedih namun tidak pernah menangis karena Allah" dengan sedikit penyesuaian
+
+Read More : https://muslim.or.id/28438-sering-menangis-karena-film-sedih-namun-tidak-pernah-menangis-karena-allah.html
+
+- [ ] 26-5-21
 
 ___
 
