@@ -2,31 +2,6 @@
 
 ___ 
 
-### Lupa Akan Tujuan Penciptaan
-
-___
-
-Syaikh Utsaimin -rahimahullah- berkata,
-"Seandainya manusia diciptakan untuk dunia, niscaya para Nabi dan Rasul adalah orang-orang yang paling utama untuk kekal di dalamnya.
-Kita tahu kita ini tidak tercipta untuk dunia,
-Namun mengapakah kita saling bersaing dengan para pecinta dunia?
-Mengapakah kita melupakan akhirat?
-Tidakkah pernah terlintas pada diri seseorang yang mengenakan baju barunya, betapa bisa saja ia akan mengenakan kain kafan di akhir siang.
-Atau (terpikirkan oleh dirinya) ketika ia di malam hari, bisa jadi ia mengenakan kain kafannya sebelum shubuh.
-Akan tetapi hati kita senantiasa lalai, kita memohon kepada Allah agar menghidupkan hati-hati kita dengan ilmu dan iman."
-
-ﺷﺮﺡ ﺍلنونية ٤٧٤/٤
-
-Dinukil dari status facebook
-yang ditulis oleh Ustadz Boris Tanesia -Hafizhahullah- 
-
-read more :
-https://web.facebook.com/story.php?story_fbid=10219134756060580&id=1257341801
-
-- [ ] notposted
-
-___ 
-
 ### Doa Masuk WC
 
 ___
@@ -71,55 +46,6 @@ read more : https://muslimafiyah.com/ini-alasan-kenapa-doa-keluar-wc-meminta-amp
 
 ___ 
 
-### Menggapai Surga
-
-___
-
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Barangsiapa menempuh jalan menuntut ilmu, maka Allah akan memudahkan jalannya untuk menuju surga"
-
-HR. Tirmidzi
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Menghadiri Majelis Ilmu Di Masjid"
-yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masjid.html
-
-- [ ] notposted
-
-___ 
-
-### Keutamaan Menuntut Ilmu
-
-___
-
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Tidaklah suatu kaum berkumpul di salah satu rumah dari rumah-rumah Allah (masjid) membaca Kitabullah dan saling mempelajarinya, melainkan akan turun kepada mereka sakinah (ketenangan), mereka akan dinaungi rahmat, mereka akan dilingkupi para malaikat dan Allah akan menyebut-nyebut mereka di sisi para makhluk yang dimuliakan di sisi-Nya"
-
-HR. Muslim
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Menghadiri Majelis Ilmu Di Masjid"
-yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masjid.html
-
-___ 
-
-### Istirahat Yang Berpahala
-
-___
-
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Hendaknya kalian melakukan qoilulah atau istirahat siang karena setan itu tidak beristirahat siang"
-
-Silsilah Shahihah karya Al Albani no 1627
-Dinukil dari laman UstadzAris dalam artikel yang berjudul "Istirahat Yang Berpahala"
-yang ditulis Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://ustadzaris.com/istirahat-berpahala
-
-- [ ] notposted
-
-___
-
 ### Berbulan-bulan Sebelumnya
 
 ___
@@ -134,81 +60,7 @@ read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bu
 
 ___
 
-### Menghindari Rasa Malas Sejak Pagi
-
-___
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-"Setan akan mengikat tengkuk salah seorang dari kalian saat dia tidur dengan tiga ikatan. Dengan setiap ikatan, dia akan membisikkan padamu bahwa malam masih panjang. Jika dia terbangun lalu berdzikir kepada Allah, lepaslah satu ikatan. Jika dia berwudhu, maka lepaslah dua ikatan. Jika dia melanjutkan dengan shalat, maka lepaslah seluruh ikatan itu. Sehingga pada harinya, dia mulai dengan penuh semangat dan jiwanya pun sehat. Namun jika tidak, dia akan memasuki waktu pagi dengan jiwa yang sakit dan penuh dengan kemalasan"
-
-HR Bukhari Muslim
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Menjaga Shalat Subuh Secara Berjama'ah"
-
-read more : https://muslim.or.id/59314-menjaga-salat-subuh-secara-berjamaah.html
-
-___
-
-### Manfaat Mengingat Kematian
-
-___
-
-Ad-Daqqaq -rahimahullah- menjelaskan,
-“Barangsiapa yang banyak mengingat kematian, dia akan dimuliakan dengan tiga perkara, yaitu: (1) bersegera dalam bertaubat, (2) hati yang qanaah, (3) bersemangat melakukan ibadah.
-
-Barangsiapa yang lupa mengingat kematian, dia akan dihukum dengan tiga perkara, yaitu: (1) menunda-nunda taubat, (2) tidak rida terhadap pemberian (takdir) Allah, (3) malas beribadah” 
-
-At-Tadzkirah, 1: 27
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Begini Maksud Perintah Sering Mengingat Kematian"
-Read more : https://muslim.or.id/59956-begini-maksud-perintah-sering-mengingat-kematian.html
-
-___
-
-### Orang Yang Paling Cerdas
-
-___
-
-Ibnu ‘Umar -radhiyallahu ‘anhuma- pernah bertanya kepada Rasulullah -shallallahu alaihi wasallam-,
-“Lalu mukmin manakah yang paling cerdas ?"
-Beliau -shallallahu ‘alaihi wasallam- bersabda, 
-"Yang paling banyak mengingat kematian dan yang paling baik dalam mempersiapkan diri untuk  untuk alam berikutnya. Itulah mereka yang paling cerdas" 
-
-HR. Ibnu Majah
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Begini Maksud Perintah Sering Mengingat Kematian"
-Read More : https://muslim.or.id/59956-begini-maksud-perintah-sering-mengingat-kematian.html
-
-
-
-___
-
 ### Di Doakan Malaikat
-
-___
-
-### Dosa (blm fix)
-
-___
-
-Yahya bin Mu'adz -rahimahullah- mengatakan,
-"Jangan berprasangka bahwa Allah itu lamban mengabulkan doamu padahal jalan ijabah doa telah kau tutup rapat-rapat dengan berbagai dosa yang kau lakukan"
-
-Siyar A'lam Nubala, 15/13, 
-Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
-
-Read More : https://www.facebook.com/story.php?story_fbid=170577962960816&id=100005284324087
-
-___
-
-### Dampak Yang Besar
-
-___
-
-Yahya ibn Abi Katsir Al-Yamani -rahimahullah- berkata,
-"Orang yang berbuat namimah (adu domba) membuat kerusakan hanya dalam waktu sesaat mengalahkan kerusakan yang diperbuat tukang sihir dalam waktu sebulan"
-
-Hilyatul Aulia, 3:70
-Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi yang haram dan akhlak jelek penutup"
-
-read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
 
 ___
 
@@ -216,7 +68,7 @@ ___
 
 ___
 
-Hai orang-orang yang beriman, jauhilah kebanyakan prasangka, karena sebagian dari prasangka itu dosa. Dan janganlah mencari-cari keburukan orang. Jangan pula menggunjing satu sama lain. Adakah seorang di antara kamu yang suka memakan daging saudaranya yang sudah mati? Maka tentulah kamu merasa jijik kepadanya. dan bertakwalah kepada Allah. Sesungguhnya Allah Maha Penerima taubat lagi Maha Penyayang.”
+Hai orang-orang yang beriman, jauhilah kebanyakan prasangka, karena sebagian dari prasangka itu dosa. Dan janganlah mencari-cari keburukan orang. Jangan pula menggunjing satu sama lain. Adakah seorang di antara kamu yang suka memakan daging saudaranya yang sudah mati? Maka tentulah kamu merasa jijik kepadanya. dan bertakwalah kepada Allah. Sesungguhnya Allah Maha Penerima taubat lagi Maha Penyayang.
 
 QS. Al Hujurat: 12
 Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi yang haram dan akhlak jelek penutup"
@@ -224,3 +76,5 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi ya
 read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
 
 ___
+
+_

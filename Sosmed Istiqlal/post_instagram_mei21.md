@@ -1,11 +1,3 @@
-## 18. Air Mata
-
-## 18. Air Mata
-
-## 18. Air Mata
-
-## 18. Air Mata
-
 # Post Instagram Mei
 
 ### 1. Hari Banyak Mengingat Allah
@@ -191,7 +183,7 @@ read more : https://muslim.or.id/67320-bolehkah-menghina-covid19-dengan-kata-kat
 
 ___
 
-### 12. Pintu Surga Bagi Wanita
+### 12. Pintu Surga Mana Saja Bagi Wanita
 
 ___
 
@@ -294,7 +286,9 @@ Read More : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 ___
 
 ## 18. Air Mata Rasa Takut
+
 ___
+
 Nabi Shallallâhu ‘alaihi wa sallam bersabda,
 “Ada dua buah mata yang tidak akan tersentuh api neraka, (Salah satunya) mata yang menangis karena merasa takut kepada Allah...”
 
@@ -303,34 +297,53 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Sering menangis karena f
 
 Read More : https://muslim.or.id/28438-sering-menangis-karena-film-sedih-namun-tidak-pernah-menangis-karena-allah.html
 
-- [ ] 26-5-21
+- [x] 26-5-21
 
 ___
 
-### 19. Judul
+### 19. Jangan Mengadu Domba
+
+---
+
+Yahya ibn Abi Katsir Al-Yamani -rahimahullah- berkata,
+"Orang yang berbuat namimah (adu domba) membuat kerusakan hanya dalam waktu sesaat mengalahkan kerusakan yang diperbuat tukang sihir dalam waktu sebulan"
+
+Hilyatul Aulia, 3:70
+Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi yang haram dan akhlak jelek penutup"
+
+read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
+
+- [ ] 27-5-21
 
 ___
 
-text
+### 20. Menutup Jalan Ijabah Do'a
 
-- [x] 27-5-21
+---
 
-___
+Yahya bin Mu'adz -rahimahullah- mengatakan,
+"Jangan berprasangka bahwa Allah itu lamban mengabulkan doamu padahal jalan ijabah doa telah kau tutup rapat-rapat dengan berbagai dosa yang kau lakukan"
 
-### 20. Judul
+Siyar A'lam Nubala, 15/13, 
+Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
 
-___
+Read More : https://www.facebook.com/story.php?story_fbid=170577962960816&id=100005284324087
 
-text
-
-- [x] 28-5-21
-
-___
-
-### 21. Judul
+- [ ] 28-5-21
 
 ___
 
-text
+### 21. Manfaat Mengingat Kematian
 
-- [x] 31-5-21
+---
+
+Ad-Daqqaq -rahimahullah- menjelaskan,
+“Barangsiapa yang banyak mengingat kematian, dia akan dimuliakan dengan tiga perkara, yaitu: (1) bersegera dalam bertaubat, (2) hati yang qanaah, (3) bersemangat melakukan ibadah.
+
+Barangsiapa yang lupa mengingat kematian, dia akan dihukum dengan tiga perkara, yaitu: (1) menunda-nunda taubat, (2) tidak rida terhadap pemberian (takdir) Allah, (3) malas beribadah”
+
+At-Tadzkirah, 1: 27
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Begini Maksud Perintah Sering Mengingat Kematian"
+Read more : https://muslim.or.id/59956-begini-maksud-perintah-sering-mengingat-kematian.html
+
+- [ ] 31-5-21

@@ -1,6 +1,6 @@
 # Post Pusat
 
-## Juni
+## Juni 2020 (QC)
 
 ### 1. Keindahan Sabar (1)
 
@@ -86,7 +86,7 @@ ___
 Rasulullah shallallahu ‘alaihi wa sallam bersabda :
 "Barangsiapa yang Allah kehendaki menjadi baik
 maka Allah faqihkan (memahamkan) dia terhadap agama"
-"
+
 HR. Bukhari No 69, dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
 
 - [x] 24-07-20
@@ -120,7 +120,7 @@ Syaikhul Islam Ibnu Taimiyah rahimahullah berkata,
 Majmu' Fatawa, 8/454, Dinukil dari status Ustadz Abu Razin Taufiq -Hafizhahullah-
 (https://www.facebook.com/abu.yusha/)
 
-- [x ] 27-07-20
+- [x] 27-07-20
 
 ___
 
@@ -137,7 +137,7 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://muslim.or.id/294-puasa-sunnah.html
 
-- [x ] 28-07-20
+- [x] 28-07-20
 
 ___
 
@@ -156,7 +156,7 @@ dalam artikel yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahul
 
 read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah.html
 
-- [ ] 29-07-20
+- [x] 29-07-20
 
 ___
 
@@ -194,13 +194,15 @@ read more : https://rumaysho.com/863-lakukanlah-puasa-sunnah-minimal-sebulan-3-k
 
 ___
 
-## Agustus
+## Agustus 2020 (QC)
 
 ### 1. Introspeksi Diri (1)
 
 ___
 
-Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan, “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
+Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan,
+
+s“Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya.
 
 Tarikh Baghdad, 4:148. Lihat A’mal Al-Qulub, hlm. 372, dinukil dari laman rumaysho.com
 dalam tulisan Ustadz Muhammad Abduh Tuasikal, M.Sc -hafizhohullah- dengan judul "Bisakah Jadi Lebih Baik"
@@ -622,7 +624,7 @@ yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 
 ___
 
-## September
+## September (QC)
 
 ### 1. Berputar Arah (1)
 
@@ -652,7 +654,7 @@ yang ditulis oleh Ustadz Nurfitri Hadi -Hafizhahullah-
 
 read more : https://konsultasisyariah.com/10341-keutamaan-shalat-qabliyah-shubuh.html
 
-- [ ] 2-9-20
+- [x] 2-9-20
 
 ___
 
@@ -676,7 +678,7 @@ oleh Ustadz Nurfitri Hadi -Hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://konsultasisyariah.com/10341-keutamaan-shalat-qabliyah-shubuh.html
 
-- [ ] 3-9-20
+- [x] 3-9-20
 
 ___
 
@@ -692,7 +694,7 @@ Dinukil dari Ensiklopedia Hadits Lidwa Pustaka
 
 read more : https://hadits.in/ibnumajah/3793
 
-- [ ] 4-9-20
+- [x] 4-9-20
 
 ___
 
@@ -708,7 +710,7 @@ Dinukil dari Ensiklopedia Hadits Lidwa Pustaka
 
 read more : https://hadits.in/ibnumajah/3793
 
-- [ ] 7-9-20
+- [x] 7-9-20
 
 ___
 
@@ -727,7 +729,7 @@ Dinukil dari Ensiklopedia Hadits Lidwa Pustaka
 
 read more : https://hadits.in/muslim/4816
 
-- [ ] 8-9-20
+- [x] 8-9-20
 
 ___
 
@@ -742,7 +744,7 @@ oleh Ustadz dr. Raehanul Bahraen, M.Sc, Sp.PK -Hafizhahullah- dengan sedikit pen
 
 read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
 
-- [ ] 9-9-20
+- [x] 9-9-20
 
 ___
 
@@ -769,7 +771,7 @@ oleh Ustadz dr. Raehanul Bahraen, M.Sc, Sp.PK -Hafizhahullah- dengan sedikit pen
 
 read more : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-3.html
 
-- [ ] 10-9-20
+- [x] 10-9-20
 
 ___
 
@@ -784,7 +786,7 @@ oleh Ustadz Ari Wahyudi, S.Si -Hafizhahullah-
 
 read more : https://muslim.or.id/58455-untuk-apa-kamu-hidup.html
 
-- [ ] 11-9-20
+- [x] 11-9-20
 
 ___
 
@@ -812,7 +814,7 @@ Dinukil dari Ustadzaris.com dalam artikel berjudul "Amanah"Berupa Wanita"
 
 read more : https://ustadzaris.com/amanah-berupa-wanita
 
-- [ ] 14-9-20
+- [x] 14-9-20
 
 ___
 
@@ -827,7 +829,7 @@ yang ditulis oleh Ustadz Ahmad Anshori, Lc. -Hafizhahullah-
 
 read more : https://muslim.or.id/54491-agar-aku-sukses-menuntut-ilmu-bag-7-optimalkan-masa-muda-untuk-belajar.html
 
-- [ ] 15-9-20
+- [x] 15-9-20
 
 ___
 
@@ -846,7 +848,7 @@ yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
 read more :
 https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
 
-- [ ] 16-9-20
+- [x] 16-9-20
 
 ___
 
@@ -869,7 +871,7 @@ YAKINLAH ALLAH MAHA MELIHAT
 
 Semoga Allah memberikan kemudahan disetiap mengerjakan soal-soal, aamiin
 
-- [ ] 17-9-20
+- [x] 17-9-20
 
 ___
 
@@ -879,7 +881,7 @@ Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat s
 
 Dinukil dari status yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- via laman facebook beliau
 
-- [ ] 18-9-20
+- [x] 18-9-20
 
 ___
 
@@ -894,7 +896,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
 read more :
 https://rumaysho.com/2822-kematian-yang-kembali-menyadarkan-kita.html
 
-- [ ] 21-9-20
+- [x] 21-9-20
 
 ___
 
@@ -911,7 +913,7 @@ yang ditulis oleh Ustadz Ahmad Zainuddin, Lc. -Hafizhahullah-
 read more :
 https://muslim.or.id/8076-ingat-mati-2.html
 
-- [ ] 22-9-20
+- [x] 22-9-20
 
 ___
 
@@ -928,7 +930,7 @@ yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
 read more :
 https://t.me/wawasan_muslim/6560
 
-- [ ] 23-9-20
+- [x] 23-9-20
 
 ___
 
@@ -944,7 +946,7 @@ yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
 read more :
 https://t.me/wawasan_muslim/6465
 
-- [ ] 24-9-20
+- [x] 24-9-20
 
 ___
 
@@ -965,7 +967,7 @@ read more :
 
 - https://tulisanterkini.com/artikel/keislaman/ahlaq/128-said-bin-abdul-aziz-.html
 
-- [ ] 25-9-20
+- [x] 25-9-20
 
 ___
 
@@ -988,7 +990,7 @@ Penanggalan Hijriah Diambil Dari Web IslamicFinder.org
 read more :
 https://muslim.or.id/17851-puasa-tiga-hari-setiap-bulan-dan-puasa-ayyamul-bidh.html
 
-- [ ] 28-9-20
+- [x] 28-9-20
 
 ___
 
@@ -1009,7 +1011,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
 read more :
 https://rumaysho.com/10672-berbohong-dalam-candaan.html
 
-- [ ] 29-9-20
+- [x] 29-9-20
 
 ___
 
@@ -1027,7 +1029,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
 read more :
 https://ruqoyyah.com/1318-doa-itu-ibadah.html
 
-- [ ] 30-9-20
+- [x] 30-9-20
 
 ___
 
@@ -1479,7 +1481,7 @@ Dinukil dari status Ustadz Abu Razin Taufiq -Hafizhahullah-
 
 ___
 
-[x] 31-10-20 / repost 27-07-20
+- [x] 31-10-20 / repost 27-07-20
 
 ### 23. Sejarak 70 Tahun Perjalanan (Juni '20)
 
@@ -3551,7 +3553,7 @@ Lathaiful Ma'arif
 
 Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
 
-read more : [Muslim Harus Punya Motivasi Tinggi dalam Belajar Agama](https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html)
+read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 
 - [x] 30-3-21 // Ramadhan
 
@@ -3990,7 +3992,3 @@ read more : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 - [ ] 03-08-20
 
 ___
-
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbODI3Mzc5ODIwXX0=
--->
