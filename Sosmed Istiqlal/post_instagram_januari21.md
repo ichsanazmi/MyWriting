@@ -15,7 +15,7 @@ yang ditulis oleh Ustadz Muhamad Fajri, M.Pd.I -Hafizhahullah- dengan sedikit pe
 read more :
 https://www.facebook.com/fajri1411/posts/1412878952397650
 
-- [ ] 1-1-21
+- [x] 1-1-21
 
 ___ 
 
@@ -33,7 +33,7 @@ yang ditulis Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahullah-
 read more :
 https://rumaysho.com/25932-manfaat-bersyukur-kembali-pada-yang-bersyukur.html
 
-- [ ] 3-1-21
+- [x] 3-1-21
 
 ___ 
 
@@ -50,7 +50,7 @@ yang ditulis Ustadz dr Raehanul Bahraen, Sp.Pk -Hafizhahullah- dengan sedikit pe
 
 read more : https://muslimafiyah.com/rasa-lelah-adalah-penghapus-dosa.html
 
-- [ ] 4-1-21
+- [x] 4-1-21
 
 ___ 
 
@@ -68,7 +68,7 @@ yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah-
 read more :
 https://firanda.com/3759-sepuluh-sebab-penggugur-dosa.html
 
-- [ ] 5-1-21
+- [x] 5-1-21
 
 ___ 
 
@@ -85,7 +85,7 @@ yang ditulis oleh Ustadz Dr. Firanda Andirja, Lc. MA. -Hafizhahullah-
 
 read more : https://firanda.com/3759-sepuluh-sebab-penggugur-dosa.html
 
-- [ ] 6-1-21
+- [x] 6-1-21
 
 ___ 
 
@@ -106,7 +106,7 @@ yang ditulis oleh Ustadz Boris Tanesia -Hafizhahullah-
 read more :
 https://web.facebook.com/story.php?story_fbid=10216632512146046&id=1257341801
 
-- [ ] 7-1-21
+- [x] 7-1-21
 
 ___ 
 
@@ -124,7 +124,7 @@ yang ditulis oleh Ustadz Musa Mulyadi Luqman, Lc. -Hafizhahullah- dengan sedikit
 read more :
 https://www.facebook.com/musamulyadi/posts/3742809029120040
 
-- [ ] 8-1-21
+- [x] 8-1-21
 
 ___ 
 
@@ -142,7 +142,7 @@ yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit
 read more :
 https://web.facebook.com/story.php?story_fbid=3639808006086810&id=100001729388129
 
-- [ ] 11-1-21
+- [x] 11-1-21
 
 ___ 
 
@@ -159,7 +159,7 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/787-aku-ingin-bertaubat-tetapi.html
 
-- [ ] 12-1-21
+- [x] 12-1-21
 
 ___ 
 
@@ -176,9 +176,7 @@ yang ditulis oleh Ustadz Dr. Muhammad Arifin Badri, Lc. MA. -Hafizhahullah- deng
 read more : 
 https://web.facebook.com/story.php?story_fbid=259400962213308&id=100044302190144
 
-    #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #dagang #jualan
-
-- [ ] 13-1-21
+- [x] 13-1-21
 
 ___ 
 
@@ -198,9 +196,9 @@ yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
 
 read more : https://muslim.or.id/57256-para-wanita-perindu-surga.html
 
-    #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #wanita #shalihah
 
-- [ ] 14-1-21 // repost post agustus
+
+- [x] 14-1-21 // repost post agustus
 
 ___ 
 
@@ -220,9 +218,9 @@ yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit
 read more :
 https://web.facebook.com/story.php?story_fbid=3667743613293249&id=100001729388129
 
-    #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #ilmu
 
-- [ ] 15-1-21
+
+- [x] 15-1-21
 
 ___ 
 
@@ -237,9 +235,9 @@ Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -H
 read more :
 https://www.facebook.com/story.php?story_fbid=2755210197879933&id=100001729388129
 
-    #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #mati
 
-- [ ] 18-1-21
+
+- [x] 18-1-21
 
 ___ 
 
@@ -256,9 +254,9 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/17030-mengejar-shaf-pertama.html
 
-    #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #shalat #shaf_awal
 
-- [ ] 19-1-21 //repost agustus
+
+- [x] 19-1-21 //repost agustus
 
 ___ 
 
@@ -275,9 +273,9 @@ yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
 
 read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
-    #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #lurus #istiqomah
 
-- [ ] 20-1-21 //repost agustus
+
+- [x] 20-1-21 //repost agustus
 
 ___ 
 
@@ -297,9 +295,9 @@ yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
 
 read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
-    #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #lurus #istiqomah
 
-- [ ] 21-1-21 //repost agustus
+
+- [x] 21-1-21 //repost agustus
 
 ___ 
 
@@ -314,9 +312,9 @@ HR. Ibnu Abid Dunya, dihasankan Syaikh Al-Albani dalam Shahiih Al Jaami'ush Shag
 Dinukil dari buku berjudul Adab Bergaul Agar Dicintai Allah Kemudian Dicintai Manusia hal 17
 yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 
-    #nasihat #posterdakwah #dakwah #sunnah #salaf #ilmu #hijrah #lillah #mdc #gembira
 
-- [ ] 22-1-21 //repost agustus
+
+- [x] 22-1-21 //repost agustus
 
 ___ 
 
@@ -332,7 +330,7 @@ apapun yang tersisa dari masa jahiliyahmu hancurkan dan relakan, itulah taubat h
 Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
 dengan sedikit penyesuaian
 
-- [ ] 25-1-21 //repost september
+- [x] 25-1-21 //repost september
 
 ___ 
 
@@ -349,7 +347,7 @@ yang ditulis oleh Ustadz Nurfitri Hadi -Hafizhahullah-
 
 read more : https://konsultasisyariah.com/10341-keutamaan-shalat-qabliyah-shubuh.html
 
-- [ ] 26-1-21 // repost September
+- [x] 26-1-21 // repost September
 
 ___ 
 
@@ -370,7 +368,7 @@ Dinukil dari Ensiklopedia Hadits Lidwa Pustaka
 
 read more : https://hadits.in/muslim/4816
 
-- [ ] 27-1-21 // repost september
+- [x] 27-1-21 // repost september
 
 ___ 
 
@@ -387,7 +385,7 @@ oleh Ustadz Ari Wahyudi, S.Si -Hafizhahullah-
 
 read more : https://muslim.or.id/58455-untuk-apa-kamu-hidup.html
 
-- [ ] 28-1-21 // repost september
+- [x] 28-1-21 // repost september
 
 ___ 
 
@@ -404,4 +402,4 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/14840-arti-laa-hawla-wa-laa-quwwata-illa-billah.html
 
-- [ ] 29-1-21
+- [x] 29-1-21

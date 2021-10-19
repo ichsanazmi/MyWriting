@@ -1057,12 +1057,12 @@ https://muslim.or.id/58612-pondasi-tegaknya-ibadah.html
 ___
 
 - [x] 2-10-20
-  
-  ### 2. Sebuah Perjalanan
+
+### 2. Sebuah Perjalanan
 
 ___
 
- Dari Ibnu Syaudzab ia berkata : ”Ketika menjelang kematiannya, Abu Hurairah radliyallaahu ’anhu sempat menangis. Maka dikatakan kepadanya : ”Apa gerangan yang membuatmu menangis (wahai Abu Hurairah) ?”. Maka ia menjawab :
+Dari Ibnu Syaudzab ia berkata : ”Ketika menjelang kematiannya, Abu Hurairah radliyallaahu ’anhu sempat menangis. Maka dikatakan kepadanya : ”Apa gerangan yang membuatmu menangis (wahai Abu Hurairah) ?”. Maka ia menjawab :
 بُعد المفازة وقلة الزاد وعَقبة كؤود، المهبط منها إلى الجنة أو النا
 ”Jauhnya perjalanan, sedikitnya bekal, dan banyaknya rintangan yang menyusahkan. Sedangkan akhir persinggahan itu bisa ke surga ataupun ke neraka”
 
@@ -1076,8 +1076,8 @@ http://abul-jauzaa.blogspot.com/2008/08/salaf-dalam-rasa-takut-dan-muraqabah.htm
 ___
 
 - [x] 5-10-20
-  
-  ### 3. Pionir Kebaikan
+
+### 3. Pionir Kebaikan
 
 ___
 
@@ -1097,8 +1097,8 @@ https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 ___
 
 - [x] 6-10-20
-  
-  ### 4. Doa Berlindung Dari Keburukan
+
+### 4. Doa Berlindung Dari Keburukan
 
 ___
 
@@ -1117,8 +1117,8 @@ https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 ___
 
 - [x] 7-10-20
-  
-  ### 5. Yakin Akan Rezeki
+
+### 5. Yakin Akan Rezeki
 
 ___
 
@@ -1137,8 +1137,8 @@ https://muslim.or.id/25097-mengapa-ada-yang-mati-kelaparan-padahal-rezeki-sudah-
 ___
 
 - [x] 8-10-20
-  
-  ### 6. Merasa Cukup
+
+### 6. Merasa Cukup
 
 ___
 
@@ -1160,8 +1160,8 @@ https://muslim.or.id/50745-setan-menakut-nakuti-dengan-kemiskinan.html
 ___
 
 - [x] 9-10-20
-  
-  ### 7. Doa Naik Kendaraan
+
+### 7. Doa Naik Kendaraan
 
 ___
 
@@ -1185,8 +1185,8 @@ https://konsultasisyariah.com/22104-doa-agar-dijamin-aman-ketika-keluar-rumah.ht
 ___
 
 - [x] 12-10-20 / repost 20-07-20
-  
-  ### 8. Keindahan Sabar (Juni '20)
+
+### 8. Keindahan Sabar (Juni '20)
 
 ___
 
@@ -1204,8 +1204,8 @@ https://muslim.or.id/20127-bersyukur-ketika-senang-dan-bersabar-ketika-mendapat-
 ___
 
 - [x] 13-10-20
-  
-  ### 9. Qanaah
+
+### 9. Qanaah
 
 ___
 
@@ -1225,8 +1225,8 @@ https://muslim.or.id/25091-kiat-kiat-agar-bisa-qanaah.html
 ___
 
 - [x] 14-10-20 / repost 23-07-20
-  
-  ### 10. Bersabar Dalam Berdoa
+
+### 10. Bersabar Dalam Berdoa
 
 ___
 
@@ -1245,8 +1245,8 @@ https://hadits.in/bukhari/5865
 ___
 
 - [x] 15-10-20
-  
-  ### 11. Pahala Shalat Sepanjang Malam
+
+### 11. Pahala Shalat Sepanjang Malam
 
 ___
 
@@ -1264,8 +1264,8 @@ https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 ___
 
 - [x] 16-10-20
-  
-  ### 12. Syafaat Bagi Pembacanya
+
+### 12. Syafaat Bagi Pembacanya
 
 ___
 
@@ -1284,8 +1284,8 @@ https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 ___
 
 - [x] 19-10-20
-  
-  ### 13. 10 Kebaikan
+
+### 13. 10 Kebaikan
 
 ___
 
@@ -1303,8 +1303,8 @@ https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 ___
 
 - [x] 20-10-20  
-  
-  ### 14. Berharaplah Diterima
+
+### 14. Berharaplah Diterima
 
 ___
 
@@ -1321,8 +1321,8 @@ https://www.facebook.com/musamulyadi/posts/3421645881236358
 ___
 
 - [x] 21-10-20 / repost 24-07-20
-  
-  ### 15. Tanda Kebaikan
+
+### 15. Tanda Kebaikan
 
 ___
 
@@ -1341,8 +1341,8 @@ https://hadits.in/bukhari/69
 ___
 
 - [x] 22-10-20
-  
-  ### 16. Teman yang Shalih
+
+### 16. Teman yang Shalih
 
 ___
 
@@ -1443,9 +1443,9 @@ https://shahihfiqih.com/tazkiyatun-nafz/carilah-teman-yang-shalih/
 
 ___
 
-* [x] 29-10-20
-  
-  ### 21. Doa agar tidak malas, disucikan jiwa, dan diberikan hati yang khusyuk
+- [x] 29-10-20
+
+### 21. Doa agar tidak malas, disucikan jiwa, dan diberikan hati yang khusyuk
 
 ___
 
@@ -1467,8 +1467,8 @@ https://rumaysho.com/21000-doa-agar-tidak-malas-disucikan-jiwa-diberi-hati-yang-
 ___
 
 * [x] 30-10-20 / repost 27-07-20
-  
-  ### 22. Kedermawanan yang tercela (Juni '20)
+
+### 22. Kedermawanan yang tercela (Juni '20)
 
 ___
 
@@ -1500,11 +1500,12 @@ repost juni
 
 ___
 
-## November
+## November (QC)
+
+- [x] 2-11-20
 
 ### 1. Sendiri
 
-___ 2-11-20
 Kelak suatu saat, diri kita akan diantar oleh orang ramai.
 diantar menuju kesendirian.
 sambil menunggu dibangkitkan, juga kelak dalam keadaan sendirian.
@@ -1631,7 +1632,7 @@ https://kangaswad.wordpress.com/2013/12/18/sikap-lemah-lembut-adalah-nikmat-yang
 
 ___
 
-- [ ] 11-11-20
+- [x] 11-11-20
 
 ### 8. Maksiat
 
@@ -1649,7 +1650,7 @@ https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.ht
 
 ___
 
-- [ ] 12-11-20
+- [x] 12-11-20
 
 ### 9. Jangan Merasa Aman
 
@@ -1667,7 +1668,7 @@ https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.ht
 
 ___
 
-- [ ] 13-11-20
+- [x] 13-11-20
 
 ### 10. Hilangnya Berkah
 
@@ -1685,7 +1686,7 @@ https://kangaswad.wordpress.com/2013/10/28/ibnul-qayyim-bicara-tentang-rezeki/
 
 ___
 
-- [ ] 16-11-20
+- [x] 16-11-20
 
 ### 11. Bagaimana Hati Akan Terenyuh
 
@@ -1708,7 +1709,7 @@ https://m.facebook.com/story.php?story_fbid=3508435479224064&id=100001729388129
 
 ___
 
-- [ ] 17-11-20
+- [x] 17-11-20
 
 ### 12. Tujuan Penciptaan
 
@@ -1725,7 +1726,7 @@ https://facebook.com/story.php?story_fbid=3537899999658225&id=100003147806078
 
 ___
 
-- [ ] 18-11-20
+- [x] 18-11-20
 
 ### 13. Manfaat Taqwa
 
@@ -1743,7 +1744,7 @@ https://facebook.com/story.php?story_fbid=10219034393231572&id=1257341801
 
 ___
 
-- [ ] 19-11-20
+- [x] 19-11-20
 
 ### 14. Merasa Agung
 
@@ -1764,7 +1765,7 @@ https://facebook.com/story.php?story_fbid=3538154902918788&id=100001729388129
 
 ___
 
-- [ ] 20-11-20
+- [x] 20-11-20
 
 ### 15.Mengejar Dunia
 
@@ -1782,7 +1783,7 @@ https://facebook.com/story.php?story_fbid=1987392251328402&id=100001729388129
 
 ___
 
-- [ ] 23-11-20
+- [x] 23-11-20
 
 ### 16. Tertutup oleh penyakit
 
@@ -1800,7 +1801,7 @@ https://muslim.or.id/45299-sakit-badan-tidak-merasakan-lezatnya-makanan-penyakit
 
 ___
 
-- [ ] 24-11-20
+- [x] 24-11-20
 
 ### 17. Manisnya Iman
 
@@ -1822,7 +1823,7 @@ https://muslim.or.id/45299-sakit-badan-tidak-merasakan-lezatnya-makanan-penyakit
 
 ___
 
-- [ ] 25-11-20
+- [x] 25-11-20
 
 ### 18. Perayaan Tahun Baru
 
@@ -1852,7 +1853,7 @@ https://islamqa.info/id/answers/177460/hukum-kaum-muslimin-mengucapkan-selamat-t
 
 ___
 
-- [ ] 26-11-20
+- [x] 26-11-20
 
 ### 19. Cara Bersyukur
 
@@ -1872,7 +1873,7 @@ https://muslim.or.id/43833-keadaan-susah-atau-stres-tetap-perhatikan-kebutuhan-h
 
 ___
 
-- [ ] 27-11-20
+- [x] 27-11-20
 
 ### 20. Tiga Golongan Yang Ditolong Allah
 
@@ -1892,7 +1893,7 @@ https://muslim.or.id/57637-janji-allah-akan-menolong-orang-yang-menikah-untuk-me
 
 ___
 
-- [ ] 30-11-20
+- [x] 30-11-20
 
 ### 21. Berdoa Dengan Sepenuh Hati
 
@@ -1909,7 +1910,7 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "7 Catatan mengenai adab
 read more :
 https://rumaysho.com/16893-7-catatan-mengenai-adab-doa.html
 
-___
+____
 
 ## Desember
 

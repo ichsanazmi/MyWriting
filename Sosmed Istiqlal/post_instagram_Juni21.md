@@ -116,8 +116,6 @@ Dari Abu Hurairah bahwa Rasulullah shallallahu ‘alaihi wa sallam bersabda,
 
 Ibnu Hajar menjelaskan, “Ini adalah sebuah ucapan ringkas yang padat makna; semua perkataan bisa berupa kebaikan, keburukan, atau salah satu di antara keduanya. Perkataan baik (boleh jadi) tergolong perkataan yang wajib atau sunnah untuk diucapkan. Karenanya, perkataan itu boleh diungkapkan sesuai dengan isinya. Segala perkataan yang berorientasi kepadanya (kepada hal wajib atau sunnah) termasuk dalam kategori perkataan baik. (Perkataan) yang tidak termasuk dalam kategori tersebut berarti tergolong perkataan jelek atau yang mengarah kepada kejelekan. Oleh karena itu, orang yang terseret masuk dalam lubangnya (perkataan jelek atau yang mengarah kepada kejelekan) hendaklah diam.” **
 
-
-
 *HR. Bukhari Muslim
 
 **Al-Fath, 10:446
@@ -135,8 +133,6 @@ ___
 
 Imam Abu Hatim bin Hibban -rahimahullah- berkata,
 "Lisan seorang yang berakal berada di bawah kendali hatinya. Ketika dia hendak berbicara, dia akan bertanya terlebih dahulu kepada hatinya. Apabila perkataan tersebut bermanfaat bagi dirinya maka dia akan bebicara, tetapi apabila tidak bermanfaat maka dia akan diam. Sementara orang yang bodoh, hatinya berada di bawah kendali lisannya. Dia akan berbicara apa saja yang ingin diucapkan oleh lisannya. Seseorang yang tidak bisa menjaga lidahnya berarti tidak paham terhadap agamanya."
-
-
 
 Raudhah Al-Fuqaha Wa Nazhah Al-Fudhola
 

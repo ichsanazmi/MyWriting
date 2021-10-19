@@ -163,7 +163,7 @@ Faidah :
 Dinukil dari laman Rumaysho dalam artikel berjudul "Amal Kita Masih Sedikit" dengan sedikit perubahan
 read more : https://rumaysho.com/28566-amal-kita-masih-sedikit.html
 
-- [] 14-5-21
+- [x] 14-5-21
 
 ___
 
@@ -195,7 +195,7 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Ole
 
 read more : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
 
-- [] 18-5-21
+- [x] 18-5-21
 
 ___ 
 
@@ -329,7 +329,7 @@ Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
 
 Read More : https://www.facebook.com/story.php?story_fbid=170577962960816&id=100005284324087
 
-- [ ] 28-5-21
+- [x] 28-5-21
 
 ___
 
