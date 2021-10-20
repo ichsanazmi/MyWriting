@@ -313,7 +313,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi ya
 
 read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
 
-- [ ] 27-5-21
+- [x] 27-5-21
 
 ___
 
@@ -346,4 +346,4 @@ At-Tadzkirah, 1: 27
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Begini Maksud Perintah Sering Mengingat Kematian"
 Read more : https://muslim.or.id/59956-begini-maksud-perintah-sering-mengingat-kematian.html
 
-- [ ] 31-5-21
+- [x] 31-5-21

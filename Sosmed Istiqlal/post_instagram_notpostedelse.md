@@ -77,4 +77,32 @@ read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-ak
 
 ___
 
-_
+### Keutamaan Mengajarkan Kebaikan
+
+___
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+“Sesungguhnya Allah dan para Malaikat-Nya, serta semua makhluk di langit dan bumi, bahkan semut-semut dalam lubangnya serta ikan-ikan (di lautan), bershalawat kepada orang yang mengajarkan kebaikan kepada orang lain” 
+
+HR At-Tirmidzi no. 2685, dishahihkan Al Albani dalam Shahih At Tirmidzi  
+
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Didekati Orang Baik"
+
+read more : https://muslim.or.id/53957-didekati-orang-baik.html
+
+____
+
+### Untitled
+
+___
+
+Masruq *rahimahullah* berkata,
+
+“Cukuplah menjadi tanda keilmuan seorang tatkala dia merasa takut kepada Allah. Dan cukuplah menjadi tanda kebodohan seorang apabila dia merasa ujub dengan amalnya.”
+
+Min A’lam As-Salaf 1/23
+
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Celaka atau Bahagia"
+
+read more : https://muslim.or.id/69419-celaka-atau-bahagia.html
