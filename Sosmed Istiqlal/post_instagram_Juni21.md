@@ -12,7 +12,7 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Menjaga Shalat Subuh Sec
 
 read more : https://muslim.or.id/59314-menjaga-salat-subuh-secara-berjamaah.html
 
-- [ ] 1-6-21 
+- [x] 1-6-21 
 
 ___
 
@@ -29,7 +29,7 @@ yang ditulis Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://ustadzaris.com/istirahat-berpahala
 
-- [ ] 2-6-21
+- [x] 2-6-21
 
 ___
 
@@ -46,14 +46,14 @@ Tidakkah pernah terlintas pada diri seseorang yang mengenakan baju barunya, beta
 Atau (terpikirkan oleh dirinya) ketika ia di malam hari, bisa jadi ia mengenakan kain kafannya sebelum shubuh.
 Akan tetapi hati kita senantiasa lalai, kita memohon kepada Allah agar menghidupkan hati-hati kita dengan ilmu dan iman."
 
-ﺷﺮﺡ ﺍلنونية ٤٧٤/٤
+Syarh An-Nuniyah 4/474
 
 Dinukil dari status facebook
 yang ditulis oleh Ustadz Boris Tanesia -Hafizhahullah-
 
 read more : https://web.facebook.com/story.php?story_fbid=10219134756060580&id=1257341801
 
-- [ ] 3-6-21 
+- [x] 3-6-21 
 
 ___
 
@@ -70,22 +70,25 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesu
 
 read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masjid.html
 
-- [ ] 4-6-21 
+- [x] 4-6-21 
 
 ___
 
-### 5. Judul
+### 5. Ujub, Tanda Kebodohan
 
 ___
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Masruq -rahimahullah- berkata,
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
+“Cukuplah menjadi tanda keilmuan seorang tatkala dia merasa takut kepada Allah. Dan cukuplah menjadi tanda kebodohan seorang apabila dia merasa ujub dengan amalnya.”
 
-- [ ] 7-6-21 
+Min A’lam As-Salaf 1/23
+
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Celaka atau Bahagia"
+
+read more : https://muslim.or.id/69419-celaka-atau-bahagia.html
+
+- [x] 7-6-21 
 
 ___
 

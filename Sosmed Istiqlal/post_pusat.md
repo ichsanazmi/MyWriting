@@ -1,6 +1,6 @@
 # Post Pusat
 
-## Juni 2020 (QC)
+## Juli 2020 (QC)
 
 ### 1. Keindahan Sabar (1)
 
