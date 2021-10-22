@@ -75,9 +75,7 @@ read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masj
 ___
 
 ### 5. Ujub, Tanda Kebodohan
-
 ___
-
 Masruq -rahimahullah- berkata,
 
 “Cukuplah menjadi tanda keilmuan seorang tatkala dia merasa takut kepada Allah. Dan cukuplah menjadi tanda kebodohan seorang apabila dia merasa ujub dengan amalnya.”
@@ -96,7 +94,7 @@ ___
 
 ---
 
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Tidaklah suatu kaum berkumpul di salah satu rumah dari rumah-rumah Allah (masjid) membaca Kitabullah dan saling mempelajarinya, melainkan akan turun kepada mereka sakinah (ketenangan), mereka akan dinaungi rahmat, mereka akan dilingkupi para malaikat dan Allah akan menyebut-nyebut mereka di sisi para makhluk yang dimuliakan di sisi-Nya"
 
 HR. Muslim
@@ -105,7 +103,7 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesu
 
 read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masjid.html
 
-- [ ] 8-6-21 
+- [x] 8-6-21 
 
 ___
 
@@ -126,7 +124,7 @@ Ibnu Hajar menjelaskan, “Ini adalah sebuah ucapan ringkas yang padat makna; se
 Dinukil dari laman Muslimah.or.id dalam artikel berjudul "Bicara Baik atau Diam" dengan sedikit penyesuaian
 read More : https://muslimah.or.id/5118-bicara-baik-atau-diam.html
 
-- [ ] 9-6-21 
+- [x] 9-6-21 
 
 ___
 

@@ -3,9 +3,7 @@
 ___ 
 
 ### Doa Masuk WC
-
 ___
-
 اللَّهُمَّ إنِّي أعُوذُ بكَ مِنَ الخُبْثِ والْخَبَائِثِ
 Allahumma inni a’udzubika minal khubutsi wal khabaitsi
 artinya : Ya Allah aku meminta perlindunganmu dari al khubuts dan al khabaits
@@ -90,19 +88,28 @@ HR At-Tirmidzi no. 2685, dishahihkan Al Albani dalam Shahih At Tirmidzi
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Didekati Orang Baik"
 
 read more : https://muslim.or.id/53957-didekati-orang-baik.html
-
-____
-
-### Untitled
-
 ___
 
-Masruq *rahimahullah* berkata,
+### b
+___
 
-“Cukuplah menjadi tanda keilmuan seorang tatkala dia merasa takut kepada Allah. Dan cukuplah menjadi tanda kebodohan seorang apabila dia merasa ujub dengan amalnya.”
+Qabishah bin Qais Al-Anbari berkata,
+"Adh-Dhahhak bin Muzahim apabila menemui waktu sore, ia menangis. Maka ditanyakan kepadanya, 'Apa yang membuatmu menangis?' Beliau menjawab, 'Aku tidak tahu, apakah ada di antara amalku hari ini yang terangkat naik/diterima Allah.'"
 
-Min A’lam As-Salaf 1/23
-
+Aina Nahnu min Akhlaq As-Salaf, hal. 18
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Celaka atau Bahagia"
 
 read more : https://muslim.or.id/69419-celaka-atau-bahagia.html
+
+___
+
+### c
+
+Ibnul Qayyim Al-Jauziyyah Rahimahullah berkata,
+
+“Cinta Al-Quran dan cinta melodi nyanyian … tidak akan berkumpul di hati seorang hamba”
+
+Nuniyyah Ibnul Qayyim hal. 368
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Celaka atau Bahagia"
+
+Read more : https://muslim.or.id/69077-al-quran-dan-musik-itu-bagaikan-minyak-dan-air.html

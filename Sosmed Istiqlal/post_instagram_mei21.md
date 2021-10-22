@@ -1,9 +1,7 @@
 # Post Instagram Mei
 
 ### 1. Hari Banyak Mengingat Allah
-
 ___
-
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 "Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
 HR. Muslim
