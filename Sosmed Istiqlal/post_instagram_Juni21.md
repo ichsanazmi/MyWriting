@@ -75,7 +75,9 @@ read more : https://muslim.or.id/39642-keutamaan-menghadiri-majelis-ilmu-di-masj
 ___
 
 ### 5. Ujub, Tanda Kebodohan
+
 ___
+
 Masruq -rahimahullah- berkata,
 
 “Cukuplah menjadi tanda keilmuan seorang tatkala dia merasa takut kepada Allah. Dan cukuplah menjadi tanda kebodohan seorang apabila dia merasa ujub dengan amalnya.”
@@ -144,16 +146,17 @@ read More : https://muslimah.or.id/5118-bicara-baik-atau-diam.html
 
 ___
 
-### 1. Hari Banyak Mengingat Allah
+### 9. Takut Akan Tidak Diterimanya Amal
 
 ___
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Qabishah bin Qais Al-Anbari berkata,
+"Adh-Dhahhak bin Muzahim apabila menemui waktu sore, ia menangis. Maka ditanyakan kepadanya, 'Apa yang membuatmu menangis?' Beliau menjawab, 'Aku tidak tahu, apakah ada di antara amalku hari ini yang terangkat naik/diterima Allah.'"
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
+Aina Nahnu min Akhlaq As-Salaf, hal. 18
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Celaka atau Bahagia"
+
+read more : https://muslim.or.id/69419-celaka-atau-bahagia.html
 
 - [ ] 11-6-21 
 
