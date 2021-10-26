@@ -108,13 +108,59 @@ Read more : https://muslim.or.id/69077-al-quran-dan-musik-itu-bagaikan-minyak-da
 
 ___
 
-### D
+### Jalan Meraih Kesuksesan dan Kemenangan
 
 ___
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Barangsiapa yang suka Allah mengabulkan doanya ketika susah dan menderita, maka hendaknya ia memperbanyak doa ketika lapang"
+Jalan meraih kesuksesan dan kemenangan: Anda gantungkan hati Anda hanya kepada Allah.
+Syaikh Prof. Dr Abdullah ar Ruhaili
 
-HR. Tirmidzi, Shahihul Jami' no. 6290
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Agar Doa Lebih Cepat dikabulkan"
-read more : https://muslim.or.id/44789-agar-doa-lebih-cepat-dikabulkan.html
+Dinukil dari blog twitulama dari tweet @Alruhaili_Abdu
+read more : https://twitulama.tumblr.com/post/169450059922/jalan-meraih-kesuksesan-dan-kemenangan-anda
+
+___
+
+### Rasa Nikmat di Balik Kekurangan
+
+___
+
+Ketika lapar, tidak ada lagi makanan yang kurang enak, dan rasa syukur pun menjadi lebih cepat bersemi.. 
+Maka dalam kekurangan sesungguhnya nikmat-nikmat Rabb-mu terasa sangat begitu berarti.
+
+Dinukil dari status fb Ustadz Musa Mulyadi Luqman, Lc, judul oleh admin
+read more : https://www.facebook.com/story.php?story_fbid=3787413204659622&id=100001729388129
+
+___
+
+### Jangan remehkan kebaikan sekecil apapun
+
+___
+
+Boleh jadi salah satu aktivitasmu di sosmed bermanfaat bagi muslim lainnya, atau menjadi jalan hidayah baginya, atau meringankan gelisah atau kesedihannya atau menunaikan hutangnya.
+
+Zubair Al Iyami rahimahullah pernah berkata, 
+
+"Aku pernah membaca sebuah kalimat yang dengannya Allah memberikan manfaat bagiku selama 30 tahun!" 
+
+
+
+Hilyatul Aulia 5/29
+
+Dinukil dari status fb Ustadz Amrullah Akadhinta dari tweet Prof. Dr. Bassam Al Syatti
+
+read more : https://www.facebook.com/story.php?story_fbid=10215731385992300&id=1672683786
+
+___
+
+### Jangan Ragu Untuk Memohon
+
+___
+
+Orang baik jika engkau panggil dan minta tolong kepadanya, dia akan ada untukmu, lalu bagaimana dengan Allah Yang Maha Baik, Lagi Maha Mengasihi ..
+
+Maka jangan ragu untuk mengangkat tangan kepadaNya, memohon dan meminta
+
+
+
+Dinukil dari status fb Ustadz Musa Mulyadi Luqman, Lc, judul oleh admin
+read more : https://www.facebook.com/story.php?story_fbid=4129111890489750&id=100001729388129

@@ -135,14 +135,14 @@ ___
 ___
 
 Imam Abu Hatim bin Hibban -rahimahullah- berkata,
-"Lisan seorang yang berakal berada di bawah kendali hatinya. Ketika dia hendak berbicara, dia akan bertanya terlebih dahulu kepada hatinya. Apabila perkataan tersebut bermanfaat bagi dirinya maka dia akan bebicara, tetapi apabila tidak bermanfaat maka dia akan diam. Sementara orang yang bodoh, hatinya berada di bawah kendali lisannya. Dia akan berbicara apa saja yang ingin diucapkan oleh lisannya. Seseorang yang tidak bisa menjaga lidahnya berarti tidak paham terhadap agamanya."
+"Lisan seorang yang berakal berada di bawah kendali hatinya. Ketika dia hendak berbicara, dia akan bertanya terlebih dahulu kepada hatinya. Apabila perkataan tersebut bermanfaat bagi dirinya maka dia akan berbicara, tetapi apabila tidak bermanfaat maka dia akan diam. Sementara orang yang bodoh, hatinya berada di bawah kendali lisannya. Dia akan berbicara apa saja yang ingin diucapkan oleh lisannya. Seseorang yang tidak bisa menjaga lidahnya berarti tidak paham terhadap agamanya."
 
 Raudhah Al-Fuqaha Wa Nazhah Al-Fudhola
 
 Dinukil dari laman Muslimah.or.id dalam artikel berjudul "Bicara Baik atau Diam" dengan sedikit penyesuaian
 read More : https://muslimah.or.id/5118-bicara-baik-atau-diam.html
 
-- [ ] 10-6-21 
+- [x] 10-6-21 
 
 ___
 
@@ -158,41 +158,47 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Celaka atau Bahagia"
 
 read more : https://muslim.or.id/69419-celaka-atau-bahagia.html
 
-- [ ] 11-6-21 
+- [x] 11-6-21 
 
 ___
 
-### 1. Hari Banyak Mengingat Allah
+### 10. Berdoa Ketika Lapang
 
 ___
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+"Barangsiapa yang suka Allah mengabulkan doanya ketika susah dan menderita, maka hendaknya ia memperbanyak doa ketika lapang"
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
+HR. Tirmidzi, Shahihul Jami' no. 6290
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Agar Doa Lebih Cepat dikabulkan"
+read more : https://muslim.or.id/44789-agar-doa-lebih-cepat-dikabulkan.html
 
 - [ ] 14-6-21 
 
 ___
 
-### 1. Hari Banyak Mengingat Allah
+### 11. Cara Terkabulnya Doa
 
 ___
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+"Tidak ada seorangpun yang berdoa dengan sebuah doa yang tidak ada dosa didalamnya dan memutuskan silahturrahim, melainkan Allah akan mengabulkan salah satu dari tiga perkara :
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
+1. Baik yang disegerakan baginya (pengabulan doanya) di dunia
+2. Dengan disimpan baginya (pengabulan doanya) di akhirat
+3. Dengan dijauhkan dari keburukan
+   Para sahabat berkata, "Wahai Rasulullah -shallallahu 'alaihi wasallam-, kalau begitu kami akan memperbanyak doa?"
+   Beliau menjawab, "Allah lebih banyak (pengabulan doanya)
+
+HR. Ahmad, Shahih At Targhib wa At Tarhib, No. 1633
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Agar Doa Lebih Cepat dikabulkan"
+read more : https://muslim.or.id/44789-agar-doa-lebih-cepat-dikabulkan.html
 
 - [ ] 15-6-21 
 
 ___
 
-### 1. Hari Banyak Mengingat Allah
+### 12
 
 ___
 
@@ -207,7 +213,7 @@ read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
 
 ___
 
-### 1. Hari Banyak Mengingat Allah
+### 13
 
 ___
 
@@ -221,3 +227,138 @@ read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
 - [ ] 17-6-21 
 
 ___
+
+### 14
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
+HR. Muslim
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+
+- [ ] 18-6-21
+
+---
+
+### 15
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
+HR. Muslim
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+
+- [ ] 21-6-21
+
+---
+
+### 16
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
+HR. Muslim
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+
+- [ ] 22-6-21
+
+---
+
+### 17
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
+HR. Muslim
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+
+- [ ] 23-6-21
+
+---
+
+### 18
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
+HR. Muslim
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+
+- [ ] 24-6-21
+
+---
+
+### 17
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
+HR. Muslim
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+
+- [ ] 25-6-21
+
+---
+
+### 18
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
+HR. Muslim
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+
+- [ ] 28-6-21
+
+---
+
+### 19
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
+HR. Muslim
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+
+- [ ] 29-6-21
+
+---
+
+### 20
+
+---
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
+HR. Muslim
+
+Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
+read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+
+- [ ] 30-6-21
+
+---
