@@ -173,7 +173,7 @@ HR. Tirmidzi, Shahihul Jami' no. 6290
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Agar Doa Lebih Cepat dikabulkan"
 read more : https://muslim.or.id/44789-agar-doa-lebih-cepat-dikabulkan.html
 
-- [ ] 14-6-21 
+- [x] 14-6-21 
 
 ___
 
@@ -198,46 +198,52 @@ read more : https://muslim.or.id/44789-agar-doa-lebih-cepat-dikabulkan.html
 
 ___
 
-### 12
+### 12. Jangan remehkan kebaikan sekecil apapun
 
-___
+---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Boleh jadi salah satu aktivitasmu di sosmed bermanfaat bagi muslim lainnya, atau menjadi jalan hidayah baginya, atau meringankan gelisah atau kesedihannya atau menunaikan hutangnya.
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
+Zubair Al Iyami rahimahullah pernah berkata,
+
+"Aku pernah membaca sebuah kalimat yang dengannya Allah memberikan manfaat bagiku selama 30 tahun!"
+
+Hilyatul Aulia 5/29
+
+Dinukil dari status fb Ustadz Amrullah Akadhinta dari tweet Prof. Dr. Bassam Al Syatti
+
+read more : https://www.facebook.com/story.php?story_fbid=10215731385992300&id=1672683786
 
 - [ ] 16-6-21 
 
 ___
 
-### 13
+### 13. Rasa Nikmat di Balik Kekurangan
 
-___
+---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Ketika lapar, tidak ada lagi makanan yang kurang enak, dan rasa syukur pun menjadi lebih cepat bersemi.. 
+Maka dalam kekurangan sesungguhnya nikmat-nikmat Rabb-mu terasa sangat begitu berarti.
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html
+Dinukil dari status fb Ustadz Musa Mulyadi Luqman, BA. judul di sunting oleh admin
+read more : https://www.facebook.com/story.php?story_fbid=3787413204659622&id=100001729388129
 
 - [ ] 17-6-21 
 
 ___
 
-### 14
+### 14. Buah Keimanan
 
----
+___
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Sahl bin Abdullah -rahimahullah- berkata, 
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+“Seorang mukmin adalah orang yang senantiasa merasa diawasi Allah, mengevaluasi dirinya, dan membekali diri untuk menyambut akhiratnya.”
+
+at-Tahdzib al-Maudhu’i li Hilyat al-Auliyaa’, hal. 711
+
+Dinukil dari laman Al-Mubarok dalam artikel berjudul "Untaian Nasihat Ulama 4"
+read More : https://www.al-mubarok.com/2016/01/13/untaian-nasihat-ulama-4/
 
 - [ ] 18-6-21
 
