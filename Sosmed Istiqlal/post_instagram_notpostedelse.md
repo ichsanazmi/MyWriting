@@ -118,6 +118,4 @@ Syaikh Prof. Dr Abdullah ar Ruhaili
 Dinukil dari blog twitulama dari tweet @Alruhaili_Abdu
 read more : https://twitulama.tumblr.com/post/169450059922/jalan-meraih-kesuksesan-dan-kemenangan-anda
 
-
-
 ___

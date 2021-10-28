@@ -196,8 +196,6 @@ yang ditulis oleh Ustadz dr. M Saifudin Hakim, M.Sc., Ph.D. -Hafizhahullah-
 
 read more : https://muslim.or.id/57256-para-wanita-perindu-surga.html
 
-
-
 - [x] 14-1-21 // repost post agustus
 
 ___ 
@@ -218,8 +216,6 @@ yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- dengan sedikit
 read more :
 https://web.facebook.com/story.php?story_fbid=3667743613293249&id=100001729388129
 
-
-
 - [x] 15-1-21
 
 ___ 
@@ -234,8 +230,6 @@ Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -H
 
 read more :
 https://www.facebook.com/story.php?story_fbid=2755210197879933&id=100001729388129
-
-
 
 - [x] 18-1-21
 
@@ -254,8 +248,6 @@ yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc. -Hafizhahullah-
 
 read more : https://rumaysho.com/17030-mengejar-shaf-pertama.html
 
-
-
 - [x] 19-1-21 //repost agustus
 
 ___ 
@@ -272,8 +264,6 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Buah Manis Menjaga Lisan
 yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
 
 read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
-
-
 
 - [x] 20-1-21 //repost agustus
 
@@ -295,8 +285,6 @@ yang ditulis oleh Ustadz dr. Adika Mianoki, Sp.S. -Hafizhahullah-
 
 read more : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
-
-
 - [x] 21-1-21 //repost agustus
 
 ___ 
@@ -311,8 +299,6 @@ Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 HR. Ibnu Abid Dunya, dihasankan Syaikh Al-Albani dalam Shahiih Al Jaami'ush Shaghir no. 1096
 Dinukil dari buku berjudul Adab Bergaul Agar Dicintai Allah Kemudian Dicintai Manusia hal 17
 yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
-
-
 
 - [x] 22-1-21 //repost agustus
 

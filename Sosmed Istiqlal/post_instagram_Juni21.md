@@ -187,14 +187,15 @@ Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
 1. Baik yang disegerakan baginya (pengabulan doanya) di dunia
 2. Dengan disimpan baginya (pengabulan doanya) di akhirat
 3. Dengan dijauhkan dari keburukan
-   Para sahabat berkata, "Wahai Rasulullah -shallallahu 'alaihi wasallam-, kalau begitu kami akan memperbanyak doa?"
-   Beliau menjawab, "Allah lebih banyak (pengabulan doanya)
+
+Para sahabat berkata, "Wahai Rasulullah -shallallahu 'alaihi wasallam-, kalau begitu kami akan memperbanyak doa?"
+Beliau menjawab, "Allah lebih banyak (pengabulan doanya)
 
 HR. Ahmad, Shahih At Targhib wa At Tarhib, No. 1633
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Agar Doa Lebih Cepat dikabulkan"
 read more : https://muslim.or.id/44789-agar-doa-lebih-cepat-dikabulkan.html
 
-- [ ] 15-6-21 
+- [x] 15-6-21 
 
 ___
 
@@ -214,7 +215,7 @@ Dinukil dari status fb Ustadz Amrullah Akadhinta dari tweet Prof. Dr. Bassam Al 
 
 read more : https://www.facebook.com/story.php?story_fbid=10215731385992300&id=1672683786
 
-- [ ] 16-6-21 
+- [x] 16-6-21 
 
 ___
 
@@ -228,7 +229,7 @@ Maka dalam kekurangan sesungguhnya nikmat-nikmat Rabb-mu terasa sangat begitu be
 Dinukil dari status fb Ustadz Musa Mulyadi Luqman, BA. judul di sunting oleh admin
 read more : https://www.facebook.com/story.php?story_fbid=3787413204659622&id=100001729388129
 
-- [ ] 17-6-21 
+- [x] 17-6-21 
 
 ___
 
@@ -249,61 +250,69 @@ read More : https://www.al-mubarok.com/2016/01/13/untaian-nasihat-ulama-4/
 
 ---
 
-### 15
+### 15. Merehatkan Diri
 
 ---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Tsabit bin Qurrah -rahimahullah- mengatakan,
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+ "Rehatnya badan itu dengan sedikit makan. Rehatnya ruhani itu dengan sedikitnya dosa. Rehatnya lidah itu dengan sedikit berkata-kata"
+
+Zaadul Ma'ad Libnil Qayyim 4/187
+
+Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
+read More : https://www.facebook.com/arismunandarjogja/posts/1750647615121366
 
 - [ ] 21-6-21
 
 ---
 
-### 16
+### 16. Menutup Aib Sesama Muslim
 
 ---
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+"Siapa saja yang menutupi aib saudaranya sesama muslim (maksiat, cacat fisik, 
+kesalahan yang memalukan dll) di dunia niscaya Allah akan tutupi aibnya 
+(maksiat dan dosa nya) pada hari Kiamat nanti"
+
+Silsilah Ash-Shahihah No. 2341
+
+Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
+read More : https://www.facebook.com/arismunandarjogja/posts/1750626871790107
 
 - [ ] 22-6-21
 
 ---
 
-### 17
+### 17. Sulitnya Melawan Hawa Nafsu & Syahwat Yang Haram
 
 ---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Ibnul Qayyim -rahimahullah- berkata,
+"Tidak ada penjara yang lebih sempit dibandingkan penjara hawa nafsu. Tidak ada borgol yang lebih sulit dilepaskan dibandingkan borgol berupa syahwat yang haram"
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+Ad Daa Wad Dawaa, 125
+
+Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
+read More : https://www.facebook.com/arismunandarjogja/posts/1748471852005609
 
 - [ ] 23-6-21
 
 ---
 
-### 18
+### 18. Kelezatan Dunia dan Akhirat
 
 ---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Sahl bin Abdullah At-Tusturi -rahimahullah- berkata,
+"Ilmu Itu adalah salah satu kelezatan dunia. Bila diamalkan berubah menjadi kelezatan akhirat"
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+Iqtisho’ Al-‘Ilmi Al-‘Amal hal. 29
+
+Dinukil dari laman The Humairo dalam artikel berjudul "Ilmu Itu Menenangkan Bodoh Itu Menegangkan"
+read More : https://thehumairo.com/1362-ilmu-itu-menenangkan-bodoh-itu-menegangkan.html
 
 - [ ] 24-6-21
 
