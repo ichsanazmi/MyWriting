@@ -318,61 +318,72 @@ read More : https://thehumairo.com/1362-ilmu-itu-menenangkan-bodoh-itu-menegangk
 
 ---
 
-### 17
+### 17. Mensikapi Cacian
 
 ---
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+"Jika ada orang yang mencacimu dengan keburukan yang dia ketahui ada pada 
+dirimu janganlah kau balas caciannya dengan cacian dengan menyebutkan 
+keburukan yang kau ketahui ada pada dirinya. Dengan demikian engkau 
+mendapatkan pahala dan dia mendapatkan dosa cacian tersebut"
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+Silsilah Ash-Shahihah
+
+Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
+read More : https://www.facebook.com/arismunandarjogja/posts/1742918549227606
 
 - [ ] 25-6-21
 
 ---
 
-### 18
+### 18. Tiga Hak Utama Seorang Anak
 
 ---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Ibnu Abbas -radhiallahu 'anhu- berkata,
+"Siapa saja yang Allah beri karunia berupa anak hendaknya dia berikan untuk 
+anaknya nama yang bagus, pendidikan yang berkualitas dan jika sudah baligh segera dinikahkan"
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+HR. Ibnu Abid Dunya
+
+Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
+read More : https://www.facebook.com/arismunandarjogja/posts/1740031712849623
 
 - [ ] 28-6-21
 
 ---
 
-### 19
+### 19. Berdoa Di Tasyahud Akhir
 
 ---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Asy Sya'bi -rahimahullah- berkata,
+"Jika engkau sudah selesai membaca bacaan tasyahud akhir (dan shalawat) 
+berdoalah meminta kebaikan akhirat dan kebaikan dunia yang kau inginkan"
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+Mushannaf ibn Abi Syaibah, 3044
+
+Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
+read More : https://www.facebook.com/arismunandarjogja/posts/1740028659516595
 
 - [ ] 29-6-21
 
 ---
 
-### 20
+### 20. Hakikat Orang Yang Berakal
 
 ---
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Hari tasyriq (11,12,13 Dzulhijjah) adalah hari makan, minum dan banyak mengingat Allah"
-HR. Muslim
+Sufyan bin 'Uyainah -rahimahullah- berkata,
+"Orang yang berakal bukanlah orang yang sekedar mengetahui kebaikan dan 
+kejelekan. Orang berakal yang sesungguhnya adalah orang yang mengetahui 
+kebaikan terus mengikutinya dan mengetahui keburukan lantas menjauhinya"
 
-Dinukil dari laman Konsultasi Syariah dalam artikel berjudul "Amalan di Hari Tasyrik" dengan sedikit penyesuaian
-read More : [Amalan di Hari Tasyrik | Konsultasi Agama dan Tanya Jawab Pendidikan Islam](https://konsultasisyariah.com/14538-amalan-di-hari-tasyrik.html)
+kitab ada di link
+
+Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
+read More : https://www.facebook.com/arismunandarjogja/posts/1735663663286428
 
 - [ ] 30-6-21
 
