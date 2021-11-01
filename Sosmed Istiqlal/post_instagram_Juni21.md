@@ -246,7 +246,7 @@ at-Tahdzib al-Maudhu’i li Hilyat al-Auliyaa’, hal. 711
 Dinukil dari laman Al-Mubarok dalam artikel berjudul "Untaian Nasihat Ulama 4"
 read More : https://www.al-mubarok.com/2016/01/13/untaian-nasihat-ulama-4/
 
-- [ ] 18-6-21
+- [x] 18-6-21
 
 ---
 
@@ -263,7 +263,7 @@ Zaadul Ma'ad Libnil Qayyim 4/187
 Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
 read More : https://www.facebook.com/arismunandarjogja/posts/1750647615121366
 
-- [ ] 21-6-21
+- [x] 21-6-21
 
 ---
 
@@ -282,7 +282,7 @@ Silsilah Ash-Shahihah No. 2341
 Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
 read More : https://www.facebook.com/arismunandarjogja/posts/1750626871790107
 
-- [ ] 22-6-21
+- [x] 22-6-21
 
 ---
 
@@ -298,7 +298,7 @@ Ad Daa Wad Dawaa, 125
 Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
 read More : https://www.facebook.com/arismunandarjogja/posts/1748471852005609
 
-- [ ] 23-6-21
+- [x] 23-6-21
 
 ---
 
@@ -314,7 +314,7 @@ Iqtisho’ Al-‘Ilmi Al-‘Amal hal. 29
 Dinukil dari laman The Humairo dalam artikel berjudul "Ilmu Itu Menenangkan Bodoh Itu Menegangkan"
 read More : https://thehumairo.com/1362-ilmu-itu-menenangkan-bodoh-itu-menegangkan.html
 
-- [ ] 24-6-21
+- [x] 24-6-21
 
 ---
 
@@ -380,7 +380,7 @@ Sufyan bin 'Uyainah -rahimahullah- berkata,
 kejelekan. Orang berakal yang sesungguhnya adalah orang yang mengetahui 
 kebaikan terus mengikutinya dan mengetahui keburukan lantas menjauhinya"
 
-kitab ada di link
+Al-'Aql karya Ibnu Abid Dunya
 
 Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
 read More : https://www.facebook.com/arismunandarjogja/posts/1735663663286428

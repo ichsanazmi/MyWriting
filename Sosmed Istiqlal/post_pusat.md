@@ -877,7 +877,7 @@ ___
 
 ### 14. Wadah Yang Disebut dengan Hati
 
-Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yaang mulia ini di hati yang tidak saleh!?
+Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yang mulia ini di hati yang tidak saleh!?
 
 Dinukil dari status yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- via laman facebook beliau
 
@@ -885,7 +885,7 @@ Dinukil dari status yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahu
 
 ___
 
-### 15. Pengingat Diri
+### 15. Pengingat Diri (1)
 
 Dari Ibnu ‘Umar, ia berkata, “Aku pernah bersama Rasulullah shallallahu ‘alaihi wa sallam, lalu seorang Anshor mendatangi beliau, ia memberi salam dan bertanya, “Wahai Rasulullah, mukmin manakah yang paling baik?” Beliau bersabda, “Yang paling baik akhlaknya.” “Lalu mukmin manakah yang paling cerdas?”, ia kembali bertanya. Beliau bersabda, “Yang paling banyak mengingat kematian dan yang paling baik dalam mempersiapkan diri untuk alam berikutnya, itulah mereka yang paling cerdas.”
 
