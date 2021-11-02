@@ -105,17 +105,3 @@ Nuniyyah Ibnul Qayyim hal. 368
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Celaka atau Bahagia"
 
 Read more : https://muslim.or.id/69077-al-quran-dan-musik-itu-bagaikan-minyak-dan-air.html
-
-___
-
-### Jalan Meraih Kesuksesan dan Kemenangan
-
-___
-
-Jalan meraih kesuksesan dan kemenangan: Anda gantungkan hati Anda hanya kepada Allah.
-Syaikh Prof. Dr Abdullah ar Ruhaili
-
-Dinukil dari blog twitulama dari tweet @Alruhaili_Abdu
-read more : https://twitulama.tumblr.com/post/169450059922/jalan-meraih-kesuksesan-dan-kemenangan-anda
-
-___

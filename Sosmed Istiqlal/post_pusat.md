@@ -4605,7 +4605,7 @@ Read more : [Begini Maksud Perintah “Sering Mengingat Kematian”](https://mus
   
   Lathoiful Ma'arif, Hlm 113
   Dinukil dari Muslim.or.id dalam artikel berjudul "11 Amalan Bidah di Bulan Muharram"
-  read more : [Jangan Lakukan! Inilah 11 Amalan Bid&#039;ah Di Bulan Muharram](https://muslim.or.id/23085-11-amalan-bidah-di-bulan-muharram.html)
+  read more : https://muslim.or.id/23085-11-amalan-bidah-di-bulan-muharram.html
   
   - [x] 24-5-21 // repost 19-08-20
   
@@ -4621,7 +4621,7 @@ Read more : [Begini Maksud Perintah “Sering Mengingat Kematian”](https://mus
   HR. Bukhari & Muslim 
   Dinukil dari laman Muslim.or.id dalam artikel berjudul "Wanita Pun Terfitnah Oleh Laki-Laki"
   
-  Read More : [Wanita Pun Terfitnah oleh Lelaki](https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html)
+  Read More : https://muslim.or.id/66424-wanita-pun-terfitnah-oleh-lelaki.html
   
   - [x] 25-5-21
   

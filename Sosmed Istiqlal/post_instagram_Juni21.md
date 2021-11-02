@@ -333,7 +333,7 @@ Silsilah Ash-Shahihah
 Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
 read More : https://www.facebook.com/arismunandarjogja/posts/1742918549227606
 
-- [ ] 25-6-21
+- [x] 25-6-21
 
 ---
 
@@ -350,7 +350,7 @@ HR. Ibnu Abid Dunya
 Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
 read More : https://www.facebook.com/arismunandarjogja/posts/1740031712849623
 
-- [ ] 28-6-21
+- [x] 28-6-21
 
 ---
 
