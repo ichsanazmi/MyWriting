@@ -1,4 +1,4 @@
-# Post Instagram Juni
+# Post Instagram Juni 21
 
 ### 1. Menghindari Rasa Malas Sejak Pagi
 
@@ -367,7 +367,7 @@ Mushannaf ibn Abi Syaibah, 3044
 Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
 read More : https://www.facebook.com/arismunandarjogja/posts/1740028659516595
 
-- [ ] 29-6-21
+- [x] 29-6-21
 
 ---
 
@@ -385,6 +385,6 @@ Al-'Aql karya Ibnu Abid Dunya
 Dinukil dari status fb Ustadz Aris Munandar -hafizhahullah- , dengan sedikit penyesuaian
 read More : https://www.facebook.com/arismunandarjogja/posts/1735663663286428
 
-- [ ] 30-6-21
+- [x] 30-6-21
 
 ---
