@@ -110,71 +110,6 @@ ___
 
 ### Untitled
 
-Umar bin Khattab -radhiallahu 'anhu- berkata,
-Jika terbersik dalam dirimu keinginan untuk berdoa meminta kepada Allah, itu pertanda Allah hendak mengabulkan keinginanmu
-
-Asyru Qawaaidi fii Tazkiyatin Nafs
-Dinukil dari facebook Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
-
-read more : https://www.facebook.com/story.php?story_fbid=3801640776570198&id=100001729388129
-
-___
-
-### Tidakkah engkau malu pada Allah yang yang Pemalu
-
-5 hal sebagai renungan dari salah seorang ulama yaitu Ibrahim bin Adham bagi mereka yang masih saja senang dengan kemaksiatan :
-
-1. Jika engkau ingin bermaksiat janganlah engkau memakan dari rizki Allah. Apakah engkau pantas memakan Dari rizkiNya kemudian engkau memaksiatinya?
-2. Jika engkau ingin memaksiatiNya maka janganlah tinggal di bumiNya , bukankah tidak patut engkau makan dan tinggal di bumiNya kemudian engkau memaksiatiNya ?
-3. Jika engkau ingin berbuat dosa, maka carilah tempat yang tersembunyi dari pandanganNya !
-4. Jika Malaikat maut datang untuk mencabut nyawamu, dapatkah engkau mengatakan kepadanya : " Tundalah kematianku hingga aku bisa bertaubat dari kesalahanku! " Kalau seperti itu ketika engkau bermaksiat lalu datang kematian sementara engkau belum bertaubat , bagaimanakah keadaanmu saat itu?
-5. Jika malaikat zabaniyah menyeretmu ke neraka, kemudian engkau tidak mau masuk ke dalam neraka, bisakah engkau menolaknya? Ketika engkau tidak bisa menolaknya , namun tetap engkau bermaksiat kepada Allah, bisakah engkau lepas dari genggaman para malaikat tersebut , disaat engkau dipaksa untuk masuk kedalamnya?
-   Semoga Allah menjaga diri kita dari kemaksiatan.
-
-Dinukil dari facebook Ustadz Fadhil Huwaidy, Lc. -Hafizhahullah-
-
-read more : https://www.facebook.com/story.php?story_fbid=3856318244480645&id=100003075237129
-
-___
-
-### Untitled
-
-Syaikh Shalih bin Utsaimin -rahimahullah- dalam kitabnya,
-"Jika menyingkirkan gangguan dari jalan itu bernilai sedekah maka memasang pengganggu kenyamanan di jalan adalah perbuatan jelek. Contohnya adalah buang sampah sembarangan di jalan raya"
-
-Syarh Riyadhus Shalihin 37/3
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah-
-
-read more : https://www.facebook.com/arismunandarjogja/posts/1721479151371546
-
-___
-
-### Untitled
-
-Habib bin Abu Tsabit -radhiallahu 'anhu- mengatakan,
-"Di antara bentuk akhlak mulia adalah ngobrol dengan orang lain sambil tersenyum".
-
-Raudhatul Uqala Wa Nuzhatu Fudhala 77
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah-
-
-read more : https://www.facebook.com/arismunandarjogja/posts/1721477838038344
-
-___
-
-### Untitled
-
-Imam bin Baz -rahimahullah- dalam kitabnya,
-"Berbakti kepada orang tua adalah bagian dari sebab hilangnya kesusahan dan dimudahkan berbagai urusan"
-
-Nur Ala Darb, 122/2
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah-
-
-read more : https://www.facebook.com/arismunandarjogja/posts/1720584521461009
-
-___
-
-### Untitled
-
 Abu Bakr Ash-Shiddiq -Radhiallahu 'anhu- berkata,
 
 "Sungguh Allah  itu bisa memberi ampunan untuk dosa besar, oleh karena itu janganlah kalian berputus asa dari ampunan-Nya. Allah itu bisa menimpakan adzab untuk dosa kecil, janganlah kalian terkecoh sehingga meremehkannya"
@@ -195,3 +130,27 @@ Syu'abul Iman
 Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1735657829953678
+
+___
+
+### Untitled
+
+Ibnul Jauzi -rahimahullah- berkata,
+"Jika engkau ingin mengetahui hakikat dirimu ambillah satu genggam tanah. Sungguh engkau tercipta darinya, dikembalikan ke dalam tanah dan dibangkitkan dari dalam tanah"
+
+At-Tadzikirah fii Al-Wa'zh, 1/179
+Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/arismunandarjogja/posts/1740751776110950
+
+___
+
+### Untitled
+
+Syaikh Al-Utsaimin -rahimahullah- berkata,
+Jika bingung banyak banyak istighfar karena dengan istighfar Allah akan memberikan pencerahan kepada seorang hamba.
+
+Syarh Al-Kaafiyah Syafi'iyah
+Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/arismunandarjogja/posts/1742185439300917
