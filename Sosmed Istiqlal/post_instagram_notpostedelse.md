@@ -75,6 +75,8 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi ya
 
 read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
 
+- [ ] testW
+
 ___
 
 ### Keutamaan Mengajarkan Kebaikan
@@ -91,6 +93,8 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Didekati Orang Baik"
 
 read more : https://muslim.or.id/53957-didekati-orang-baik.html
 
+- [ ] test
+
 ___
 
 ### C
@@ -106,6 +110,8 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Celaka atau Bahagia"
 
 Read more : https://muslim.or.id/69077-al-quran-dan-musik-itu-bagaikan-minyak-dan-air.html
 
+- [ ] test
+
 ___
 
 ### Untitled
@@ -119,6 +125,8 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah-
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1720582418127886
 
+- [ ] test
+
 ___
 
 ### Untitled
@@ -130,6 +138,8 @@ Syu'abul Iman
 Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1735657829953678
+
+- [ ] test
 
 ___
 
@@ -143,6 +153,8 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyes
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1740751776110950
 
+- [ ] test
+
 ___
 
 ### Untitled
@@ -154,3 +166,49 @@ Syarh Al-Kaafiyah Syafi'iyah
 Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1742185439300917
+
+- [ ] test
+
+___
+
+### Permata Akal
+
+Harits al Muhasibi -rahimahullah- mengatakan, 
+Segala sesuatu mempunyai permata. Pertama dalam diri manusia adalah akalnya dan akal yang bernilai permata adalah akal yang mau menerima hidayah Allah
+
+Tarikh Baghdad 8/213
+Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/arismunandarjogja/posts/247332615452881
+
+- [ ] test
+
+___
+
+### Manajemen Konflik
+
+Abu Darda berkata kepada isterinya, Ummu Darda, 
+Jika aku sedang marah maka redakanlah amarahku. Jika engkau lagi marah maka aku berupaya untuk meredakan amarahmu. Jika kita tidak melakukan hal ini maka bahtera rumah tangga kita akan cepat karam
+
+Raudhatul Uqala karya Ibnu Hibban al Busti hal 24
+Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/arismunandarjogja/posts/136417033211107
+
+- [ ]  test
+
+___
+
+### test
+
+Wahab bin Munabbih -rahimahullah-, seorang ulama era tabiin mengatakan, 
+Diantara sifat orang munafik adalah suka pujian dan benci celaan (baca: kritikan)
+
+Al-Mushannaf karya Ibnu Abi Syaibah
+Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
+
+- [ ] test
+
+___

@@ -83,7 +83,7 @@ Dinukil dari facebook Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
 
 read more : https://www.facebook.com/story.php?story_fbid=3801640776570198&id=100001729388129
 
-- [ ] 10-8-21
+- [x] 10-8-21
 
 ___
 
@@ -97,7 +97,7 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyes
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1721479151371546
 
-- [ ] 11-8-21
+- [x] 11-8-21
 
 ___
 
