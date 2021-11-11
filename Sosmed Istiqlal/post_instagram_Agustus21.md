@@ -103,7 +103,7 @@ ___
 
 ### 8. Akhlak Mulia dalam Berbicara
 
-Habib bin Abu Tsabit -radhiallahu 'anhu- mengatakan,
+Habib bin Abu Tsabit -rahimahullah- mengatakan,
 "Di antara bentuk akhlak mulia adalah ngobrol dengan orang lain sambil tersenyum".
 
 Raudhatul Uqala Wa Nuzhatu Fudhala, hal 77
@@ -111,7 +111,7 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah-
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1721477838038344
 
-- [ ] 12-8-21
+- [x] 12-8-21
 
 ___
 
