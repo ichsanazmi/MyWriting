@@ -195,7 +195,7 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyes
 
 read more : https://www.facebook.com/arismunandarjogja/posts/136417033211107
 
-- [ ]  test
+- [ ] test
 
 ___
 
@@ -208,6 +208,20 @@ Al-Mushannaf karya Ibnu Abi Syaibah
 Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
+
+- [ ] test
+
+___
+
+### Tidak Tertinggal Takbiratul Ihram
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+Siapa yang melaksanakan sholat karena Allah selama 40 hari secara berjamaah, ia tidak luput dari takbiratul ihram, maka ia akan dicatat terbebas dari 2 hal yaitu terbebas dari siksa neraka dan terbebas dari kemunafikan
+
+HR. Tirmidzi, no.241, dihasankan oleh Syaikh Al-Albani
+Dinukil dari laman Rumaysho dalam artikel berjudul "Bisakah kita tidak ketinggalan takbiratul ihram bersama imam selama 40 hari"
+
+read more : https://rumaysho.com/15756-bisakah-kita-tidak-ketinggalan-takbiratul-ihram-bersama-imam-selama-40-hari.html
 
 - [ ] test
 
