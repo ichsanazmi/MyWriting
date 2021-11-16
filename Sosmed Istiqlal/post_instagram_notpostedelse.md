@@ -81,8 +81,6 @@ ___
 
 ### Keutamaan Mengajarkan Kebaikan
 
-___
-
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 “Sesungguhnya Allah dan para Malaikat-Nya, serta semua makhluk di langit dan bumi, bahkan semut-semut dalam lubangnya serta ikan-ikan (di lautan), bershalawat kepada orang yang mengajarkan kebaikan kepada orang lain” 
@@ -97,89 +95,15 @@ read more : https://muslim.or.id/53957-didekati-orang-baik.html
 
 ___
 
-### Tak Bersatunya Dua Cinta
-
-___
-
-Ibnul Qayyim Al-Jauziyyah Rahimahullah berkata,
-
-“Cinta Al-Quran dan cinta melodi nyanyian … tidak akan berkumpul di hati seorang hamba”
-
-Nuniyyah Ibnul Qayyim hal. 368
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Celaka atau Bahagia"
-
-Read more : https://muslim.or.id/69077-al-quran-dan-musik-itu-bagaikan-minyak-dan-air.html
-
-- [ ] test
-
-___
-
-### Untitled
-
-Abu Bakr Ash-Shiddiq -Radhiallahu 'anhu- berkata,
-
-"Sungguh Allah  itu bisa memberi ampunan untuk dosa besar, oleh karena itu janganlah kalian berputus asa dari ampunan-Nya. Allah itu bisa menimpakan adzab untuk dosa kecil, janganlah kalian terkecoh sehingga meremehkannya"
-
-Syarh Al-Bukhari karya Ibnu Baththol
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah-
-
-read more : https://www.facebook.com/arismunandarjogja/posts/1720582418127886
-
-- [ ] test
-
-___
-
-### Untitled
-
-Al Fudhail bin 'Iyadh -rahimahullah- mengatakan,
-"Banyak dosa itu menyebabkan sedikit diberi kemudahan urusan"
-
-Syu'abul Iman
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/arismunandarjogja/posts/1735657829953678
-
-- [ ] test
-
-___
-
-### Untitled
-
-Ibnul Jauzi -rahimahullah- berkata,
-"Jika engkau ingin mengetahui hakikat dirimu ambillah satu genggam tanah. Sungguh engkau tercipta darinya, dikembalikan ke dalam tanah dan dibangkitkan dari dalam tanah"
-
-At-Tadzikirah fii Al-Wa'zh, 1/179
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/arismunandarjogja/posts/1740751776110950
-
-- [ ] test
-
-___
-
 ### Untitled
 
 Syaikh Al-Utsaimin -rahimahullah- berkata,
-Jika bingung banyak banyak istighfar karena dengan istighfar Allah akan memberikan pencerahan kepada seorang hamba.
+Jika bingung banyak banyak istighfar, karena dengan istighfar Allah akan memberikan pencerahan kepada seorang hamba.
 
 Syarh Al-Kaafiyah Syafi'iyah
 Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1742185439300917
-
-- [ ] test
-
-___
-
-### Permata Akal
-
-Harits al Muhasibi -rahimahullah- mengatakan, 
-Segala sesuatu mempunyai permata. Pertama dalam diri manusia adalah akalnya dan akal yang bernilai permata adalah akal yang mau menerima hidayah Allah
-
-Tarikh Baghdad 8/213
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/arismunandarjogja/posts/247332615452881
 
 - [ ] test
 
@@ -211,63 +135,6 @@ read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
 
 - [ ] test
 
-___
-
-### Tidak Tertinggal Takbiratul Ihram
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-Siapa yang melaksanakan sholat karena Allah selama 40 hari secara berjamaah, ia tidak luput dari takbiratul ihram, maka ia akan dicatat terbebas dari 2 hal yaitu terbebas dari siksa neraka dan terbebas dari kemunafikan
-
-HR. Tirmidzi, no.241, dihasankan oleh Syaikh Al-Albani
-Dinukil dari laman Rumaysho dalam artikel berjudul "Bisakah kita tidak ketinggalan takbiratul ihram bersama imam selama 40 hari"
-
-read more : https://rumaysho.com/15756-bisakah-kita-tidak-ketinggalan-takbiratul-ihram-bersama-imam-selama-40-hari.html
-
-- [ ] test
-
-___
-
-### Untitled
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-Dan aku melihat neraka. Aku belum pernah sama sekali melihat pemandangan seperti hari ini. Dan aku lihat ternyata mayoritas penghuninya adalah para wanita.
-
-Mereka (para shahabat -radhiallahu 'anhum-) bertanya, 
-Kenapa para wanita menjadi mayoritas penghuni neraka, wahai Rasulullah?
-
-Beliau -Shallallahu 'alaihi wasallam- menjawab, 
-Disebabkan kekufuran mereka.
-
-Ada yang bertanya kepada beliau,
-Apakah para wanita itu kufur kepada Allah?
-
-Beliau -Shallallahu 'alaihi wasallam- menjawab, 
-(Tidak, melainkan) mereka kufur kepada suami dan mengkufuri kebaikan (suami). Seandainya engkau berbuat baik kepada salah seorang istri kalian pada suatu waktu, kemudian suatu saat ia melihat darimu ada sesuatu (yang tidak berkenan di hatinya) niscaya ia akan berkata, ‘Aku sama sekali belum pernah melihat kebaikan darimu’
-
-
-
-HR. Bukhari no. 5197 dan Muslim no. 907
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Tak Perlu Sedih Dengan Status Ibu Rumah Tangga"
-read more : https://muslim.or.id/21300-tak-perlu-sedih-dengan-status-ibu-rumah-tangga.html
-
-- [ ] test
-
-___
-
-### Untitled
-
-Rasulullah -Shallallaahu ‘alaihi wasallam- bersabda,
-Dunia itu penjara bagi orang beriman, dan surga bagi orang kafir.
-HR. Muslim no. 2956
-
-
-Maksud ‘penjara’ bagi orang beriman adalah adanya batasan-batasan bagi orang beriman, sedangkan orang kafir tidak memiliki batasan. Makna lainnya yaitu sebahagia apapun seorang mukmin di dunia, kebahagiaan itu ibarat penjara baginya. Hal ini karena di akhirat nanti, dia akan mendapatkan kebahagiaan yang jauh lebih besar. Sebaliknya, sesengsara apapun orang kafir di dunia, kesengsaraan itu ibarat surga baginya. Hal ini karena di akhirat nanti dia akan mendapatkan kesengsaraan yang jauh lebih besar.
-
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Mengobati Kegalauan bag-1"
-read more : https://muslim.or.id/67268-mengobati-kegalauan-bag-1.html
-
-- [ ] test
-
 ____
 
 ### Do'a Memohon Petunjuk, Ketaqwaan, Sifat 'Afaf dan Ghina
@@ -279,11 +146,9 @@ artinya: Ya Allah, aku memohon kepada-Mu petunjuk, ketakwaan, sifat ‘afaf– t
 
 HR. Muslim
 
-
 Imam Nawawi -rahimahullah- mengatakan, 
 Afaf dan ‘iffah bermakna menjauhkan dan menahan diri dari hal yang tidak diperbolehkan. Sedangkan al-ghina adalah hati yang selalu merasa cukup dan tidak butuh pada apa yang ada di sisi manusia.
 Syarh Shahih Muslim, 17:41
-
 
 Dinukil dari laman Rumaysho dalam artikel berjudul "Rugi jika tidak mengafal doa memohon petunjuk.."
 

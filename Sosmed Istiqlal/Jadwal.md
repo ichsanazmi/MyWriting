@@ -139,3 +139,46 @@ __
    
    - Tiga Hak Utama Seorang Anak
    - Berdoa Di Tasyahud Akhir
+
+3/11/21
+__
+
+1. 3 materi tambahan
+   
+   - Hidayah Untuk Berdoa '
+   - Amal Baik dan Jelek di Jalan '
+   - Akhlak Mulia dalam Berbicara '
+
+2. 3 poster
+   
+   - Keutamaan Surah Al-Kahfi '
+   - Jalan Meraih Kesuksesan dan Kemenangan '
+   - Hidayah Untuk Berdoa '
+
+3. 2 wallpaper
+   -
+   
+   - 
+
+4. 2 posting 
+   
+   - Hakikat Orang Yang Berakal
+   - Mukmin Yang Cerdas (rp)
+
+## 4/11/21
+
+__
+
+1. 3 materi tambahan
+   - Sebab Dimudahkannya Urusan '
+   - Tidakkah Engkau Malu
+   - Dunia Bukan Surganya Orang Beriman
+2. 3 poster
+   - Amal Baik dan Jelek di Jalan '
+   - Akhlak Mulia dalam Berbicara '
+   - Sebab Dimudahkannya Urusan '
+3. wallpaper
+   -
+4. 2 posting    
+   - Menumbuhkan Khusyu' dalam Shalat
+   - Keutamaan Surah Al-Kahfi
