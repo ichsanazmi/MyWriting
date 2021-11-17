@@ -171,14 +171,13 @@ __
 
 1. 3 materi tambahan
    - Sebab Dimudahkannya Urusan '
-   - Tidakkah Engkau Malu
+   - Tidakkah Engkau Malu '
    - Dunia Bukan Surganya Orang Beriman
 2. 3 poster
    - Amal Baik dan Jelek di Jalan '
    - Akhlak Mulia dalam Berbicara '
    - Sebab Dimudahkannya Urusan '
 3. wallpaper
-   -
 4. 2 posting    
    - Menumbuhkan Khusyu' dalam Shalat
    - Keutamaan Surah Al-Kahfi

@@ -140,15 +140,15 @@ ___
 5. Jika malaikat zabaniyah menyeretmu ke neraka, kemudian engkau tidak mau masuk ke dalam neraka, bisakah engkau menolaknya? Ketika engkau tidak bisa menolaknya , namun tetap engkau bermaksiat kepada Allah, bisakah engkau lepas dari genggaman para malaikat tersebut , disaat engkau dipaksa untuk masuk kedalamnya?
    Semoga Allah menjaga diri kita dari kemaksiatan.
 
-Dinukil dari facebook Ustadz Fadhil Huwaidy, Lc. -Hafizhahullah-
+Dinukil dari facebook Ustadz Fadhil Huwaidy, Lc. -Hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/story.php?story_fbid=3856318244480645&id=100003075237129
 
-- [ ] 16-8-21
+- [x] 16-8-21
 
 ___
 
-### 11. Dunia Bukan Surganya Orang Beriman
+### 11. Dunia Bukan Surga Bagi Orang Beriman
 
 Rasulullah -Shallallaahu ‘alaihi wasallam- bersabda,
 Dunia itu penjara bagi orang beriman, dan surga bagi orang kafir.
@@ -159,7 +159,7 @@ Maksud ‘penjara’ bagi orang beriman adalah adanya batasan-batasan bagi orang
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Mengobati Kegalauan bag-1"
 read more : https://muslim.or.id/67268-mengobati-kegalauan-bag-1.html
 
-- [ ] 17-8-21
+- [x] 17-8-21
 
 ____
 
@@ -167,13 +167,11 @@ ____
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 Dan aku melihat neraka. Aku belum pernah sama sekali melihat pemandangan seperti hari ini. Dan aku lihat ternyata mayoritas penghuninya adalah para wanita.
-
 Mereka (para shahabat -radhiallahu 'anhum-) bertanya, 
 Kenapa para wanita menjadi mayoritas penghuni neraka, wahai Rasulullah?
 
 Beliau -Shallallahu 'alaihi wasallam- menjawab, 
 Disebabkan kekufuran mereka.
-
 Ada yang bertanya kepada beliau,
 Apakah para wanita itu kufur kepada Allah?
 
@@ -184,7 +182,7 @@ HR. Bukhari no. 5197 dan Muslim no. 907
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Tak Perlu Sedih Dengan Status Ibu Rumah Tangga"
 read more : https://muslim.or.id/21300-tak-perlu-sedih-dengan-status-ibu-rumah-tangga.html
 
-- [ ] 18-8-21
+- [x] 18-8-21
 
 ___
 
