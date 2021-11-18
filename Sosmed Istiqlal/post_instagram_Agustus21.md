@@ -196,22 +196,22 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyes
 
 read more : https://www.facebook.com/arismunandarjogja/posts/247332615452881
 
-- [ ] 19-8-21
+- [x] 19-8-21
 
 ___
 
 ### 14. Tak Bersatunya Dua Cinta
 
-Ibnul Qayyim Al-Jauziyyah Rahimahullah berkata,
+Ibnul Qayyim Al-Jauziyyah -rahimahullah- berkata,
 
 “Cinta Al-Quran dan cinta melodi nyanyian … tidak akan berkumpul di hati seorang hamba”
 
 Nuniyyah Ibnul Qayyim hal. 368
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Celaka atau Bahagia"
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Al-quran dan Musik Itu Bagaikan Minyak dan Air"
 
 Read more : https://muslim.or.id/69077-al-quran-dan-musik-itu-bagaikan-minyak-dan-air.html
 
-- [ ] 20-8-21
+- [x] 20-8-21
 
 ___
 
