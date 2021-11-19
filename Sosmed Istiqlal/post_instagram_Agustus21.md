@@ -272,9 +272,18 @@ read more : https://rumaysho.com/15756-bisakah-kita-tidak-ketinggalan-takbiratul
 
 ___
 
-### 19.
+### 19. Lebih Baik dari Dunia dan Seisinya
 
-- [ ] 27-8-21
+---
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya
+
+HR. Muslim no.1193
+Dinukil dari KonsultasiSyariah.com dalam artikel berjudul "Keutamaan Shalat Qabliyah Shubuh"
+read more : https://konsultasisyariah.com/10341-keutamaan-shalat-qabliyah-shubuh.html
+
+- [ ] 27-8-21 //repost 2-9-20
 
 ___
 

@@ -642,7 +642,7 @@ read more : -
 
 ___
 
-### 2. Lebih Baik dari Dunia dan Seisinya (1)
+### 2. Lebih Baik dari Dunia dan Seisinya (2)
 
 ___
 
