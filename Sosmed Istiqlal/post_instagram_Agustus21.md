@@ -49,7 +49,7 @@ Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 "Barangsiapa yang membaca surat Al Kahfi pada hari Jum’at, dia akan disinari cahaya di antara dua Jum’at"
 
 HR. Hakim, 2/399. Baihaqi, 3/29. Dinilai Shahih oleh Syekh Albani dalam Shahih Al-Jaami’ no. 6470.
-Dinukil dari laman TheHumairo dalam artikel berjudul "Baca Al-Kahfi Di Hari Jum’at Dapat Cahaya, Apa Maknanya?" 
+Dinukil dari laman TheHumairo dalam artikel berjudul "Baca Al-Kahfi Di Hari Jum’at Dapat Cahaya, Apa Maknanya?"
 
 read more : https://thehumairo.com/2668-baca-al-kahfi-di-hari-jumat-dapat-cahaya-apa-maknanya.html
 
@@ -167,15 +167,15 @@ ____
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 Dan aku melihat neraka. Aku belum pernah sama sekali melihat pemandangan seperti hari ini. Dan aku lihat ternyata mayoritas penghuninya adalah para wanita.
-Mereka (para shahabat -radhiallahu 'anhum-) bertanya, 
+Mereka (para shahabat -radhiallahu 'anhum-) bertanya,
 Kenapa para wanita menjadi mayoritas penghuni neraka, wahai Rasulullah?
 
-Beliau -Shallallahu 'alaihi wasallam- menjawab, 
+Beliau -Shallallahu 'alaihi wasallam- menjawab,
 Disebabkan kekufuran mereka.
 Ada yang bertanya kepada beliau,
 Apakah para wanita itu kufur kepada Allah?
 
-Beliau -Shallallahu 'alaihi wasallam- menjawab, 
+Beliau -Shallallahu 'alaihi wasallam- menjawab,
 (Tidak, melainkan) mereka kufur kepada suami dan mengkufuri kebaikan (suami). Seandainya engkau berbuat baik kepada salah seorang istri kalian pada suatu waktu, kemudian suatu saat ia melihat darimu ada sesuatu (yang tidak berkenan di hatinya) niscaya ia akan berkata, ‘Aku sama sekali belum pernah melihat kebaikan darimu’
 
 HR. Bukhari no. 5197 dan Muslim no. 907
@@ -188,7 +188,7 @@ ___
 
 ### 13. Permata Akal
 
-Harits al Muhasibi -rahimahullah- mengatakan, 
+Harits al Muhasibi -rahimahullah- mengatakan,
 Segala sesuatu mempunyai permata. Permata dalam diri manusia adalah akalnya dan akal yang bernilai permata adalah akal yang mau menerima hidayah Allah
 
 Tarikh Baghdad 8/213

@@ -174,3 +174,22 @@ read more : https://rumaysho.com/29364-lebih-dari-100-keutamaan-orang-berilmu-da
 - [ ] test
 
 ____
+
+### Yang bisa rehat dg kematiannya hanyalah orang yg mendapatkan ampunan saja
+
+Sebagian orang mengatakan: 
+"Sudah lelah aku dengan kehidupan dunia ini, andai sekarang aku mati dan aku bisa beristirahat!".
+Dia mengatakan kata² ini, tanpa merasa ada masalah dg kata²nya. Padahal ini merupakan kesalahan besar yg bisa menjerumuskan dia kepada kebinasaan!
+Lihatlah bagaimana Nabi -shallallahu alaihi wasallam- mengingkari perkataan yg mirip dengan perkataan tersebut.
+
+Suatu ketika, ada orang mengatakan: 
+"Ya Rasulullah, si Fulanah telah meninggal dan beristirahat".
+
+Maka Nabi -shallallahu alaihi wasallam- marah dan mengatakan:
+"Sesungguhnya yg beristirahat hanyalah orang yg telah diampuni dosanya!".
+Silsilah Shahihah 4/286
+
+Ya, hanya orang yg telah diampuni saja. Adapun orang yg tidak diampuni dosa²nya, maka kehidupannya di alam berikutnya akan semakin berat dan semakin melelahkan!
+Maka, perbanyaklah berdoa kepada Allah agar mengampuni kita sebelum meninggalkan dunia ini .. diantaranya dg doa Nabi Ibrahim -alaihissalam-:
+رَبَّنَا ٱغۡفِرۡ لِی وَلِوَ ٰ⁠لِدَیَّ وَلِلۡمُؤۡمِنِینَ یَوۡمَ یَقُومُ ٱلۡحِسَابُ
+"Ya Rabb kami, berikanlah ampunan kepada aku, kedua orang tuaku, dan semua kaum mukminin di hari hisab nanti", amin.
