@@ -193,3 +193,14 @@ Ya, hanya orang yg telah diampuni saja. Adapun orang yg tidak diampuni dosa²nya
 Maka, perbanyaklah berdoa kepada Allah agar mengampuni kita sebelum meninggalkan dunia ini .. diantaranya dg doa Nabi Ibrahim -alaihissalam-:
 رَبَّنَا ٱغۡفِرۡ لِی وَلِوَ ٰ⁠لِدَیَّ وَلِلۡمُؤۡمِنِینَ یَوۡمَ یَقُومُ ٱلۡحِسَابُ
 "Ya Rabb kami, berikanlah ampunan kepada aku, kedua orang tuaku, dan semua kaum mukminin di hari hisab nanti", amin.
+
+___
+
+### Untitled
+
+Tiap hari di Al-Fatihah, minta agar dijauhkan dr jalan kaum Yahudi & Nasrani
+Tp lisan yg sama, ikut²an mengatakan selamat hari raya mereka, pantaskah?
+
+Ustadz Musyaffa' ad-Dariny 
+
+read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
