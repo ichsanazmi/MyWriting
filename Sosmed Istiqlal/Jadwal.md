@@ -181,3 +181,30 @@ __
 4. 2 posting    
    - Menumbuhkan Khusyu' dalam Shalat
    - Keutamaan Surah Al-Kahfi
+
+### 5/11/21
+
+__
+
+1. 3 materi tambahan
+   
+   - Kufur Nikmat Seorang Istri '
+   - Permata Akal '
+   - Tak Bersatunya Dua Cinta '
+
+2. 3 poster
+   
+   - Tidakkah Engkau Malu '
+   - Dunia Bukan Surga Bagi Orang Beriman '
+   - Kufur Nikmat Seorang Istri '
+
+3. Wallpaper
+   
+   -
+   
+   -
+
+4. 2 posting 
+   
+   - Jalan Meraih Kesuksesan dan Kemenangan
+   - Amal Baik dan Jelek di Jalan

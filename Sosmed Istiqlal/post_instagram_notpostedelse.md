@@ -192,7 +192,9 @@ Silsilah Shahihah 4/286
 Ya, hanya orang yg telah diampuni saja. Adapun orang yg tidak diampuni dosa²nya, maka kehidupannya di alam berikutnya akan semakin berat dan semakin melelahkan!
 Maka, perbanyaklah berdoa kepada Allah agar mengampuni kita sebelum meninggalkan dunia ini .. diantaranya dg doa Nabi Ibrahim -alaihissalam-:
 رَبَّنَا ٱغۡفِرۡ لِی وَلِوَ ٰ⁠لِدَیَّ وَلِلۡمُؤۡمِنِینَ یَوۡمَ یَقُومُ ٱلۡحِسَابُ
-"Ya Rabb kami, berikanlah ampunan kepada aku, kedua orang tuaku, dan semua kaum mukminin di hari hisab nanti", amin.
+"Ya Rabb kami, berikanlah ampunan kepada aku, kedua orang tuaku, dan semua kaum mukminin di hari hisab nanti", amin
+
+read more : https://www.facebook.com/addariny.abuabdillah/posts/4569655303149351
 
 ___
 
@@ -204,3 +206,44 @@ Tp lisan yg sama, ikut²an mengatakan selamat hari raya mereka, pantaskah?
 Ustadz Musyaffa' ad-Dariny 
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
+
+___
+
+### Agar Rasa Hasad Hilang ..
+
+Hatim Al-Asham -rahimahullah- mengatakan:
+"Aku melihat orang² saling hasad, maka aku pun merenungi firman Allah ta'ala:
+نَحۡنُ قَسَمۡنَا بَیۡنَهُم مَّعِیشَتَهُمۡ فِی ٱلۡحَیَوٰةِ ٱلدُّنۡیَاۚ 
+"Kamilah yang membagi-bagi penghidupan untuk mereka dalam kehidupan dunia". [Az-Zukhruf: 32]
+Maka, aku pun meninggalkan hasad, karena hasad adalah bentuk protes terhadap pembagian Allah.
+[Mukhtashar Minhajil Qashidin 28]
+
+read more : https://www.facebook.com/addariny.abuabdillah/posts/4463056283809254
+
+___
+
+### Jangan menzalimi siapapun .. dan dalam keadaan apapun.
+
+Lihatlah, tangan² yg membuang Nabi Yusuf -alaihissalam- ke sumur.. setelah beberapa tahun kemudian, tangan² itu juga yg akhirnya menengadah meminta² sedekah kepadanya.
+Jalan hidup kita di tangan Allah, kadang Allah menghendaki kita di atas, dan kadang Allah menghendaki kita di bawah.
+Oleh karenanya, jadilah pribadi yg suka menolong saat di atas, agar kita pantas ditolong saat di bawah
+
+read more : https://www.facebook.com/addariny.abuabdillah/posts/4301124056669145
+
+___
+
+### Buktikan imanmu saat ujian datang dengan bersabar.
+
+=====
+
+Syaikh Al Utsaimin -rahimahullah- mengatakan:
+
+Palsunya emas, tidak bisa diketahui kecuali jika kita lelehkan dengan api. Wanginya gaharu, tidak bisa diketahui kecuali jika kita bakar dengan api. Begitu pula seorang mukmin, tidak bisa diketahui (imannya) kecuali dengan ujian dan cobaan.
+
+Maka saudaraku, bersabarlah. Bisa jadi engkau diganggu karena agamamu. Bisa jadi engkau dihina, bisa jadi engkau dicurigai, bisa jadi engkau diawasi.
+
+Meski demikian, tetaplah bersabar dan teguh. Lihatlah apa yang didapatkan oleh para Rasul yang berjuluk "Ulul Azmi". Bersabarlah dan berharaplah pahala dari kesabaranmu.
+
+Ketahuilah, bahwa ujian apapun yang menimpamu, maka puncaknya adalah kematian. Padahal jika engkau mati dalam keadaan bersabar karena Allah, maka sejatinya engkau telah berpindah dari suatu negeri ke negeri lain yang lebih baik darinya.
+
+[Tafsir Al Baqarah 3/41]

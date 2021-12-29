@@ -226,7 +226,7 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah-
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1720582418127886
 
-- [ ] 23-8-21
+- [x] 23-8-21
 
 ___
 
