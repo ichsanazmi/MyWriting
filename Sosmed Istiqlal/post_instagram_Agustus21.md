@@ -274,8 +274,6 @@ ___
 
 ### 19. Lebih Baik dari Dunia dan Seisinya
 
----
-
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya
 
@@ -293,8 +291,29 @@ ___
 
 ___
 
-### 21.
+### 21. Perayaan Tahun Baru (1)
 
-- [ ] 31-8-21
+Pertanyaan : Apakah boleh bagi kaum muslimin mengucapkan ucapan selamat satu sama lain dalam moment tahun baru? Tentu saja mereka lakukan itu tidak dengan niat merayakannya.
+
+Jawaban :
+
+Alhamdulillah.
+Tidak dibolehkan bagi kaum muslimin saling mengucapkan selamat tahun baru, sebagaimana tidak boleh merayakannya. Berdasarkan dua perkara;
+
+1. Menyerupai orang kafir dan kita telah dilarang dari perkara tersebut.
+   Dishahihkan oleh Al-Albany dalam shahih Sunan Abu Daud, no. 4031, Rasulullah shallallahu alaihi wa sallam bersabda,
+
+مَنْ تَشَبَّهَ بِقَوْمٍ فَهُوَ مِنْهُمْ (رواه أبو داود)
+
+“Siapa yang menyerupai suatu kaum, maka dia termasuk bagian darinya.” HR. Abu Dawud
+
+2. Kemudian, mengucapkan selamat kepada hari yang dirayakan setiap tahun masuk dalam bab merayakannya dan menjadikannya sebagai hari Id. Maka diapun dilarang juga.
+   Wallahua’lam.
+
+Dinukil dari laman Islamqa dalam pertanyaan yang berjudul "Hukum Kaum Muslimin Mengucapkan Selamat Tahun Baru Satu Sama Lain" dengan sedikit penyesuaian
+
+read more : https://islamqa.info/id/answers/177460/hukum-kaum-muslimin-mengucapkan-selamat-tahun-baru-satu-sama-lain
+
+- [ ] 31-8-21 // repost 26-11-2020
 
 ___
