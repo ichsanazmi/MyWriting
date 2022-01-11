@@ -240,7 +240,7 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyes
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1735657829953678
 
-- [ ] 24-8-21
+- [x] 24-8-21
 
 ___
 
@@ -254,11 +254,11 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyes
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1740751776110950
 
-- [ ] 25-8-21
+- [x] 25-8-21
 
 ___
 
-### 18. Tidak Tertinggal Takbiratul Ihram
+### 18. Terbebas Dari Siksa Neraka dan Kemunafikan
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 Siapa yang melaksanakan sholat karena Allah selama 40 hari secara berjamaah, ia tidak luput dari takbiratul ihram, maka ia akan dicatat terbebas dari 2 hal yaitu terbebas dari siksa neraka dan terbebas dari kemunafikan
@@ -281,7 +281,7 @@ HR. Muslim no.1193
 Dinukil dari KonsultasiSyariah.com dalam artikel berjudul "Keutamaan Shalat Qabliyah Shubuh"
 read more : https://konsultasisyariah.com/10341-keutamaan-shalat-qabliyah-shubuh.html
 
-- [ ] 27-8-21 //repost 2-9-20
+- [x] 27-8-21 //repost 2-9-20
 
 ___
 
@@ -314,6 +314,6 @@ Dinukil dari laman Islamqa dalam pertanyaan yang berjudul "Hukum Kaum Muslimin M
 
 read more : https://islamqa.info/id/answers/177460/hukum-kaum-muslimin-mengucapkan-selamat-tahun-baru-satu-sama-lain
 
-- [ ] 31-8-21 // repost 26-11-2020
+- [x] 31-8-21 // repost 26-11-2020
 
 ___
