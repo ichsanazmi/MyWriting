@@ -268,7 +268,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Bisakah kita tidak ketinggal
 
 read more : https://rumaysho.com/15756-bisakah-kita-tidak-ketinggalan-takbiratul-ihram-bersama-imam-selama-40-hari.html
 
-- [ ] 26-8-21
+- [x] 26-8-21
 
 ___
 
