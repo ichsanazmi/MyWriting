@@ -247,3 +247,36 @@ Meski demikian, tetaplah bersabar dan teguh. Lihatlah apa yang didapatkan oleh p
 Ketahuilah, bahwa ujian apapun yang menimpamu, maka puncaknya adalah kematian. Padahal jika engkau mati dalam keadaan bersabar karena Allah, maka sejatinya engkau telah berpindah dari suatu negeri ke negeri lain yang lebih baik darinya.
 
 [Tafsir Al Baqarah 3/41]
+
+___
+
+### Untitled
+
+Hasratmu jangan selalu ingin agar lebih baik dari orang lain, tapi bagaimana dirimu menjadi lebih dari dirimu sendiri sebelumnya, akal kalau selalu sibuk dengan orang lain dan terobsesi dengannya maka akan menjadi sempit dan akan menjadi luas jika sibuk dengan dirinya sendiri.
+
+Ustadz Musa Mulyadi Luqman
+
+https://www.facebook.com/musamulyadi/posts/4646065232127744
+
+___
+
+### Untitled
+
+Imam Ahmad Bercerita:
+"Dahulu ibuku telah menjadikan aku hafal al-quran saat aku berumur 10 tahun. ia selalu membangunkanku sebelum shalat fajar. Ia memanaskan air untukku di malam-malam yang amat dingin di baghdad dan memakaikan untukku pakaianku. Lalu ia memakai cadar dan hijabnya untuk mengantarkanku ke masjid karena jauh jaraknya"
+Min Akhbar Salaf
+
+Di belakang para ulama besar itu ada ibu-ibu yang luar biasa
+ustadz badru salam
+https://www.facebook.com/UBCintaSunnah/posts/1566373470222758
+
+___
+
+### Untitled
+
+Hasan al-bashri -rahimahullah- berkata 
+"barangsiapa kurang ajar kepada Allah diatas tanah, Allah akan ajar dia di bawah tanah"
+Madarijus salikin 2/67
+
+Ustadz Aris Munandar
+https://www.facebook.com/arismunandarjogja/posts/1805572992962161
