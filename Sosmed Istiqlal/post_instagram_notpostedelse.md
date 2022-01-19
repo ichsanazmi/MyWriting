@@ -109,20 +109,6 @@ read more : https://www.facebook.com/arismunandarjogja/posts/1742185439300917
 
 ___
 
-### Manajemen Konflik
-
-Abu Darda berkata kepada isterinya, Ummu Darda, 
-Jika aku sedang marah maka redakanlah amarahku. Jika engkau lagi marah maka aku berupaya untuk meredakan amarahmu. Jika kita tidak melakukan hal ini maka bahtera rumah tangga kita akan cepat karam
-
-Raudhatul Uqala karya Ibnu Hibban al Busti hal 24
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/arismunandarjogja/posts/136417033211107
-
-- [ ] test
-
-___
-
 ### test
 
 Wahab bin Munabbih -rahimahullah-, seorang ulama era tabiin mengatakan, 
@@ -132,27 +118,6 @@ Al-Mushannaf karya Ibnu Abi Syaibah
 Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
-
-- [ ] test
-
-____
-
-### Do'a Memohon Petunjuk, Ketaqwaan, Sifat 'Afaf dan Ghina
-
- اللَّهُمَّ إنِّي أسْألُكَ الهُدَى ، وَالتُّقَى ، وَالعَفَافَ ، وَالغِنَى رَوَاهُ مُسْلِمٌ
-
-Allahumma inni as-alukal huda wat tuqo wal 'afaf wal ghina
-artinya: Ya Allah, aku memohon kepada-Mu petunjuk, ketakwaan, sifat ‘afaf– terjaga dari yang haram dan menahan diri darinya–, dan sifat ghina– kaya hati, merasa cukup dari apa yang ada pada manusia dan apa yang ada di tangan mereka–.”
-
-HR. Muslim
-
-Imam Nawawi -rahimahullah- mengatakan, 
-Afaf dan ‘iffah bermakna menjauhkan dan menahan diri dari hal yang tidak diperbolehkan. Sedangkan al-ghina adalah hati yang selalu merasa cukup dan tidak butuh pada apa yang ada di sisi manusia.
-Syarh Shahih Muslim, 17:41
-
-Dinukil dari laman Rumaysho dalam artikel berjudul "Rugi jika tidak mengafal doa memohon petunjuk.."
-
-read more : https://rumaysho.com/19608-rugi-jika-tidak-menghafal-doa-memohon-petunjuk-ketakwaan-afaf-dan-ghina.html
 
 - [ ] test
 
@@ -222,34 +187,6 @@ read more : https://www.facebook.com/addariny.abuabdillah/posts/4463056283809254
 
 ___
 
-### Jangan menzalimi siapapun .. dan dalam keadaan apapun.
-
-Lihatlah, tangan² yg membuang Nabi Yusuf -alaihissalam- ke sumur.. setelah beberapa tahun kemudian, tangan² itu juga yg akhirnya menengadah meminta² sedekah kepadanya.
-Jalan hidup kita di tangan Allah, kadang Allah menghendaki kita di atas, dan kadang Allah menghendaki kita di bawah.
-Oleh karenanya, jadilah pribadi yg suka menolong saat di atas, agar kita pantas ditolong saat di bawah
-
-read more : https://www.facebook.com/addariny.abuabdillah/posts/4301124056669145
-
-___
-
-### Buktikan imanmu saat ujian datang dengan bersabar.
-
-=====
-
-Syaikh Al Utsaimin -rahimahullah- mengatakan:
-
-Palsunya emas, tidak bisa diketahui kecuali jika kita lelehkan dengan api. Wanginya gaharu, tidak bisa diketahui kecuali jika kita bakar dengan api. Begitu pula seorang mukmin, tidak bisa diketahui (imannya) kecuali dengan ujian dan cobaan.
-
-Maka saudaraku, bersabarlah. Bisa jadi engkau diganggu karena agamamu. Bisa jadi engkau dihina, bisa jadi engkau dicurigai, bisa jadi engkau diawasi.
-
-Meski demikian, tetaplah bersabar dan teguh. Lihatlah apa yang didapatkan oleh para Rasul yang berjuluk "Ulul Azmi". Bersabarlah dan berharaplah pahala dari kesabaranmu.
-
-Ketahuilah, bahwa ujian apapun yang menimpamu, maka puncaknya adalah kematian. Padahal jika engkau mati dalam keadaan bersabar karena Allah, maka sejatinya engkau telah berpindah dari suatu negeri ke negeri lain yang lebih baik darinya.
-
-[Tafsir Al Baqarah 3/41]
-
-___
-
 ### Untitled
 
 Hasratmu jangan selalu ingin agar lebih baik dari orang lain, tapi bagaimana dirimu menjadi lebih dari dirimu sendiri sebelumnya, akal kalau selalu sibuk dengan orang lain dan terobsesi dengannya maka akan menjadi sempit dan akan menjadi luas jika sibuk dengan dirinya sendiri.
@@ -262,21 +199,46 @@ ___
 
 ### Untitled
 
-Imam Ahmad Bercerita:
-"Dahulu ibuku telah menjadikan aku hafal al-quran saat aku berumur 10 tahun. ia selalu membangunkanku sebelum shalat fajar. Ia memanaskan air untukku di malam-malam yang amat dingin di baghdad dan memakaikan untukku pakaianku. Lalu ia memakai cadar dan hijabnya untuk mengantarkanku ke masjid karena jauh jaraknya"
-Min Akhbar Salaf
-
-Di belakang para ulama besar itu ada ibu-ibu yang luar biasa
-ustadz badru salam
-https://www.facebook.com/UBCintaSunnah/posts/1566373470222758
-
-___
-
-### Untitled
-
 Hasan al-bashri -rahimahullah- berkata 
 "barangsiapa kurang ajar kepada Allah diatas tanah, Allah akan ajar dia di bawah tanah"
 Madarijus salikin 2/67
 
 Ustadz Aris Munandar
 https://www.facebook.com/arismunandarjogja/posts/1805572992962161
+
+___
+
+### Untitled
+
+Abu Bakr Al-Warraq -rahimahullah- berkata,
+"Dosa yang paling banyak menyebabkan iman tercabut dari hati adalah kezhaliman terhadap orang lain"
+
+Tanbihul Ghafilin 1/380
+
+Ustadz Musa Mulyadi Luqman
+
+https://www.facebook.com/musamulyadi/posts/4710433725690894
+
+___
+
+### Untitled
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Barangsiapa merutinkan shalat sunnah dua belas raka’at dalam sehari, maka Allah akan membangunkan bagi dia sebuah rumah di surga. Dua belas raka’at tersebut adalah empat raka’at sebelum  zhuhur, dua raka’at sesudah zhuhur, dua raka’at sesudah maghrib, dua raka’at sesudah ‘Isya, dan dua raka’at sebelum shubuh "
+HR At-Tirmidzi no. 414, Dishahihkan Syaikh Al-Albani
+
+read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
+
+___
+
+### Untitled
+
+Sa'id bin Al-Musayyib -rahimahullah- berkata,
+"Usiaku telah delapan puluh tahun dan tidak ada yang paling aku takutkan selain dari fitnah perempuan" Ketika itu penglihatan beliau hampir hilang 
+
+Ibnu Sa'd dalam kitab Al-Thabaqat. 6948
+
+Ustadz Musa Mulyadi Luqman
+
+https://www.facebook.com/musamulyadi/posts/4671457482921852

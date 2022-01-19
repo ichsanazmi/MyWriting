@@ -1,75 +1,86 @@
-# Post Instagram Agustus 21
+# Post Instagram September 21
 
 ___
 
-### 1. Mukmin Yang Cerdas
+### 1. Sosok di Balik Para Ulama Besar
 
-Rasulullah -Shallallahu 'alaihi wasallam- pernah ditanya
-“Lalu mukmin manakah yang paling cerdas?”
-Beliau bersabda, “Yang paling banyak mengingat kematian dan yang paling baik dalam mempersiapkan diri untuk alam berikutnya, itulah mereka yang paling cerdas.”
+Imam Ahmad -rahimahullah- bercerita:
+"Dahulu ibuku telah menjadikan aku hafal al-quran saat aku berumur 10 tahun. ia selalu membangunkanku sebelum shalat fajar. Ia memanaskan air untukku di malam-malam yang amat dingin di baghdad dan memakaikan untukku pakaianku. Lalu ia memakai cadar dan hijabnya untuk mengantarkanku ke masjid karena jauh jaraknya"
+Min Akhbar Salaf
+Di belakang para ulama besar itu ada ibu-ibu yang luar biasa
 
-HR. Ibnu Majah no. 4259. Hasan kata Syaikh Al Albani
-Dinukil dari laman Rumaysho dalam artikel berjudul "Kematian Yang Kembali Menyadarkan Kita" dengan sedikit penyesuaian
+Dinukil dari status facebook Ustadz Badrusalam -hafizhahullah- dengan sedikit penyesuaian
 
-read more : https://rumaysho.com/2822-kematian-yang-kembali-menyadarkan-kita.html
+read more : https://www.facebook.com/UBCintaSunnah/posts/1566373470222758
 
-- [x] 1-8-21 // repost 21-9-20
-
-___
-
-### 2. Menumbuhkan Khusyu' dalam Shalat
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Ingatlah kematian dalam shalatmu, karena jika seseorang mengingat mati dalam shalatnya, maka ia akan memperbagus shalatnya. Shalatlah seperti shalat orang yang tidak menyangka bahwa ia masih punya kesempatan melakukan shalat yang lainnya.
-
-HR. Ad Dailami dalam musnad Al-Firdaus, Dihasankan Syaikh Al-Albani
-Dinukil dari laman Rumaysho dalam artikel berjudul "Kematian Yang Kembali Menyadarkan Kita"
-
-read more : https://rumaysho.com/2822-kematian-yang-kembali-menyadarkan-kita.html
-
-- [x] 2-8-21
+- [ ] 1-9-21 
 
 ___
 
-### 3. Jalan Meraih Kesuksesan dan Kemenangan
+### 2. Buktikan imanmu saat ujian datang dengan bersabar
 
-Jalan meraih kesuksesan dan kemenangan: Anda gantungkan hati Anda hanya kepada Allah.
-Syaikh Prof. Dr Abdullah ar Ruhaili
+Syaikh Al Utsaimin -rahimahullah- mengatakan:
+Palsunya emas, tidak bisa diketahui kecuali jika kita lelehkan dengan api. Wanginya gaharu, tidak bisa diketahui kecuali jika kita bakar dengan api. Begitu pula seorang mukmin, tidak bisa diketahui (imannya) kecuali dengan ujian dan cobaan.
 
-Dinukil dari blog twitulama dari tweet @Alruhaili_Abdu
-read more : https://twitulama.tumblr.com/post/169450059922/jalan-meraih-kesuksesan-dan-kemenangan-anda
+Maka saudaraku, bersabarlah. Bisa jadi engkau diganggu karena agamamu. Bisa jadi engkau dihina, bisa jadi engkau dicurigai, bisa jadi engkau diawasi.
 
-- [x] 5-8-21
+Meski demikian, tetaplah bersabar dan teguh. Lihatlah apa yang didapatkan oleh para Rasul yang berjuluk "Ulul Azmi". Bersabarlah dan berharaplah pahala dari kesabaranmu.
+
+Ketahuilah, bahwa ujian apapun yang menimpamu, maka puncaknya adalah kematian. Padahal jika engkau mati dalam keadaan bersabar karena Allah, maka sejatinya engkau telah berpindah dari suatu negeri ke negeri lain yang lebih baik darinya.
+Tafsir Al Baqarah 3/41
+
+Dinukil dari status facebook Ustadz Musyaffa' Ad-Dariny -hafizhahullah-
+read more :  https://www.facebook.com/addariny.abuabdillah/posts/4216942741753944
+
+- [ ] 2-9-21
 
 ___
 
-### 4. Keutamaan Surah Al-Kahfi
+### 3. Manajemen Konflik
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-"Barangsiapa yang membaca surat Al Kahfi pada hari Jum’at, dia akan disinari cahaya di antara dua Jum’at"
+Abu Darda berkata kepada isterinya, Ummu Darda, 
+Jika aku sedang marah maka redakanlah amarahku. Jika engkau lagi marah maka aku berupaya untuk meredakan amarahmu. Jika kita tidak melakukan hal ini maka bahtera rumah tangga kita akan cepat karam
 
-HR. Hakim, 2/399. Baihaqi, 3/29. Dinilai Shahih oleh Syekh Albani dalam Shahih Al-Jaami’ no. 6470.
-Dinukil dari laman TheHumairo dalam artikel berjudul "Baca Al-Kahfi Di Hari Jum’at Dapat Cahaya, Apa Maknanya?"
+Raudhatul Uqala karya Ibnu Hibban al Busti hal 24
+Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
-read more : https://thehumairo.com/2668-baca-al-kahfi-di-hari-jumat-dapat-cahaya-apa-maknanya.html
+read more : https://www.facebook.com/arismunandarjogja/posts/136417033211107
 
-- [x] 6-8-21
+- [ ] 3-9-21
+
+___
+
+### 4. Jangan Menzalimi Siapapun Dan Dalam Keadaan Apapun
+
+Lihatlah, tangan² yg membuang Nabi Yusuf -alaihissalam- ke sumur.. setelah beberapa tahun kemudian, tangan² itu juga yg akhirnya menengadah meminta² sedekah kepadanya.
+Jalan hidup kita di tangan Allah, kadang Allah menghendaki kita di atas, dan kadang Allah menghendaki kita di bawah.
+Oleh karenanya, jadilah pribadi yg suka menolong saat di atas, agar kita pantas ditolong saat di bawah
+Ustadz Musyaffa' Ad-Dariny -hafizhahullah-
+
+Dinukil dari status facebook Ustadz Musyaffa' Ad-Dariny -hafizhahullah- dengan sedikit penyesuaian
+read more : https://www.facebook.com/addariny.abuabdillah/posts/4301124056669145
+
+- [ ] 6-9-21
 
 ____
 
-### 5. Makna Cahaya Antara Jumat
+### 5. Do'a Memohon Petunjuk, Ketaqwaan, Sifat 'Afaf dan Ghina
 
-Ada dua tafsiran ulama ttg makna cahaya antara dua Jumat :
-Pertama, cahaya hidayah yang akan membimbing seorang mudah berbuat baik dan terlindungi dari perbuatan dosa.
-Layaknya cahaya yang memandu seorang untuk meniti jalan yang tepat dan mencegahnya jatuh pada jurang.
+اللَّهُمَّ إنِّي أسْألُكَ الهُدَى ، وَالتُّقَى ، وَالعَفَافَ ، وَالغِنَى رَوَاهُ مُسْلِمٌ
 
-Kedua, cahaya di dunia dan di akhirat : di dunia berupa aura wajah yg bersinar, di akhirat maksudnya cahaya yang terpancar terang dari wajahnya di hari kiamat kelak.
+Allahumma inni as-alukal huda wat tuqo wal 'afaf wal ghina
+artinya: Ya Allah, aku memohon kepada-Mu petunjuk, ketakwaan, sifat ‘afaf– terjaga dari yang haram dan menahan diri darinya–, dan sifat ghina– kaya hati, merasa cukup dari apa yang ada pada manusia dan apa yang ada di tangan mereka–.”
+HR. Muslim
 
-Dinukil dari laman TheHumairo dalam artikel berjudul "Baca Al-Kahfi Di Hari Jum’at Dapat Cahaya, Apa Maknanya?"
+Imam Nawawi -rahimahullah- mengatakan, 
+Afaf dan ‘iffah bermakna menjauhkan dan menahan diri dari hal yang tidak diperbolehkan. Sedangkan al-ghina adalah hati yang selalu merasa cukup dan tidak butuh pada apa yang ada di sisi manusia.
+Syarh Shahih Muslim, 17:41
 
-read more : https://thehumairo.com/2668-baca-al-kahfi-di-hari-jumat-dapat-cahaya-apa-maknanya.html
+Dinukil dari laman Rumaysho dalam artikel berjudul "Rugi jika tidak mengafal doa memohon petunjuk.."
 
-- [ ] 9-8-21
+read more : https://rumaysho.com/19608-rugi-jika-tidak-menghafal-doa-memohon-petunjuk-ketakwaan-afaf-dan-ghina.html
+
+- [ ] 7-9-21
 
 ___
 
@@ -83,7 +94,7 @@ Dinukil dari facebook Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
 
 read more : https://www.facebook.com/story.php?story_fbid=3801640776570198&id=100001729388129
 
-- [x] 10-8-21
+- [x] 8-9-21
 
 ___
 
