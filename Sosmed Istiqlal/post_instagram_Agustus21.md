@@ -294,7 +294,7 @@ Al Ikhwan karya Ibnu Abid Dunya, 83
 Dinukil dari status facebook Ustadz Yulian Purnama -hafizhahullah- dengan sedikit penyesuaian
 read more : https://www.facebook.com/yulian.purnama/posts/10155253676706868
 
-- [ ] 30-8-21
+- [x] 30-8-21
 
 ___
 
