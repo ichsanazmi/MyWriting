@@ -22,8 +22,9 @@ ___
 Syaikh Al Utsaimin -rahimahullah- mengatakan:
 Palsunya emas, tidak bisa diketahui kecuali jika kita lelehkan dengan api. Wanginya gaharu, tidak bisa diketahui kecuali jika kita bakar dengan api. Begitu pula seorang mukmin, tidak bisa diketahui (imannya) kecuali dengan ujian dan cobaan.
 
-Maka saudaraku, bersabarlah. Bisa jadi engkau diganggu karena agamamu. Bisa jadi engkau dihina, bisa jadi engkau dicurigai, bisa jadi engkau diawasi.
+Maka saudaraku, bersabarlah. 
 
+Bisa jadi engkau diganggu karena agamamu. Bisa jadi engkau dihina, bisa jadi engkau dicurigai, bisa jadi engkau diawasi.
 Meski demikian, tetaplah bersabar dan teguh. Lihatlah apa yang didapatkan oleh para Rasul yang berjuluk "Ulul Azmi". Bersabarlah dan berharaplah pahala dari kesabaranmu.
 
 Ketahuilah, bahwa ujian apapun yang menimpamu, maka puncaknya adalah kematian. Padahal jika engkau mati dalam keadaan bersabar karena Allah, maka sejatinya engkau telah berpindah dari suatu negeri ke negeri lain yang lebih baik darinya.
