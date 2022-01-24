@@ -13,7 +13,7 @@ Dinukil dari status facebook Ustadz Badrusalam -hafizhahullah- dengan sedikit pe
 
 read more : https://www.facebook.com/UBCintaSunnah/posts/1566373470222758
 
-- [ ] 1-9-21 
+- [x] 1-9-21 
 
 ___
 
@@ -33,7 +33,7 @@ Tafsir Al Baqarah 3/41
 Dinukil dari status facebook Ustadz Musyaffa' Ad-Dariny -hafizhahullah-
 read more :  https://www.facebook.com/addariny.abuabdillah/posts/4216942741753944
 
-- [ ] 2-9-21
+- [x] 2-9-21
 
 ___
 
@@ -47,7 +47,7 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyes
 
 read more : https://www.facebook.com/arismunandarjogja/posts/136417033211107
 
-- [ ] 3-9-21
+- [x] 3-9-21
 
 ___
 
@@ -85,31 +85,31 @@ read more : https://rumaysho.com/19608-rugi-jika-tidak-menghafal-doa-memohon-pet
 
 ___
 
-### 6. Hidayah Untuk Berdoa
+### 6. Menunggu Waktu Shalat Di Masjid
 
-Umar bin Khattab -radhiallahu 'anhu- berkata,
-Jika terbersik dalam dirimu keinginan untuk berdoa meminta kepada Allah, itu pertanda Allah hendak mengabulkan keinginanmu
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda
+Para malaikat akan mendoakan salah seorang di antara kalian selama ia tetap berada di tempat shalatnya, selama ia tidak berhadats. Malaikat mengucapkan, “Ya Allah, ampunilah dia. Ya Allah rahmatilah dia
+HR. Bukhari, no. 445
 
-Asyru Qawaaidi fii Tazkiyatin Nafs
-Dinukil dari facebook Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
+Dinukil dari laman Rumaysho dalam artikel berjudul "Menunggu Shalat Akan Didoakan Malaikat"
 
-read more : https://www.facebook.com/story.php?story_fbid=3801640776570198&id=100001729388129
+Read more : https://rumaysho.com/15565-menunggu-shalat-akan-didoakan-malaikat.html
 
-- [x] 8-9-21
+- [ ] 8-9-21
 
 ___
 
-### 7. Amal Baik dan Jelek di Jalan
+### 7. Menilai Kualitas Diri
 
-Syaikh Shalih bin Utsaimin -rahimahullah- dalam kitabnya,
-"Jika menyingkirkan gangguan dari jalan itu bernilai sedekah maka memasang pengganggu kenyamanan di jalan adalah perbuatan jelek. Contohnya adalah buang sampah sembarangan di jalan raya"
+al-Fudhail bin ‘Iyadh -rahimahullah- berkata :
+Wahai orang yang malang. Engkau berbuat buruk sementara engkau memandang dirimu sebagai orang yang berbuat kebaikan. Engkau adalah orang yang bodoh sementara engkau justru menilai dirimu sebagai orang berilmu. Engkau kikir sementara itu engkau mengira dirimu orang yang pemurah. Engkau dungu sementara itu engkau melihat dirimu cerdas. Ajalmu sangatlah pendek, sedangkan angan-anganmu sangatlah panjang
 
-Syarh Riyadhus Shalihin 37/3
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+Aina Nahnu min Akhlaq as-Salaf, hal. 15
+Dinukil dari laman Al-Mubarok.com dalam artikel berjudul "Untaian Nasihat Ulama 8" 
 
-read more : https://www.facebook.com/arismunandarjogja/posts/1721479151371546
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
 
-- [x] 11-8-21
+- [ ] 9-9-21
 
 ___
 
