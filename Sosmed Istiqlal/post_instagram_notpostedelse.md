@@ -243,42 +243,66 @@ Ustadz Musa Mulyadi Luqman
 
 https://www.facebook.com/musamulyadi/posts/4671457482921852
 
+___
 
+### Pentingnya Ikhlas dan Amal
 
-
-
-Nasihat 6
-Pentingnya Ikhlas da Amal
 Imam Ibnul Qayyim -rahimahullah- berkata,
-"Seandainya ilmu bisa bermanfaat tanpa amalan niscaya Yang Maha Suci tidak akan mencela para pendeta Ahli Kitab. Dan jika seandainya amalan bisa bermanfaat tanpa adanya keikhlasan niscaya Allah juga tidak akan mencela orang-orang munafik
-
+"Seandainya ilmu bisa bermanfaat tanpa amalan niscaya Yang Maha Suci tidak akan mencela para pendeta Ahli Kitab. Dan jika seandainya amalan bisa bermanfaat tanpa adanya keikhlasan niscaya Allah juga tidak akan mencela orang-orang munafik"
 Al-Fawa'id, hal. 34
 
-Ikhlas dan Benar
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6" 
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
+
+### Ikhlas dan Benar
+
 Fudhail bin Iyadh -rahimahullah- berkata :
-Sesungguhnya amalan jika ikhlas namun tidak benar maka tidak akan diterima. Demikian pula apabila amalan itu benar tapi tidak ikhlas juga tidak akan diterima sampai ia ikhlas dan benar. Ikhlas itu jika diperuntukkan bagi Allah, sedangkan benar jika berada di atas Sunnah/tuntunan
+"Sesungguhnya amalan jika ikhlas namun tidak benar maka tidak akan diterima. Demikian pula apabila amalan itu benar tapi tidak ikhlas juga tidak akan diterima sampai ia ikhlas dan benar. Ikhlas itu jika diperuntukkan bagi Allah, sedangkan benar jika berada di atas Sunnah/tuntunan"
 Jami Al-'Ulum wa Al-Hikam, Hal. 19
 
-Kunci Memperbaiki Amalan
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6" 
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
+
+____
+
+### Kunci Memperbaiki Amalan
+
 Mutharrif bin Abdillah asy-Syikhkhir -rahimahullah- berkata :
 "Baiknya hati dengan baiknya amalan. adapun baiknya amalan adalah dengan baiknya niat"
 Iqazh al-Himam al-Muntaqa min Jami' al-'Ulum wa al-Hikam, hal. 35
 
-nasihat ulama 3
-Bahaya Beramal Tanpa Ilmu
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6" 
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
+
+____
+
+### Bahaya Beramal Tanpa Ilmu
+
 Umar bin Abdul 'Aziz -rahimahullah- berkata :
 "Barangsiapa melakukan suatu amal tanpa landasan ilmu maka apa-apa yang dia rusak itu justru lebih banyak daripada apa-apa yang dia perbaik"
-
 Jami' Bayan al-'Ilmi wa Fadhlihi, Hal.131
 
-nasihat ulama 8
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 3" 
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-3/
 
-Pentingnya Meningat Kematian
+____
+
+### Pentingnya Meningat Kematian
+
 Sa'id bin Jubair -rahimahullah- berkata : 
 "Seandainya mengingat kematian berpisah dari hatiku maka aku benar-benar khawatir hatiku menjadi rusak
 Min A'lam as-Salaf 1/70
 
-Orang Yang Diberkahi
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8" 
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
+
+______
+
+### Orang Yang Diberkahi
+
 Syaikh Abdul Aziz ar-Rajihi -hafizhahullah- mengatakan :
 "Orang yang diberkahi adalah yang kemanfaatannya meluas kepada orang-orang lain. Apakah itu dalam bentuk memberikan makanan kepada orang yang kelaparan atau meringankan beban urusan mereka dan memberikan bantuan untuk mereka
 Syarh Qawa'id Arba' Syaikh ar-Rajihi, hal. 5
+
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8" 
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
