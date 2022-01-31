@@ -306,3 +306,18 @@ Syarh Qawa'id Arba' Syaikh ar-Rajihi, hal. 5
 
 Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8" 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
+
+___
+
+### Doa Seorang Ustadz untuk Murid-Muridnya
+
+Al-Qadhi Iyadh -rahimahullah- mengatakan :
+Telah sampai khabar kepada kami tentang seorang guru yang selalu menjaga kehormatan dirinya. Suatu ketika beliau terlihat sedang berdoa di sekitar ka'bah. beliau berkata:
+"Ya Allah, jadikanlah seluruh anak yang pernah aku ajari sebagai hambaMu yang Salih"
+Maka keluar dari didikan beliau sekitar 90 orang alim dan orang-orang shalih
+Tartibul Madarik, 266
+
+Dinukil dari status facebook Ustadz Wira Bachrun dengan sedikit penyesuaian
+read more : https://www.facebook.com/wira.bachrun/posts/1329424780591157
+
+___
