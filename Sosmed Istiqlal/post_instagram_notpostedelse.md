@@ -321,3 +321,23 @@ Dinukil dari status facebook Ustadz Wira Bachrun dengan sedikit penyesuaian
 read more : https://www.facebook.com/wira.bachrun/posts/1329424780591157
 
 ___
+
+### Untitled
+
+Dalam Sahih Muslim diriwayatkan bahwa Nabi -shallallahu 'alaihi wasallam- bersabda,
+"Setiap hamba akan dibangkitkan di atas keadaan kematiannya"
+Maka ..
+
+1. Rutinkan kebiasaan baik, walau pun sedikit dan sederhana.
+
+2. Jangan meremehkan suatu yang Ma'ruf secuilpun, agar bisa diamalkan sebagai amalan yang berkesinambungan
+
+3. Buang dan campakkan kebiasaan buruk (dan ini yang paling sulit, apalagi kalau sudah menjadi tabiat)
+
+4. Banyak banyak berdoa minta hidayah dan agar diberikan Husnul Khitam
+
+5. Bertemanlah dengan orang-orang Salih.
+
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/musamulyadi/posts/4777239139010352
