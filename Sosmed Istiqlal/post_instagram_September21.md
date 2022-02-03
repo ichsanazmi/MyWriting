@@ -113,17 +113,30 @@ read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
 
 ___
 
-### 8. Akhlak Mulia dalam Berbicara
+### 8. Orang Yang Beristirahat dengan Kematiannya
 
-Habib bin Abu Tsabit -rahimahullah- mengatakan,
-"Di antara bentuk akhlak mulia adalah ngobrol dengan orang lain sambil tersenyum".
+Sebagian orang mengatakan: 
+"Sudah lelah aku dengan kehidupan dunia ini, andai sekarang aku mati dan aku bisa beristirahat!".
+Dia mengatakan kata² ini, tanpa merasa ada masalah dg kata²nya. Padahal ini merupakan kesalahan besar yg bisa menjerumuskan dia kepada kebinasaan!
+Lihatlah bagaimana Nabi -shallallahu alaihi wasallam- mengingkari perkataan yg mirip dengan perkataan tersebut.
 
-Raudhatul Uqala Wa Nuzhatu Fudhala, hal 77
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah-
+Suatu ketika, ada orang mengatakan: 
+"Ya Rasulullah, si Fulanah telah meninggal dan beristirahat".
 
-read more : https://www.facebook.com/arismunandarjogja/posts/1721477838038344
+Maka Nabi -shallallahu alaihi wasallam- marah dan mengatakan:
+"Sesungguhnya yg beristirahat hanyalah orang yg telah diampuni dosanya!".
+Silsilah Shahihah 4/286
 
-- [x] 12-8-21
+Ya, hanya orang yg telah diampuni saja. Adapun orang yg tidak diampuni dosa²nya, maka kehidupannya di alam berikutnya akan semakin berat dan semakin melelahkan!
+Maka, perbanyaklah berdoa kepada Allah agar mengampuni kita sebelum meninggalkan dunia ini .. diantaranya dg doa Nabi Ibrahim -alaihissalam-:
+رَبَّنَا ٱغۡفِرۡ لِی وَلِوَ ٰ⁠لِدَیَّ وَلِلۡمُؤۡمِنِینَ یَوۡمَ یَقُومُ ٱلۡحِسَابُ
+"Ya Rabb kami, berikanlah ampunan kepada aku, kedua orang tuaku, dan semua kaum mukminin di hari hisab nanti", amin
+
+Dinukil dari status facebook Ustadz Musyaffa' ad-Dariny -hafizhahullah- dengan sedikit penyesuaian judul
+
+read more : https://www.facebook.com/addariny.abuabdillah/posts/4569655303149351
+
+- [ ] 10-9-21
 
 ___
 

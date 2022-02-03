@@ -140,7 +140,7 @@ read more : https://rumaysho.com/29364-lebih-dari-100-keutamaan-orang-berilmu-da
 
 ____
 
-### Yang bisa rehat dg kematiannya hanyalah orang yg mendapatkan ampunan saja
+### Orang Yang Beristirahat dengan Kematiannya
 
 Sebagian orang mengatakan: 
 "Sudah lelah aku dengan kehidupan dunia ini, andai sekarang aku mati dan aku bisa beristirahat!".
@@ -158,6 +158,8 @@ Ya, hanya orang yg telah diampuni saja. Adapun orang yg tidak diampuni dosa²nya
 Maka, perbanyaklah berdoa kepada Allah agar mengampuni kita sebelum meninggalkan dunia ini .. diantaranya dg doa Nabi Ibrahim -alaihissalam-:
 رَبَّنَا ٱغۡفِرۡ لِی وَلِوَ ٰ⁠لِدَیَّ وَلِلۡمُؤۡمِنِینَ یَوۡمَ یَقُومُ ٱلۡحِسَابُ
 "Ya Rabb kami, berikanlah ampunan kepada aku, kedua orang tuaku, dan semua kaum mukminin di hari hisab nanti", amin
+
+Dinukil dari status facebook Ustadz Musyaffa' ad-Dariny -hafizhahullah- dengan sedikit penyesuaian judul
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/4569655303149351
 
