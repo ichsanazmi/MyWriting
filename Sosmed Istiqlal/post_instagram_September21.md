@@ -61,7 +61,7 @@ Ustadz Musyaffa' Ad-Dariny -hafizhahullah-
 Dinukil dari status facebook Ustadz Musyaffa' Ad-Dariny -hafizhahullah- dengan sedikit penyesuaian
 read more : https://www.facebook.com/addariny.abuabdillah/posts/4301124056669145
 
-- [ ] 6-9-21
+- [x] 6-9-21
 
 ____
 
@@ -95,7 +95,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Menunggu Shalat Akan Didoaka
 
 Read more : https://rumaysho.com/15565-menunggu-shalat-akan-didoakan-malaikat.html
 
-- [ ] 8-9-21
+- [x] 8-9-21
 
 ___
 
@@ -109,7 +109,7 @@ Dinukil dari laman Al-Mubarok.com dalam artikel berjudul "Untaian Nasihat Ulama 
 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
 
-- [ ] 9-9-21
+- [x] 9-9-21
 
 ___
 
@@ -136,7 +136,7 @@ Dinukil dari status facebook Ustadz Musyaffa' ad-Dariny -hafizhahullah- dengan s
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/4569655303149351
 
-- [ ] 10-9-21
+- [x] 10-9-21
 
 ___
 
