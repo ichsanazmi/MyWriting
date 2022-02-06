@@ -343,3 +343,40 @@ Maka ..
 Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/musamulyadi/posts/4777239139010352
+
+___
+
+### Untitled
+
+Nasihat Ibnu Abi al-Hawariy -rahimahullah- :
+Siapa saja yang mengenal hakikat dunia ini maka dia akan zuhud di dalamnya, dan siapa saja yang mengenal hakikat Akhirat maka dia akan menginginkannya, dan siapa saja yang mengenal Allah dia akan mendahulukan ridla-Nya.
+
+Albidayah Wannihayah 11/202
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
+read more : https://www.facebook.com/musamulyadi/posts/4660433957357538
+
+___
+
+### Dibangunkan Rumah di Surga
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda :
+"Barangsiapa merutinkan shalat sunnah 12 rakaat dalam sehari, maka Allah akan membangunkan bagi dia rumah di surga. 12 rakaat tersebut adalah 4 rakaat sebelum zhuhur, 2 rakaat sesudah zhuhur, 2 rakaat sesudah maghrib, 2 rakaat sesudah isya', dan 2 rakaat sebelum shubuh"
+
+HR. Tirmidzi no. 414. Di shahihkan Syaikh Al-Albani
+
+Dinukil dari laman Rumaysho dalam artikel berjudul "Merutinkan Shalat Sunnah Rawatib" dengan sedikit penyesuaian
+read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
+
+___
+
+### Diharamkan dari Neraka
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda :
+"Barangsiapa merutinkan shalat sunnah 4 rakaat sebelum zhuhur dan 4 rakaat sesudah zhuhur, maka akan diharamkan baginya neraka"
+
+HR. Abu Daud no. 1269, An-Nasa'i no. 1816, At-Tirmidzi no. 428. Di Shahihkan Syaikh al-Albani
+
+Dinukil dari laman Rumaysho dalam artikel berjudul "Merutinkan Shalat Sunnah Rawatib" dengan sedikit penyesuaian
+read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
+
+---
