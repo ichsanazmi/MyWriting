@@ -95,17 +95,7 @@ read more : https://muslim.or.id/53957-didekati-orang-baik.html
 
 ___
 
-### Untitled
-
-Syaikh Al-Utsaimin -rahimahullah- berkata,
-Jika bingung banyak banyak istighfar, karena dengan istighfar Allah akan memberikan pencerahan kepada seorang hamba.
-
-Syarh Al-Kaafiyah Syafi'iyah
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/arismunandarjogja/posts/1742185439300917
-
-- [ ] test
+### 
 
 ___
 
@@ -140,28 +130,7 @@ read more : https://rumaysho.com/29364-lebih-dari-100-keutamaan-orang-berilmu-da
 
 ____
 
-### Orang Yang Beristirahat dengan Kematiannya
-
-Sebagian orang mengatakan: 
-"Sudah lelah aku dengan kehidupan dunia ini, andai sekarang aku mati dan aku bisa beristirahat!".
-Dia mengatakan kata² ini, tanpa merasa ada masalah dg kata²nya. Padahal ini merupakan kesalahan besar yg bisa menjerumuskan dia kepada kebinasaan!
-Lihatlah bagaimana Nabi -shallallahu alaihi wasallam- mengingkari perkataan yg mirip dengan perkataan tersebut.
-
-Suatu ketika, ada orang mengatakan: 
-"Ya Rasulullah, si Fulanah telah meninggal dan beristirahat".
-
-Maka Nabi -shallallahu alaihi wasallam- marah dan mengatakan:
-"Sesungguhnya yg beristirahat hanyalah orang yg telah diampuni dosanya!".
-Silsilah Shahihah 4/286
-
-Ya, hanya orang yg telah diampuni saja. Adapun orang yg tidak diampuni dosa²nya, maka kehidupannya di alam berikutnya akan semakin berat dan semakin melelahkan!
-Maka, perbanyaklah berdoa kepada Allah agar mengampuni kita sebelum meninggalkan dunia ini .. diantaranya dg doa Nabi Ibrahim -alaihissalam-:
-رَبَّنَا ٱغۡفِرۡ لِی وَلِوَ ٰ⁠لِدَیَّ وَلِلۡمُؤۡمِنِینَ یَوۡمَ یَقُومُ ٱلۡحِسَابُ
-"Ya Rabb kami, berikanlah ampunan kepada aku, kedua orang tuaku, dan semua kaum mukminin di hari hisab nanti", amin
-
-Dinukil dari status facebook Ustadz Musyaffa' ad-Dariny -hafizhahullah- dengan sedikit penyesuaian judul
-
-read more : https://www.facebook.com/addariny.abuabdillah/posts/4569655303149351
+### 
 
 ___
 
@@ -176,37 +145,18 @@ read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
 ___
 
-### Agar Rasa Hasad Hilang ..
-
-Hatim Al-Asham -rahimahullah- mengatakan:
-"Aku melihat orang² saling hasad, maka aku pun merenungi firman Allah ta'ala:
-نَحۡنُ قَسَمۡنَا بَیۡنَهُم مَّعِیشَتَهُمۡ فِی ٱلۡحَیَوٰةِ ٱلدُّنۡیَاۚ 
-"Kamilah yang membagi-bagi penghidupan untuk mereka dalam kehidupan dunia". [Az-Zukhruf: 32]
-Maka, aku pun meninggalkan hasad, karena hasad adalah bentuk protes terhadap pembagian Allah.
-[Mukhtashar Minhajil Qashidin 28]
-
-read more : https://www.facebook.com/addariny.abuabdillah/posts/4463056283809254
-
 ___
-
-### Untitled
-
-Hasratmu jangan selalu ingin agar lebih baik dari orang lain, tapi bagaimana dirimu menjadi lebih dari dirimu sendiri sebelumnya, akal kalau selalu sibuk dengan orang lain dan terobsesi dengannya maka akan menjadi sempit dan akan menjadi luas jika sibuk dengan dirinya sendiri.
-
-Ustadz Musa Mulyadi Luqman
-
-https://www.facebook.com/musamulyadi/posts/4646065232127744
 
 ___
 
 ### Untitled
 
 Hasan al-bashri -rahimahullah- berkata 
-"barangsiapa kurang ajar kepada Allah diatas tanah, Allah akan ajar dia di bawah tanah"
+"Barangsiapa kurang ajar kepada Allah diatas tanah, Allah akan ajar dia di bawah tanah"
 Madarijus salikin 2/67
 
-Ustadz Aris Munandar
-https://www.facebook.com/arismunandarjogja/posts/1805572992962161
+Dinukil dari status facebook Ustadz Aris Munandar
+read more : https://www.facebook.com/arismunandarjogja/posts/1805572992962161
 
 ___
 
@@ -256,15 +206,6 @@ Al-Fawa'id, hal. 34
 Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6" 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
 
-### Ikhlas dan Benar
-
-Fudhail bin Iyadh -rahimahullah- berkata :
-"Sesungguhnya amalan jika ikhlas namun tidak benar maka tidak akan diterima. Demikian pula apabila amalan itu benar tapi tidak ikhlas juga tidak akan diterima sampai ia ikhlas dan benar. Ikhlas itu jika diperuntukkan bagi Allah, sedangkan benar jika berada di atas Sunnah/tuntunan"
-Jami Al-'Ulum wa Al-Hikam, Hal. 19
-
-Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6" 
-read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
-
 ____
 
 ### Kunci Memperbaiki Amalan
@@ -286,17 +227,6 @@ Jami' Bayan al-'Ilmi wa Fadhlihi, Hal.131
 
 Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 3" 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-3/
-
-____
-
-### Pentingnya Meningat Kematian
-
-Sa'id bin Jubair -rahimahullah- berkata : 
-"Seandainya mengingat kematian berpisah dari hatiku maka aku benar-benar khawatir hatiku menjadi rusak
-Min A'lam as-Salaf 1/70
-
-Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8" 
-read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
 
 ______
 
@@ -324,29 +254,11 @@ read more : https://www.facebook.com/wira.bachrun/posts/1329424780591157
 
 ___
 
-### Untitled
-
-Dalam Sahih Muslim diriwayatkan bahwa Nabi -shallallahu 'alaihi wasallam- bersabda,
-"Setiap hamba akan dibangkitkan di atas keadaan kematiannya"
-Maka ..
-
-1. Rutinkan kebiasaan baik, walau pun sedikit dan sederhana.
-
-2. Jangan meremehkan suatu yang Ma'ruf secuilpun, agar bisa diamalkan sebagai amalan yang berkesinambungan
-
-3. Buang dan campakkan kebiasaan buruk (dan ini yang paling sulit, apalagi kalau sudah menjadi tabiat)
-
-4. Banyak banyak berdoa minta hidayah dan agar diberikan Husnul Khitam
-
-5. Bertemanlah dengan orang-orang Salih.
-
-Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/musamulyadi/posts/4777239139010352
+### 
 
 ___
 
-### Untitled
+### Mengenal Hakikat Dunia
 
 Nasihat Ibnu Abi al-Hawariy -rahimahullah- :
 Siapa saja yang mengenal hakikat dunia ini maka dia akan zuhud di dalamnya, dan siapa saja yang mengenal hakikat Akhirat maka dia akan menginginkannya, dan siapa saja yang mengenal Allah dia akan mendahulukan ridla-Nya.
@@ -357,15 +269,7 @@ read more : https://www.facebook.com/musamulyadi/posts/4660433957357538
 
 ___
 
-### Dibangunkan Rumah di Surga
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda :
-"Barangsiapa merutinkan shalat sunnah 12 rakaat dalam sehari, maka Allah akan membangunkan bagi dia rumah di surga. 12 rakaat tersebut adalah 4 rakaat sebelum zhuhur, 2 rakaat sesudah zhuhur, 2 rakaat sesudah maghrib, 2 rakaat sesudah isya', dan 2 rakaat sebelum shubuh"
-
-HR. Tirmidzi no. 414. Di shahihkan Syaikh Al-Albani
-
-Dinukil dari laman Rumaysho dalam artikel berjudul "Merutinkan Shalat Sunnah Rawatib" dengan sedikit penyesuaian
-read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
+### 
 
 ___
 

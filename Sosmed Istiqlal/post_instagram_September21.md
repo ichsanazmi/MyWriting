@@ -140,212 +140,205 @@ read more : https://www.facebook.com/addariny.abuabdillah/posts/4569655303149351
 
 ___
 
-### 9. Sebab Dimudahkannya Urusan
+### 9. Dibangkitkan Di Atas Keadaan Matinya
 
-Imam bin Baz -rahimahullah- dalam kitabnya,
-Berbakti kepada orang tua adalah bagian dari sebab hilangnya kesusahan dan dimudahkan berbagai urusan
+Dalam Sahih Muslim diriwayatkan bahwa Nabi -shallallahu 'alaihi wasallam- bersabda,
+"Setiap hamba akan dibangkitkan di atas keadaan kematiannya"
+Maka ..
 
-Nur Ala Darb, 122/2
+1. Rutinkan kebiasaan baik, walau pun sedikit dan sederhana.
+
+2. Jangan meremehkan suatu yang Ma'ruf secuilpun, agar bisa diamalkan sebagai amalan yang berkesinambungan
+
+3. Buang dan campakkan kebiasaan buruk (dan ini yang paling sulit, apalagi kalau sudah menjadi tabiat)
+
+4. Banyak banyak berdoa minta hidayah dan agar diberikan Husnul Khitam
+
+5. Bertemanlah dengan orang-orang Salih.
+
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/musamulyadi/posts/4777239139010352
+
+- [ ] 13-9-21
+
+___
+
+### 10. Dibangunkan Rumah di Surga
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda :
+"Barangsiapa merutinkan shalat sunnah 12 rakaat dalam sehari, maka Allah akan membangunkan bagi dia rumah di surga. 12 rakaat tersebut adalah 4 rakaat sebelum zhuhur, 2 rakaat sesudah zhuhur, 2 rakaat sesudah maghrib, 2 rakaat sesudah isya', dan 2 rakaat sebelum shubuh"
+
+HR. Tirmidzi no. 414. Di shahihkan Syaikh Al-Albani
+
+Dinukil dari laman Rumaysho dalam artikel berjudul "Merutinkan Shalat Sunnah Rawatib" dengan sedikit penyesuaian
+read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
+
+- [ ] 14-9-21
+
+___
+
+### 11. Solusi Kegundahan
+
+Syaikh Al-Utsaimin -rahimahullah- berkata,
+Jika bingung banyak banyak istighfar, karena dengan istighfar Allah akan memberikan pencerahan kepada seorang hamba.
+
+Syarh Al-Kaafiyah Syafi'iyah
 Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
 
-read more : https://www.facebook.com/arismunandarjogja/posts/1720584521461009
+read more : https://www.facebook.com/arismunandarjogja/posts/1742185439300917
 
-- [x] 13-8-21
-
-___
-
-### 10. Tidakkah Engkau Malu
-
-5 hal sebagai renungan dari salah seorang ulama yaitu Ibrahim bin Adham bagi mereka yang masih saja senang dengan kemaksiatan :
-
-1. Jika engkau ingin bermaksiat janganlah engkau memakan dari rizki Allah. Apakah engkau pantas memakan Dari rizkiNya kemudian engkau memaksiatinya?
-2. Jika engkau ingin memaksiatiNya maka janganlah tinggal di bumiNya , bukankah tidak patut engkau makan dan tinggal di bumiNya kemudian engkau memaksiatiNya ?
-3. Jika engkau ingin berbuat dosa, maka carilah tempat yang tersembunyi dari pandanganNya !
-4. Jika Malaikat maut datang untuk mencabut nyawamu, dapatkah engkau mengatakan kepadanya : " Tundalah kematianku hingga aku bisa bertaubat dari kesalahanku! " Kalau seperti itu ketika engkau bermaksiat lalu datang kematian sementara engkau belum bertaubat , bagaimanakah keadaanmu saat itu?
-5. Jika malaikat zabaniyah menyeretmu ke neraka, kemudian engkau tidak mau masuk ke dalam neraka, bisakah engkau menolaknya? Ketika engkau tidak bisa menolaknya , namun tetap engkau bermaksiat kepada Allah, bisakah engkau lepas dari genggaman para malaikat tersebut , disaat engkau dipaksa untuk masuk kedalamnya?
-   Semoga Allah menjaga diri kita dari kemaksiatan.
-
-Dinukil dari facebook Ustadz Fadhil Huwaidy, Lc. -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/story.php?story_fbid=3856318244480645&id=100003075237129
-
-- [x] 16-8-21
-
-___
-
-### 11. Dunia Bukan Surga Bagi Orang Beriman
-
-Rasulullah -Shallallaahu ‘alaihi wasallam- bersabda,
-Dunia itu penjara bagi orang beriman, dan surga bagi orang kafir.
-HR. Muslim no. 2956
-
-Maksud ‘penjara’ bagi orang beriman adalah adanya batasan-batasan bagi orang beriman, sedangkan orang kafir tidak memiliki batasan. Makna lainnya yaitu sebahagia apapun seorang mukmin di dunia, kebahagiaan itu ibarat penjara baginya. Hal ini karena di akhirat nanti, dia akan mendapatkan kebahagiaan yang jauh lebih besar. Sebaliknya, sesengsara apapun orang kafir di dunia, kesengsaraan itu ibarat surga baginya. Hal ini karena di akhirat nanti dia akan mendapatkan kesengsaraan yang jauh lebih besar.
-
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Mengobati Kegalauan bag-1"
-read more : https://muslim.or.id/67268-mengobati-kegalauan-bag-1.html
-
-- [x] 17-8-21
+- [ ] 15-9-21
 
 ____
 
-### 12. Kufur Nikmat Seorang Istri
+### 12. Sibuk dengan Diri Sendiri
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-Dan aku melihat neraka. Aku belum pernah sama sekali melihat pemandangan seperti hari ini. Dan aku lihat ternyata mayoritas penghuninya adalah para wanita.
-Mereka (para shahabat -radhiallahu 'anhum-) bertanya,
-Kenapa para wanita menjadi mayoritas penghuni neraka, wahai Rasulullah?
+Hasratmu jangan selalu ingin agar lebih baik dari orang lain, tapi bagaimana dirimu menjadi lebih dari dirimu sendiri sebelumnya, akal kalau selalu sibuk dengan orang lain dan terobsesi dengannya maka akan menjadi sempit dan akan menjadi luas jika sibuk dengan dirinya sendiri.
 
-Beliau -Shallallahu 'alaihi wasallam- menjawab,
-Disebabkan kekufuran mereka.
-Ada yang bertanya kepada beliau,
-Apakah para wanita itu kufur kepada Allah?
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah-
+read more : https://www.facebook.com/musamulyadi/posts/4646065232127744
 
-Beliau -Shallallahu 'alaihi wasallam- menjawab,
-(Tidak, melainkan) mereka kufur kepada suami dan mengkufuri kebaikan (suami). Seandainya engkau berbuat baik kepada salah seorang istri kalian pada suatu waktu, kemudian suatu saat ia melihat darimu ada sesuatu (yang tidak berkenan di hatinya) niscaya ia akan berkata, ‘Aku sama sekali belum pernah melihat kebaikan darimu’
-
-HR. Bukhari no. 5197 dan Muslim no. 907
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Tak Perlu Sedih Dengan Status Ibu Rumah Tangga"
-read more : https://muslim.or.id/21300-tak-perlu-sedih-dengan-status-ibu-rumah-tangga.html
-
-- [x] 18-8-21
+- [ ] 16-9-21
 
 ___
 
-### 13. Permata Akal
+### 13. Akhlak Yang Dicintai Allah
 
-Harits al Muhasibi -rahimahullah- mengatakan,
-Segala sesuatu mempunyai permata. Permata dalam diri manusia adalah akalnya dan akal yang bernilai permata adalah akal yang mau menerima hidayah Allah
+Rasulullah -shallallahu 'alaihi wasallam- bersabda tentang Al-Asyaj 'Abdul Qais -rahimahullah- :
 
-Tarikh Baghdad 8/213
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+“sesungguhnya pada dirimu ada 2 hal yang dicintai Allah: sifat al hilm dan al aanah”
+HR. Muslim no. 17
 
-read more : https://www.facebook.com/arismunandarjogja/posts/247332615452881
+"Al-hilm adalah kemampuan seseorang untuk mengendalikan dirinya ketika marah. Ketika ia marah dan ia mampu memberikan hukuman, ia bersikap hilm dan tidak jadi memberikan hukuman."
 
-- [x] 19-8-21
+"Al Aanah adalah berhati-hati dalam bertindak dan tidak tergesa-gesa, serta tidak mengambil kesimpulan dari sekedar yang nampak sekilas saja, lalu serta-merta menghukuminya, padahal yang benar hendaknya ia berhati-hati dan menelitinya”
+Syaikh Muhammad bin Shalih Al-Utsaimin -rahimahullah- dalam Syarah Riyadhus Shalihin, 3/573
 
-___
+Dinukil dari laman KangAswad dalam artikel yang berjudul "Melatih Akhlak Mulia"
+read more : https://kangaswad.wordpress.com/2020/08/02/melatih-akhlak-mulia/
 
-### 14. Tak Bersatunya Dua Cinta
-
-Ibnul Qayyim Al-Jauziyyah -rahimahullah- berkata,
-
-“Cinta Al-Quran dan cinta melodi nyanyian … tidak akan berkumpul di hati seorang hamba”
-
-Nuniyyah Ibnul Qayyim hal. 368
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Al-quran dan Musik Itu Bagaikan Minyak dan Air"
-
-Read more : https://muslim.or.id/69077-al-quran-dan-musik-itu-bagaikan-minyak-dan-air.html
-
-- [x] 20-8-21
+- [ ] 17-9-21 // repost 13-08-20
 
 ___
 
-### 15. Menyikapi Sebuah Dosa
+### 14. Perempuan yang Paling Baik
 
-Abu Bakr Ash-Shiddiq -Radhiallahu 'anhu- berkata,
+dari Abu Hurairah radhiyallahu ‘anhu, ketika Rasulullah shallallahu ‘alaihi wa sallam ditanya, “Perempuan seperti apa yang paling baik?”
+Rasulullah shallallahu ‘alaihi wa sallam menjawab,
 
-"Sungguh Allah itu bisa memberi ampunan untuk dosa besar, oleh karena itu janganlah kalian berputus asa dari ampunan-Nya. Allah itu bisa menimpakan adzab untuk dosa kecil, janganlah kalian terkecoh sehingga meremehkannya"
+“Yang paling menyenangkan jika dilihat suami, mentaati suami jika suami memerintahkan sesuatu, dan tidak menyelisihi suami dalam diri dan hartanya dengan apa yang dibenci oleh suaminya.” (HR. An-Nasa’i no. 3231, dinilai shahih oleh Syaikh Al-Albani)
 
-Syarh Al-Bukhari karya Ibnu Baththol
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah-
+Maksud, “tidak menyelisihi suami dalam diri dan hartanya dengan apa yang dibenci oleh suaminya”, misalnya sang suami tidak suka melihat istri memakai baju jenis tertentu, padahal baju tersebut sangat disukai oleh sang istri. Maka seorang istri shalihah akan mendahulukan keinginan suami daripada selera dirinya sendiri.
 
-read more : https://www.facebook.com/arismunandarjogja/posts/1720582418127886
+Inilah karakter wanita (istri) yang terbaik, yaitu dia berusaha memperbagus dan mempercantik dirinya ketika berada di hadapan suaminya atau setiap kali dia bersama dengan suami. Demikian pula, perhatian dan fokus utama seorang istri adalah berkaitan dengan kebutuhan, keinginan, dan perintah sang suami.
 
-- [x] 23-8-21
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Menjadi Istri yang Menyenangkan Hati Suami"
+read more : https://muslim.or.id/57646-menjadi-istri-yang-menyenangkan-hati-suami.html
 
-___
-
-### 16. Dosa, Penghambat Kemudahan
-
-Al Fudhail bin 'Iyadh -rahimahullah- mengatakan,
-"Banyak dosa itu menyebabkan sedikit diberi kemudahan urusan"
-
-Syu'abul Iman
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/arismunandarjogja/posts/1735657829953678
-
-- [x] 24-8-21
+- [ ] 20-9-21 // repost 22-07-20
 
 ___
 
-### 17. Hakikat Manusia
+### 15. Nikmat Berupa Masa Muda
 
-Ibnul Jauzi -rahimahullah- berkata,
-"Jika engkau ingin mengetahui hakikat dirimu ambillah satu genggam tanah. Sungguh engkau tercipta darinya, dikembalikan ke dalam tanah dan dibangkitkan dari dalam tanah"
+Jangan sampai kita berprinsip, taubat di masa tua saja. Sekarang mumpung masih muda, kita nikmati dunia, foya-foya, dan bersenang-senang. Saat sudah tua, baru sadar akhirat, sadar belajar agama. Jangan sampai prinsip ini merasuki kita. Akankah kita persembahkan untuk Allah lemah-lemah kita?! Masa kuat saat muda, kita persembahkan untuk hawa nafsu?! Apakah kita berikan untuk Allah hanya sisa-sisa?! Di mana sikap pengagungan kepada Allah Tuhan Pencipta kita?!
 
-At-Tadzikirah fii Al-Wa'zh, 1/179
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
+Maka mensyukuri masa muda, adalah dengan mengorbankannya untuk ibadah dan belajar tentang agama Allah Ta’ala.
 
-read more : https://www.facebook.com/arismunandarjogja/posts/1740751776110950
+Dinukil dari Muslim.or.id dalam artikel berjudul "Agar Aku Sukses Menuntut Ilmu Bag-7..."
+read more : https://muslim.or.id/54491-agar-aku-sukses-menuntut-ilmu-bag-7-optimalkan-masa-muda-untuk-belajar.html
 
-- [x] 25-8-21
-
-___
-
-### 18. Terbebas Dari Siksa Neraka dan Kemunafikan
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-Siapa yang melaksanakan sholat karena Allah selama 40 hari secara berjamaah, ia tidak luput dari takbiratul ihram, maka ia akan dicatat terbebas dari 2 hal yaitu terbebas dari siksa neraka dan terbebas dari kemunafikan
-
-HR. Tirmidzi, no.241, dihasankan oleh Syaikh Al-Albani
-Dinukil dari laman Rumaysho dalam artikel berjudul "Bisakah kita tidak ketinggalan takbiratul ihram bersama imam selama 40 hari"
-
-read more : https://rumaysho.com/15756-bisakah-kita-tidak-ketinggalan-takbiratul-ihram-bersama-imam-selama-40-hari.html
-
-- [x] 26-8-21
+- [ ] 21-9-21 // repost 15-09-20
 
 ___
 
-### 19. Lebih Baik dari Dunia dan Seisinya
+### 16. Ingat Mati
 
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya
+Syaikh Shalih Ibnu Utsaimin -rahimahullah- berkata,
+“Renungkanlah wahai manusia, (sebenarnya) kamu akan dapati dirimu dalam bahaya, karena kematian tidak ada batas waktu yang kita ketahui, terkadang seorang manusia keluar dari rumahnya dan tidak kembali kepadanya (karena mati), terkadang manusia duduk di atas kursi kantornya dan tidak bisa bangun lagi (karena mati), terkadang seorang manusia tidur di atas kasurnya, akan tetapi dia malah dibawa dari kasurnya ke tempat pemandian mayatnya (karena mati). Hal ini merupakan sebuah perkara yang mewajibkan kita untuk menggunakan sebaiknya kesempatan umur, dengan taubat kepada Allah Azza wa Jalla. Dan sudah sepantasnya manusia selalu merasa dirinya bertaubat, kembali, menghadap kepada Allah, sehingga datang ajalnya dan dia dalam sebaik-baiknya keadaan yang diinginkan.”
 
-HR. Muslim no.1193
-Dinukil dari KonsultasiSyariah.com dalam artikel berjudul "Keutamaan Shalat Qabliyah Shubuh"
-read more : https://konsultasisyariah.com/10341-keutamaan-shalat-qabliyah-shubuh.html
+Majmu’ fatawa wa Rasa-il Ibnu Utsaimin, 8/474)
+Dinukil dari Muslim.or.id dalam artikel berjudul "Ingat Mati"
+read more : https://muslim.or.id/8076-ingat-mati-2.html
 
-- [x] 27-8-21 //repost 2-9-20
-
-___
-
-### 20. Bernilainya Sahabat yang Shalih
-
-Bilal bin Sa'ad -rahimahullah- mengatakan,
-"Saudaramu seiman yang jika bertemu denganmu selalu mengingatkanmu tentang kedudukan di hadapan Allah, Dia lebih baik daripada saudaramu seiman yang jika bertemu denganmu selalu menaruh dinar di telapak tanganmu"
-Al Ikhwan karya Ibnu Abid Dunya, 83
-
-Dinukil dari status facebook Ustadz Yulian Purnama -hafizhahullah- dengan sedikit penyesuaian
-read more : https://www.facebook.com/yulian.purnama/posts/10155253676706868
-
-- [ ] 30-8-21
+- [ ] 22-9-21 // repost 22-9-20
 
 ___
 
-### 21. Perayaan Tahun Baru (1)
+### 17. Tertinggal Shalat Jama'ah
 
-Pertanyaan : Apakah boleh bagi kaum muslimin mengucapkan ucapan selamat satu sama lain dalam moment tahun baru? Tentu saja mereka lakukan itu tidak dengan niat merayakannya.
+Muhammad ibn Al Mubarak -rahimahullah- berkata,
+"Said bin Abdul Aziz (Ulama Besar Damaskus, Sezaman dengan Imam Al-Auza'i) ketika tertinggal dari shalat berjamaah, maka ia menangis."
 
-Jawaban :
+Tadzkiratul Huffazh 1/219
+Dinukil dari kanal Telegram Wawasan Ilmu
+yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
+dengan sedikit tambahan faidah dari web tulisanterkini.com
+read more : https://t.me/wawasan_muslim/6420
 
-Alhamdulillah.
-Tidak dibolehkan bagi kaum muslimin saling mengucapkan selamat tahun baru, sebagaimana tidak boleh merayakannya. Berdasarkan dua perkara;
-
-1. Menyerupai orang kafir dan kita telah dilarang dari perkara tersebut.
-   Dishahihkan oleh Al-Albany dalam shahih Sunan Abu Daud, no. 4031, Rasulullah shallallahu alaihi wa sallam bersabda,
-
-مَنْ تَشَبَّهَ بِقَوْمٍ فَهُوَ مِنْهُمْ (رواه أبو داود)
-
-“Siapa yang menyerupai suatu kaum, maka dia termasuk bagian darinya.” HR. Abu Dawud
-
-2. Kemudian, mengucapkan selamat kepada hari yang dirayakan setiap tahun masuk dalam bab merayakannya dan menjadikannya sebagai hari Id. Maka diapun dilarang juga.
-   Wallahua’lam.
-
-Dinukil dari laman Islamqa dalam pertanyaan yang berjudul "Hukum Kaum Muslimin Mengucapkan Selamat Tahun Baru Satu Sama Lain" dengan sedikit penyesuaian
-
-read more : https://islamqa.info/id/answers/177460/hukum-kaum-muslimin-mengucapkan-selamat-tahun-baru-satu-sama-lain
-
-- [x] 31-8-21 // repost 26-11-2020
+- [ ] 23-9-21 // repost 25-9-20
 
 ___
+
+### 18. Ikhlas dan Benar
+
+Fudhail bin Iyadh -rahimahullah- berkata :
+"Sesungguhnya amalan jika ikhlas namun tidak benar maka tidak akan diterima. Demikian pula apabila amalan itu benar tapi tidak ikhlas juga tidak akan diterima sampai ia ikhlas dan benar. Ikhlas itu jika diperuntukkan bagi Allah, sedangkan benar jika berada di atas Sunnah/tuntunan"
+Jami Al-'Ulum wa Al-Hikam, Hal. 19
+
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6" 
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
+
+- [ ] 24-9-21
+
+___
+
+### 19. Pentingnya Mengingat Kematian
+
+Sa'id bin Jubair -rahimahullah- berkata : 
+"Seandainya mengingat kematian berpisah dari hatiku maka aku benar-benar khawatir hatiku menjadi rusak
+Min A'lam as-Salaf 1/70
+
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8" 
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
+
+- [ ] 27-9-21 
+
+___
+
+### 20. Agar Rasa Hasad Hilang ..
+
+Hatim Al-Asham -rahimahullah- mengatakan:
+"Aku melihat orang² saling hasad, maka aku pun merenungi firman Allah ta'ala:
+نَحۡنُ قَسَمۡنَا بَیۡنَهُم مَّعِیشَتَهُمۡ فِی ٱلۡحَیَوٰةِ ٱلدُّنۡیَاۚ 
+"Kamilah yang membagi-bagi penghidupan untuk mereka dalam kehidupan dunia". [Az-Zukhruf: 32]
+Maka, aku pun meninggalkan hasad, karena hasad adalah bentuk protes terhadap pembagian Allah.
+[Mukhtashar Minhajil Qashidin 28]
+
+Dinukil dari status facebook Ustadz Musyaffa' ad-Dariny 
+read more : https://www.facebook.com/addariny.abuabdillah/posts/4463056283809254
+
+- [ ] 28-9-21
+
+___
+
+### 21. Ibadah Yang Besar
+
+Syaikhul Islam Ibnu Taimiyyah -rahimahullah- berkata,
+
+"Termasuk ibadah yang besar adalah memenuhi kebutuhan orang yang fakir, menunaikan hajat, membela orang yang terzalimi, menolong orang yang menderita, dan beramar ma'ruf
+
+Majmu Fatawa 28/243
+Dinukil dari kanal Telegram Wawasan Ilmu
+yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
+
+read more : https://t.me/wawasan_muslim/6560
+
+- [ ] 29-9-21 // repost 23-9-20
+
+___
+
+### 22.
+
+- [ ] 30-9-21
