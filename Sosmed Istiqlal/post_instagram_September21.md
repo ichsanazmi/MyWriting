@@ -1,3 +1,5 @@
+
+
 # Post Instagram September 21
 
 ___
@@ -180,8 +182,8 @@ ___
 
 ### 11. Solusi Kegundahan
 
-Syaikh Al-Utsaimin -rahimahullah- berkata,
-Jika bingung banyak banyak istighfar, karena dengan istighfar Allah akan memberikan pencerahan kepada seorang hamba.
+Syaikh Al-Utsaimin -rahimahullah- berkata :
+"Jika bingung banyak banyak istighfar, karena dengan istighfar Allah akan memberikan pencerahan kepada seorang hamba"
 
 Syarh Al-Kaafiyah Syafi'iyah
 Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
@@ -215,7 +217,7 @@ HR. Muslim no. 17
 "Al Aanah adalah berhati-hati dalam bertindak dan tidak tergesa-gesa, serta tidak mengambil kesimpulan dari sekedar yang nampak sekilas saja, lalu serta-merta menghukuminya, padahal yang benar hendaknya ia berhati-hati dan menelitinya”
 Syaikh Muhammad bin Shalih Al-Utsaimin -rahimahullah- dalam Syarah Riyadhus Shalihin, 3/573
 
-Dinukil dari laman KangAswad dalam artikel yang berjudul "Melatih Akhlak Mulia"
+Dinukil dari laman KangAswad dalam artikel yang berjudul "Melatih Akhlak Mulia" dengan sedikit penyesuaian
 read more : https://kangaswad.wordpress.com/2020/08/02/melatih-akhlak-mulia/
 
 - [ ] 17-9-21 // repost 13-08-20
@@ -339,6 +341,18 @@ read more : https://t.me/wawasan_muslim/6560
 
 ___
 
-### 22.
+### 22. Doa Bebas Hutang
+
+Terdapat dalam hadits, bahwa Nabi Shallallahu’alaihi Wasallam masuk ke masjid dan di sana ada seorang sahabatnya. Lalu beliau menanyakan apa yang menyebabkan ia lama berada di masjid. Sahabat tadi berkata: “kegalauan sedang menimpaku, dan hutang-hutang menjeratku”. Lalu Nabi -Shallallahu ’alaihi Wasallam- membimbing sahabat tersebut dengan bersabda:
+قُلْ إذا أصبحتَ وإذا أمسيْتَ اللَّهمَّ إنِّي أعوذُ بك من الهمِّ والحزنِ وأعوذُ بك من العجزِ والكسلِ وأعوذُ بك من البخلِ والجبنِ وأعوذُ بك من غلبةِ الدَّينِ وقهرِ الرِّجالِ
+“Bacalah pada setiap pagi dan sore hari:
+/allaahumma inni a’uudzubika minal hammi wal hazani, wa a’uudzubika minal ‘ajzi wal kasali, wa a’uudzubika minal bukhli wal jubni, wa a’uudzubika min ghalabatid dayni wa qahrir rijaal/ 
+(“Ya Allah, aku berlindung kepada-Mu dari kegalauan dan kesedihan, aku berlindung kepada-Mu dari kelemahan dan kemalasan, aku berlindung kepada-Mu dari sifat pelit dan pengecut, dan aku berlindung kepada-Mu dari lilitan hutang serta dari penganiayaan orang lain“)
+Sahabat tadi pun di kemudian hari berkata:
+ذلك فأذهب اللهُ عزَّ وجلَّ همِّي وقضَى عنِّي دَيْني
+“karena itulah hilang kegelisahanku dan Allah ‘Azza Wa Jalla melunasi hutang-hutangku” (HR. Abu Daud 1555, dishahihkan oleh Al Albani dalam Shahih Abi Daud). 
+
+Dinukil dari status facebook Ustadz Yulian Purnama -hafizhahullah- dengan sedikit penyesuaian
+read more : https://www.facebook.com/yulian.purnama/posts/10158931961071868
 
 - [ ] 30-9-21
