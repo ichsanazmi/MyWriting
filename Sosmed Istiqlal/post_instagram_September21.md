@@ -1,5 +1,3 @@
-
-
 # Post Instagram September 21
 
 ___
@@ -162,7 +160,7 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan s
 
 read more : https://www.facebook.com/musamulyadi/posts/4777239139010352
 
-- [ ] 13-9-21
+- [x] 13-9-21
 
 ___
 
@@ -176,7 +174,7 @@ HR. Tirmidzi no. 414. Di shahihkan Syaikh Al-Albani
 Dinukil dari laman Rumaysho dalam artikel berjudul "Merutinkan Shalat Sunnah Rawatib" dengan sedikit penyesuaian
 read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
 
-- [ ] 14-9-21
+- [x] 14-9-21
 
 ___
 
@@ -190,7 +188,7 @@ Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyes
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1742185439300917
 
-- [ ] 15-9-21
+- [x] 15-9-21
 
 ____
 
@@ -220,7 +218,7 @@ Syaikh Muhammad bin Shalih Al-Utsaimin -rahimahullah- dalam Syarah Riyadhus Shal
 Dinukil dari laman KangAswad dalam artikel yang berjudul "Melatih Akhlak Mulia" dengan sedikit penyesuaian
 read more : https://kangaswad.wordpress.com/2020/08/02/melatih-akhlak-mulia/
 
-- [ ] 17-9-21 // repost 13-08-20
+- [x] 17-9-21 // repost 13-08-20
 
 ___
 
@@ -238,7 +236,7 @@ Inilah karakter wanita (istri) yang terbaik, yaitu dia berusaha memperbagus dan 
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Menjadi Istri yang Menyenangkan Hati Suami"
 read more : https://muslim.or.id/57646-menjadi-istri-yang-menyenangkan-hati-suami.html
 
-- [ ] 20-9-21 // repost 22-07-20
+- [x] 20-9-21 // repost 22-07-20
 
 ___
 
@@ -248,7 +246,7 @@ Jangan sampai kita berprinsip, taubat di masa tua saja. Sekarang mumpung masih m
 
 Maka mensyukuri masa muda, adalah dengan mengorbankannya untuk ibadah dan belajar tentang agama Allah Ta’ala.
 
-Dinukil dari Muslim.or.id dalam artikel berjudul "Agar Aku Sukses Menuntut Ilmu Bag-7..."
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Agar Aku Sukses Menuntut Ilmu Bag-7..."
 read more : https://muslim.or.id/54491-agar-aku-sukses-menuntut-ilmu-bag-7-optimalkan-masa-muda-untuk-belajar.html
 
 - [ ] 21-9-21 // repost 15-09-20
@@ -260,15 +258,15 @@ ___
 Syaikh Shalih Ibnu Utsaimin -rahimahullah- berkata,
 “Renungkanlah wahai manusia, (sebenarnya) kamu akan dapati dirimu dalam bahaya, karena kematian tidak ada batas waktu yang kita ketahui, terkadang seorang manusia keluar dari rumahnya dan tidak kembali kepadanya (karena mati), terkadang manusia duduk di atas kursi kantornya dan tidak bisa bangun lagi (karena mati), terkadang seorang manusia tidur di atas kasurnya, akan tetapi dia malah dibawa dari kasurnya ke tempat pemandian mayatnya (karena mati). Hal ini merupakan sebuah perkara yang mewajibkan kita untuk menggunakan sebaiknya kesempatan umur, dengan taubat kepada Allah Azza wa Jalla. Dan sudah sepantasnya manusia selalu merasa dirinya bertaubat, kembali, menghadap kepada Allah, sehingga datang ajalnya dan dia dalam sebaik-baiknya keadaan yang diinginkan.”
 
-Majmu’ fatawa wa Rasa-il Ibnu Utsaimin, 8/474)
-Dinukil dari Muslim.or.id dalam artikel berjudul "Ingat Mati"
+Majmu’ fatawa wa Rasa-il Ibnu Utsaimin, 8/474
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Ingat Mati"
 read more : https://muslim.or.id/8076-ingat-mati-2.html
 
 - [ ] 22-9-21 // repost 22-9-20
 
 ___
 
-### 17. Tertinggal Shalat Jama'ah
+### 17. Tertinggal Shalat Jama'ah (bahu, sajadah)
 
 Muhammad ibn Al Mubarak -rahimahullah- berkata,
 "Said bin Abdul Aziz (Ulama Besar Damaskus, Sezaman dengan Imam Al-Auza'i) ketika tertinggal dari shalat berjamaah, maka ia menangis."
@@ -355,4 +353,4 @@ Sahabat tadi pun di kemudian hari berkata:
 Dinukil dari status facebook Ustadz Yulian Purnama -hafizhahullah- dengan sedikit penyesuaian
 read more : https://www.facebook.com/yulian.purnama/posts/10158931961071868
 
-- [ ] 30-9-21
+- [x] 30-9-21
