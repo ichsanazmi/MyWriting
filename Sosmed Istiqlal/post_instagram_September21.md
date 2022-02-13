@@ -81,7 +81,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Rugi jika tidak mengafal doa
 
 read more : https://rumaysho.com/19608-rugi-jika-tidak-menghafal-doa-memohon-petunjuk-ketakwaan-afaf-dan-ghina.html
 
-- [ ] 7-9-21
+- [x] 7-9-21
 
 ___
 
@@ -199,7 +199,7 @@ Hasratmu jangan selalu ingin agar lebih baik dari orang lain, tapi bagaimana dir
 Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah-
 read more : https://www.facebook.com/musamulyadi/posts/4646065232127744
 
-- [ ] 16-9-21
+- [x] 16-9-21
 
 ___
 
@@ -249,7 +249,7 @@ Maka mensyukuri masa muda, adalah dengan mengorbankannya untuk ibadah dan belaja
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Agar Aku Sukses Menuntut Ilmu Bag-7..."
 read more : https://muslim.or.id/54491-agar-aku-sukses-menuntut-ilmu-bag-7-optimalkan-masa-muda-untuk-belajar.html
 
-- [ ] 21-9-21 // repost 15-09-20
+- [x] 21-9-21 // repost 15-09-20
 
 ___
 
@@ -262,7 +262,7 @@ Majmu’ fatawa wa Rasa-il Ibnu Utsaimin, 8/474
 Dinukil dari laman Muslim.or.id dalam artikel berjudul "Ingat Mati"
 read more : https://muslim.or.id/8076-ingat-mati-2.html
 
-- [ ] 22-9-21 // repost 22-9-20
+- [x] 22-9-21 // repost 22-9-20
 
 ___
 
@@ -277,7 +277,7 @@ yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
 dengan sedikit tambahan faidah dari web tulisanterkini.com
 read more : https://t.me/wawasan_muslim/6420
 
-- [ ] 23-9-21 // repost 25-9-20
+- [x] 23-9-21 // repost 25-9-20
 
 ___
 

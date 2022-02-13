@@ -95,10 +95,6 @@ read more : https://muslim.or.id/53957-didekati-orang-baik.html
 
 ___
 
-### 
-
-___
-
 ### test
 
 Wahab bin Munabbih -rahimahullah-, seorang ulama era tabiin mengatakan, 
@@ -128,10 +124,6 @@ read more : https://rumaysho.com/29364-lebih-dari-100-keutamaan-orang-berilmu-da
 
 - [ ] test
 
-____
-
-### 
-
 ___
 
 ### Untitled
@@ -142,10 +134,6 @@ Tp lisan yg sama, ikut²an mengatakan selamat hari raya mereka, pantaskah?
 Ustadz Musyaffa' ad-Dariny 
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
-
-___
-
-___
 
 ___
 
@@ -170,17 +158,6 @@ Tanbihul Ghafilin 1/380
 Ustadz Musa Mulyadi Luqman
 
 https://www.facebook.com/musamulyadi/posts/4710433725690894
-
-___
-
-### Untitled
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Barangsiapa merutinkan shalat sunnah dua belas raka’at dalam sehari, maka Allah akan membangunkan bagi dia sebuah rumah di surga. Dua belas raka’at tersebut adalah empat raka’at sebelum  zhuhur, dua raka’at sesudah zhuhur, dua raka’at sesudah maghrib, dua raka’at sesudah ‘Isya, dan dua raka’at sebelum shubuh "
-HR At-Tirmidzi no. 414, Dishahihkan Syaikh Al-Albani
-
-read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
 
 ___
 

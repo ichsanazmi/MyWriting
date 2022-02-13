@@ -1503,7 +1503,7 @@ ___
 
 - [x] 2-11-20
 
-### 1. Sendiri
+### 1. Sendiri (1)
 
 Kelak suatu saat, diri kita akan diantar oleh orang ramai.
 diantar menuju kesendirian.
