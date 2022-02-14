@@ -312,14 +312,14 @@ ___
 Hatim Al-Asham -rahimahullah- mengatakan:
 "Aku melihat orang² saling hasad, maka aku pun merenungi firman Allah ta'ala:
 نَحۡنُ قَسَمۡنَا بَیۡنَهُم مَّعِیشَتَهُمۡ فِی ٱلۡحَیَوٰةِ ٱلدُّنۡیَاۚ 
-"Kamilah yang membagi-bagi penghidupan untuk mereka dalam kehidupan dunia". [Az-Zukhruf: 32]
+"Kamilah yang membagi-bagi penghidupan untuk mereka dalam kehidupan dunia". Az-Zukhruf: 32
 Maka, aku pun meninggalkan hasad, karena hasad adalah bentuk protes terhadap pembagian Allah.
-[Mukhtashar Minhajil Qashidin 28]
+Mukhtashar Minhajil Qashidin 28
 
 Dinukil dari status facebook Ustadz Musyaffa' ad-Dariny 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/4463056283809254
 
-- [ ] 28-9-21
+- [x] 28-9-21
 
 ___
 
@@ -327,7 +327,7 @@ ___
 
 Syaikhul Islam Ibnu Taimiyyah -rahimahullah- berkata,
 
-"Termasuk ibadah yang besar adalah memenuhi kebutuhan orang yang fakir, menunaikan hajat, membela orang yang terzalimi, menolong orang yang menderita, dan beramar ma'ruf
+"Termasuk ibadah yang besar adalah memenuhi kebutuhan orang yang fakir, menunaikan hajat, membela orang yang terzalimi, menolong orang yang menderita, dan beramar ma'ruf"
 
 Majmu Fatawa 28/243
 Dinukil dari kanal Telegram Wawasan Ilmu
@@ -335,7 +335,7 @@ yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
 
 read more : https://t.me/wawasan_muslim/6560
 
-- [ ] 29-9-21 // repost 23-9-20
+- [x] 29-9-21 // repost 23-9-20
 
 ___
 
