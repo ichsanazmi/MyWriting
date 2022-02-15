@@ -261,3 +261,78 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Merutinkan Shalat Sunnah Raw
 read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
 
 ---
+
+### Efek Dosa
+
+Imam Ibnul Qoyyim -rahimahullah- berkata,
+"Jangan tertipu jika engkau belum melihat efek dosa-mu saat ini, kadang engkau akan merasakan efeknya setelah 40 tahun nanti"
+Ad-Daa wa Ad-Dawaa, hal. 130
+
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah- 
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1616971041988439
+
+---
+
+### Untitled
+
+Syaikh Muhammad bin Shalih al-'Utsaimin -rahimahullah- berkata,
+"Dunia itu tidak lama, hanya beberapa hari saja kemudian berlalu, maka bersabarlah sampai Allah mendatangkan perkaranya"
+Syarah Riyadhus Shalihin hal. 104
+
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-read more : https://www.facebook.com/umf.muhamadfajri/posts/1620862394932637
+
+---
+
+### Untitled
+
+Al-Imam Malik bin Dinar -rahimahullah- berkata,
+"Berjuanglah melawan hawa nafsu kalian sebagaimana kalian berjuang melawan musuh kalian"
+Al-Kamil 2/128
+
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1626793187672891
+
+---
+
+### Untitled
+
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+"Sungguh beruntung orang yang masuk islam, kemudian mendapatkan rizki yang cukup dan Allah menganugrahkan kepadanya sifat qana'ah (merasa cukup dan puas) dengan rezki yang diberikan Allah kepadanya"
+HR. Muslim
+
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1617450688607141
+
+---
+
+### Untitled
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Amalan yang paling berat di timbangan (kelak pada hari kiamat -pen) adalah akhlaq yang baik"
+Shahihul Jami' hal 134
+
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1622861708066039
+
+---
+
+### Investasi Terbaik (ganti judul)
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Ada seseorang yang diangkat derajatnya di syurga lalu bertanya "darimana semua ini?" maka dikatakan kepadanya "(semua ini) buah dari istighfar anakmu untukmu"
+Shahihul Jami' hal. 1617
+
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1641931349492408
+
+### Untitled (ganti judul)
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Jika Allah menghendaki kebaikan pada diri seorang hamba, Allah akan memperkerjakannya sebelum ia mati"
+
+para sahabat bertanya, "Wahai Rasulullah, bagaimana Allah memperkerjakannya?"
+
+beliau menjawab, "Allah akan membimbingnya untuk mengerjakan amal shalih, kemudia Allah akan mencabut nyawanya saat ia tengah mengerjakan amal shalih tersebut."
+HR. Tirmidzi no. 2142,2229
+
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1647896375562572
