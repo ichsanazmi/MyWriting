@@ -303,8 +303,6 @@ HR. Muslim
 Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1617450688607141
 
----
-
 ### Untitled
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
@@ -313,8 +311,6 @@ Shahihul Jami' hal 134
 
 Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1622861708066039
-
----
 
 ### Investasi Terbaik (ganti judul)
 
@@ -336,3 +332,15 @@ beliau menjawab, "Allah akan membimbingnya untuk mengerjakan amal shalih, kemudi
 HR. Tirmidzi no. 2142,2229
 
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1647896375562572
+
+### Untitled
+
+Syaikh ibnu 'Utsaimin -rahimahullah- berkata,
+
+"Jika engkau kesusahan untuk melakukan sesuatu bahkan sama sekali tidak mampu melakukannya ucapkanlah laa haula wa laa quwwata illaa billah niscaya Allah akan mudahkan"
+
+Syarah Riyadhus Shalihin, 5/522
+
+Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
+
+read more : https://www.facebook.com/arismunandarjogja/posts/1748495742003220
