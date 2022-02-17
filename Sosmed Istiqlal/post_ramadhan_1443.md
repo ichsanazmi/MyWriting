@@ -2,25 +2,25 @@
 
 ### 1. Telah Datang Waktunya
 
-___
-
 Telah datang waktunya, ajang untuk saling untuk saling berlomba...
-
 Dimana tidak ada istilah kalah atau menang atas satu sama lain, yang ada hanyalah beruntung atau merugi
 
-- [x] 1 Ramadhan
+- [ ] 1 Ramadhan
 
 ___ 
 
-### 2. Bersabar di Ramadhan
+### 2. Bersegera Dalam Berbuka
 
-___
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+Manusia senantiasa berada dalam kebaikan selama mereka menyegerakan waktu berbuka
 
-Alangkah butanya hati seorang yang tidak mampu bersabar sesaat, dan memilih untuk mereguk kehinaan abadi
+HR. Bukhari Muslim
 
-Bersemilah Ramadhan, Hal 63 Karya Ustadz Armen Halim Naro, Lc. -Rahimahullah-
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Menyegerakan Waktu Buka Puasa"
 
-- [x] 2 Ramadhan
+read more : https://rumaysho.com/3435-menyegerakan-waktu-buka-puasa.html
+
+- [ ] 2 Ramadhan
 
 ___ 
 
@@ -33,35 +33,26 @@ Barangsiapa yang berpuasa ramadhan atas dasar iman dan mengharap pahala dari All
 
 HR. Bukhari Muslim
 
-- [x] 3 Ramadhan
+- [ ] 3 Ramadhan
 
 ___ 
 
 ### 4. Keutamaan Shalat Tarawih
-
-___
 
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 Barangsiapa sholat (tarawih) di bulan ramadhan atas dasar iman dan mengharap pahala dari Allah, maka dosanya yang telah lalu akan diampuni
 
 HR. Bukhari Muslim
 
-- [x] 4 Ramadhan
+- [ ] 4 Ramadhan
 
 ___ 
 
-### 5. Bersegera Dalam Berbuka
+### 5. Bersabar di Ramadhan
 
-___
+Alangkah butanya hati seorang yang tidak mampu bersabar sesaat, dan memilih untuk mereguk kehinaan abadi
 
-Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-Manusia senantiasa berada dalam kebaikan selama mereka menyegerakan waktu berbuka
-
-HR. Bukhari Muslim
-
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Menyegerakan Waktu Buka Puasa"
-
-read more : https://rumaysho.com/3435-menyegerakan-waktu-buka-puasa.html
+Bersemilah Ramadhan, Hal 63 Karya Ustadz Armen Halim Naro, Lc. -Rahimahullah-
 
 - [x] 5 Ramadhan
 
