@@ -303,7 +303,7 @@ Min A'lam as-Salaf 1/70
 Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8" 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
 
-- [ ] 27-9-21 
+- [x] 27-9-21 
 
 ___
 

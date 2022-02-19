@@ -174,20 +174,9 @@ Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8"
 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
 
-___
+### 16.
 
-### 16. Doa Seorang Ustadz untuk Murid-Muridnya
-
-Al-Qadhi Iyadh -rahimahullah- mengatakan,
-
-"Telah sampai khabar kepada kami tentang seorang guru yang selalu menjaga kehormatan dirinya. Suatu ketika beliau terlihat sedang berdoa di sekitar ka'bah. beliau berkata:
-"Ya Allah, jadikanlah seluruh anak yang pernah aku ajari sebagai hambaMu yang Salih"
-Maka keluar dari didikan beliau sekitar 90 orang alim dan orang-orang shalih"
-
-Tartibul Madarik, 266.
-Dinukil dari status facebook Ustadz Wira Bachrun dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/wira.bachrun/posts/1329424780591157
+____
 
 ### 17. Mengenal Hakikat Dunia
 
@@ -212,15 +201,7 @@ read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
 
 ---
 
-### 19. Efek Dosa
-
-Imam Ibnul Qoyyim -rahimahullah- berkata,
-
-"Jangan tertipu jika engkau belum melihat efek dosa-mu saat ini, kadang engkau akan merasakan efeknya setelah 40 tahun nanti"
-
-Ad-Daa wa Ad-Dawaa, hal. 130.
-Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah- 
-read more : https://www.facebook.com/umf.muhamadfajri/posts/1616971041988439
+### 19.
 
 ---
 
