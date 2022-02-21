@@ -14,7 +14,7 @@ Faidah catatan kajian dengan judul "Pada Akhirnya Engkau Akan Sendiri" oleh Usta
 read more :
 https://youtu.be/TG9JAlFty78
 
-- [ ] 1-10-21 // repost 2-11-20
+- [x] 1-10-21 // repost 2-11-20
 
 ___
 
@@ -28,7 +28,7 @@ Ad-Daa wa Ad-Dawaa, hal. 130.
 Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd.I -hafizhahullah- 
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1616971041988439
 
-- [ ] 4-10-21
+- [x] 4-10-21
 
 ___
 

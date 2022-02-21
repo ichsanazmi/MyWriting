@@ -934,7 +934,7 @@ https://t.me/wawasan_muslim/6560
 
 ___
 
-### 18. Husnuzhon
+### 18. Husnuzhon (1)
 
 Syaddad Ibn Aus -Radhiallahu 'Anhu- Berkata,
 "Wahai manusia, janganlah berburuk sangka terhadap ketetapan Allah, karena Allah tidak pernah menzalimi seorang mukmin pun. Jika salah seorang di antara kamu memperoleh apa yang disukainya, maka pujilah Allah, dan jika salah seorang di antara kamu mendapatkan apa yang tidak disukainya, maka bersabar dan haraplah pahala. Hal itu karena di sisi Allah ada balasan yang sebaik-baiknya."
@@ -994,7 +994,7 @@ https://muslim.or.id/17851-puasa-tiga-hari-setiap-bulan-dan-puasa-ayyamul-bidh.h
 
 ___
 
-### 21. Berdusta Walau Bercanda
+### 21. Berdusta Walau Bercanda (1)
 
 ___
 
@@ -1015,7 +1015,7 @@ https://rumaysho.com/10672-berbohong-dalam-candaan.html
 
 ___
 
-### 22. Terkabulnya Doa
+### 22. Terkabulnya Doa (1)
 
 ___
 
@@ -1057,7 +1057,7 @@ ___
 
 - [x] 2-10-20
 
-### 2. Sebuah Perjalanan
+### 2. Sebuah Perjalanan (1)
 
 ___
 
@@ -1076,7 +1076,7 @@ ___
 
 - [x] 5-10-20
 
-### 3.  Pionir Kebaikan
+### 3.  Pionir Kebaikan (1)
 
 ___
 
@@ -1117,7 +1117,7 @@ ___
 
 - [x] 7-10-20
 
-### 5. Yakin Akan Rezeki
+### 5. Yakin Akan Rezeki (1)
 
 ___
 

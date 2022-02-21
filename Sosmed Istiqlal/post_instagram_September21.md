@@ -266,7 +266,7 @@ read more : https://muslim.or.id/8076-ingat-mati-2.html
 
 ___
 
-### 17. Tertinggal Shalat Jama'ah (bahu, sajadah)
+### 17. Tertinggal Shalat Jama'ah
 
 Muhammad ibn Al Mubarak -rahimahullah- berkata,
 "Said bin Abdul Aziz (Ulama Besar Damaskus, Sezaman dengan Imam Al-Auza'i) ketika tertinggal dari shalat berjamaah, maka ia menangis."
@@ -290,7 +290,7 @@ Jami Al-'Ulum wa Al-Hikam, Hal. 19
 Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6" 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
 
-- [ ] 24-9-21
+- [x] 24-9-21
 
 ___
 

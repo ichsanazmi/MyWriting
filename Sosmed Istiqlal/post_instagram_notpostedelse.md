@@ -174,9 +174,16 @@ Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8"
 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
 
-### 16.
+### 16. Yakin Akan Rezeki
 
-____
+Rasulullah -shallallahu 'alaihi wasallam- bersabda :
+
+“Wahai manusia bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, karena tidaklah suatu jiwa akan mati hingga terpenuhi rezekinya, walau lambat rezeki tersebut sampai kepadanya, maka bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, ambillah rezeki yang halal dan tinggalkanlah rezeki yang haram”
+
+HR. Ibnu Majah, dan Syaikh Al-Albani menshahihkannya
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Mengapa ada yang mati kelaparan padahal rezeki sudah dijamin"
+
+read more : https://muslim.or.id/25097-mengapa-ada-yang-mati-kelaparan-padahal-rezeki-sudah-dijamin.html
 
 ### 17. Mengenal Hakikat Dunia
 
@@ -199,11 +206,11 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Merutinkan Shalat Sunnah Raw
 
 read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
 
----
+### 19. Wadah Yang Disebut dengan Hati
 
-### 19.
+Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yang mulia ini di hati yang tidak saleh!?
 
----
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah-
 
 ### 20. Untitled
 
@@ -282,3 +289,49 @@ Syarah Riyadhus Shalihin, 5/522.
 Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1748495742003220
+
+### 27. Berdusta Walau Bercanda
+
+Rasulullah shallallahu ‘alaihi wa sallam bersabda,
+
+“Celakalah bagi yang berbicara lantas berdusta hanya karena ingin membuat suatu kaum tertawa. Celakalah dia, celakalah dia.”
+
+HR. Abu Daud no. 4990 dan Tirmidzi no. 3315. Al Hafizh Abu Thohir mengatakan bahwa sanad hadits ini hasan
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Berbohong dalam Candaan"
+
+read more : https://rumaysho.com/10672-berbohong-dalam-candaan.html
+
+### 28. Terkabulnya Doa
+
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+
+“Tidaklah seorang muslim memanjatkan do’a pada Allah selama tidak mengandung dosa dan memutuskan silaturahmi (antar kerabat, pen) melainkan Allah akan beri padanya tiga hal: (1) Allah akan segera mengabulkan do’anya, (2) Allah akan menyimpannya baginya di akhirat kelak, dan (3) Allah akan menghindarkan darinya kejelekan yang semisal.”
+
+HR. Ahmad, 3:18. Syaikh Syu’aib Al-Arnauth menyatakan bahwa sanad hadits ini jayyid
+Dinukil dari laman Ruqoyyah.com dalam artikel berjudul "Doa Itu Ibadah"
+
+read more : https://ruqoyyah.com/1318-doa-itu-ibadah.html
+
+### 29. Sebuah Perjalanan
+
+Dari Ibnu Syaudzab ia berkata,
+
+ ”Ketika menjelang kematiannya, Abu Hurairah radliyallaahu ’anhu sempat menangis. Maka dikatakan kepadanya : ”Apa gerangan yang membuatmu menangis (wahai Abu Hurairah) ?”. 
+Maka ia menjawab :
+”Jauhnya perjalanan, sedikitnya bekal, dan banyaknya rintangan yang menyusahkan. Sedangkan akhir persinggahan itu bisa ke surga ataupun ke neraka”
+
+Shifatush-Shafwah, 1/694.
+Dinukil dari blog Abul Jauzaa dalam artikel berjudul "Salaf Dalam Rasa Takut dan Muraqabah"
+
+read more : http://abul-jauzaa.blogspot.com/2008/08/salaf-dalam-rasa-takut-dan-muraqabah.html
+
+### 30. Pionir Kebaikan
+
+Rasulullah -shallallahu ’alaihi wa sallam- bersabda,
+
+“Barangsiapa melakukan suatu amalan kebaikan lalu diamalkan oleh orang sesudahnya, maka akan dicatat baginya ganjaran semisal ganjaran orang yang mengikutinya dan sedikitpun tidak akan mengurangi ganjaran yang mereka peroleh. Sebaliknya, barangsiapa melakukan suatu amalan kejelekan lalu diamalkan oleh orang sesudahnya, maka akan dicatat baginya dosa semisal dosa orang yang mengikutinya, tanpa mengurangi dosanya sedikit pun.”
+
+HR. Muslim, no. 1017
+Dinukil dari Rumaysho.com dalam artikel berjudul "Bulughul Maram Akhlak Menjadi Pionir Kebaikan"
+
+read more : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
