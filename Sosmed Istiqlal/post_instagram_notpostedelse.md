@@ -87,7 +87,7 @@ Miftah Daar As-Sa’adah, 1:247
 Dinukil dari laman Rumaysho dalam artikel berjudul "Lebih dari 100 Keutamaan Orang Berilmu dari Kitab Miftah Daar As-Saadah"
 read more : https://rumaysho.com/29364-lebih-dari-100-keutamaan-orang-berilmu-dari-kitab-miftah-daar-as-saadah.html
 
-### 8. Untitled
+### 8. Tak Sesuai Dengan Lisan
 
 Tiap hari di Al-Fatihah, minta agar dijauhkan dr jalan kaum Yahudi & Nasrani
 Tp lisan yg sama, ikut²an mengatakan selamat hari raya mereka, pantaskah?
@@ -96,28 +96,9 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 9. Untitled
+### 9.
 
-Hasan al-bashri -rahimahullah- berkata 
-
-"Barangsiapa kurang ajar kepada Allah diatas tanah, Allah akan ajar dia di bawah tanah"
-
-Madarijus salikin 2/67.
-Dinukil dari status facebook Ustadz Aris Munandar
-read more : https://www.facebook.com/arismunandarjogja/posts/1805572992962161
-
-___
-
-### 10. Untitled
-
-Abu Bakr Al-Warraq -rahimahullah- berkata,
-
-"Dosa yang paling banyak menyebabkan iman tercabut dari hati adalah kezhaliman terhadap orang lain"
-
-Tanbihul Ghafilin 1/380.
-Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan sedikit penyesuaian.
-
-read more : https://www.facebook.com/musamulyadi/posts/4710433725690894
+### 10.
 
 ### 11. Untitled
 
@@ -141,16 +122,7 @@ Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6"
 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
 
-### 13. Kunci Memperbaiki Amalan
-
-Mutharrif bin Abdillah asy-Syikhkhir -rahimahullah- berkata :
-
-"Baiknya hati dengan baiknya amalan. adapun baiknya amalan adalah dengan baiknya niat"
-
-Iqazh al-Himam al-Muntaqa min Jami' al-'Ulum wa al-Hikam, hal. 35.
-Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6" 
-
-read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
+### 13.
 
 ### 14. Bahaya Beramal Tanpa Ilmu
 
@@ -174,16 +146,7 @@ Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8"
 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
 
-### 16. Yakin Akan Rezeki
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda :
-
-“Wahai manusia bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, karena tidaklah suatu jiwa akan mati hingga terpenuhi rezekinya, walau lambat rezeki tersebut sampai kepadanya, maka bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, ambillah rezeki yang halal dan tinggalkanlah rezeki yang haram”
-
-HR. Ibnu Majah, dan Syaikh Al-Albani menshahihkannya
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Mengapa ada yang mati kelaparan padahal rezeki sudah dijamin"
-
-read more : https://muslim.or.id/25097-mengapa-ada-yang-mati-kelaparan-padahal-rezeki-sudah-dijamin.html
+### 16.
 
 ### 17. Mengenal Hakikat Dunia
 
@@ -206,11 +169,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Merutinkan Shalat Sunnah Raw
 
 read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
 
-### 19. Wadah Yang Disebut dengan Hati
-
-Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yang mulia ini di hati yang tidak saleh!?
-
-Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah-
+### 19.
 
 ### 20. Untitled
 
@@ -234,15 +193,7 @@ Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
 
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1626793187672891
 
-### 22. Untitled
-
-Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
-
-"Sungguh beruntung orang yang masuk islam, kemudian mendapatkan rizki yang cukup dan Allah menganugrahkan kepadanya sifat qana'ah (merasa cukup dan puas) dengan rezki yang diberikan Allah kepadanya"
-
-HR. Muslim.
-Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
-read more : https://www.facebook.com/umf.muhamadfajri/posts/1617450688607141
+### 22.
 
 ### 23. Untitled
 
@@ -279,27 +230,9 @@ Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
 
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1647896375562572
 
-### 26. Untitled
+### 26.
 
-Syaikh ibnu 'Utsaimin -rahimahullah- berkata,
-
-"Jika engkau kesusahan untuk melakukan sesuatu bahkan sama sekali tidak mampu melakukannya ucapkanlah laa haula wa laa quwwata illaa billah niscaya Allah akan mudahkan"
-
-Syarah Riyadhus Shalihin, 5/522.
-Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
-
-read more : https://www.facebook.com/arismunandarjogja/posts/1748495742003220
-
-### 27. Berdusta Walau Bercanda
-
-Rasulullah shallallahu ‘alaihi wa sallam bersabda,
-
-“Celakalah bagi yang berbicara lantas berdusta hanya karena ingin membuat suatu kaum tertawa. Celakalah dia, celakalah dia.”
-
-HR. Abu Daud no. 4990 dan Tirmidzi no. 3315. Al Hafizh Abu Thohir mengatakan bahwa sanad hadits ini hasan
-Dinukil dari laman Rumaysho.com dalam artikel berjudul "Berbohong dalam Candaan"
-
-read more : https://rumaysho.com/10672-berbohong-dalam-candaan.html
+### 27.
 
 ### 28. Terkabulnya Doa
 
@@ -312,18 +245,7 @@ Dinukil dari laman Ruqoyyah.com dalam artikel berjudul "Doa Itu Ibadah"
 
 read more : https://ruqoyyah.com/1318-doa-itu-ibadah.html
 
-### 29. Sebuah Perjalanan
-
-Dari Ibnu Syaudzab ia berkata,
-
- ”Ketika menjelang kematiannya, Abu Hurairah radliyallaahu ’anhu sempat menangis. Maka dikatakan kepadanya : ”Apa gerangan yang membuatmu menangis (wahai Abu Hurairah) ?”. 
-Maka ia menjawab :
-”Jauhnya perjalanan, sedikitnya bekal, dan banyaknya rintangan yang menyusahkan. Sedangkan akhir persinggahan itu bisa ke surga ataupun ke neraka”
-
-Shifatush-Shafwah, 1/694.
-Dinukil dari blog Abul Jauzaa dalam artikel berjudul "Salaf Dalam Rasa Takut dan Muraqabah"
-
-read more : http://abul-jauzaa.blogspot.com/2008/08/salaf-dalam-rasa-takut-dan-muraqabah.html
+### 29.
 
 ### 30. Pionir Kebaikan
 

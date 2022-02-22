@@ -45,7 +45,7 @@ Dinukil dari status facebook Ustadz Wira Bachrun dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/wira.bachrun/posts/1329424780591157
 
-- [ ] 5-10-21
+- [x] 5-10-21
 
 ___
 
@@ -61,7 +61,7 @@ yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
 
 read more : https://t.me/wawasan_muslim/6465
 
-- [ ] 6-10-21
+- [x] 6-10-21
 
 ____
 
@@ -79,57 +79,133 @@ read more : https://www.facebook.com/umf.muhamadfajri/posts/1622861708066039
 
 ___
 
-### 6.
+### 6. Kurang Ajar Kepada Allah
+
+Hasan al-bashri -rahimahullah- berkata
+
+"Barangsiapa kurang ajar kepada Allah diatas tanah, Allah akan ajar dia di bawah tanah"
+
+Madarijus salikin 2/67.
+Dinukil dari status facebook Ustadz Aris Munandar
+read more : https://www.facebook.com/arismunandarjogja/posts/1805572992962161
 
 - [ ] 8-10-21
 
 ___
 
-### 7.
+### 7. Zhalim Terhadap Orang Lain
+
+Abu Bakr Al-Warraq -rahimahullah- berkata,
+
+"Dosa yang paling banyak menyebabkan iman tercabut dari hati adalah kezhaliman terhadap orang lain"
+
+Tanbihul Ghafilin 1/380.
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan sedikit penyesuaian.
+
+read more : https://www.facebook.com/musamulyadi/posts/4710433725690894
 
 - [ ] 11-10-21
 
 ___
 
-### 8.
+### 8. Kunci Memperbaiki Amalan
+
+Mutharrif bin Abdillah asy-Syikhkhir -rahimahullah- berkata :
+
+"Baiknya hati dengan baiknya amalan. adapun baiknya amalan adalah dengan baiknya niat"
+
+Iqazh al-Himam al-Muntaqa min Jami' al-'Ulum wa al-Hikam, hal. 35.
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6"
+
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
 
 - [ ] 12-10-21
 
 ___
 
-### 9.
+### 9. Yakin Akan Rezeki
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda :
+
+“Wahai manusia bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, karena tidaklah suatu jiwa akan mati hingga terpenuhi rezekinya, walau lambat rezeki tersebut sampai kepadanya, maka bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, ambillah rezeki yang halal dan tinggalkanlah rezeki yang haram”
+
+HR. Ibnu Majah, dan Syaikh Al-Albani menshahihkannya
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Mengapa ada yang mati kelaparan padahal rezeki sudah dijamin"
+
+read more : https://muslim.or.id/25097-mengapa-ada-yang-mati-kelaparan-padahal-rezeki-sudah-dijamin.html
 
 - [ ] 13-10-21
 
 ___
 
-### 10.
+### 10. Wadah Yang Disebut dengan Hati
 
-- [ ] 14-10-21
+Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yang mulia ini di hati yang tidak saleh!?
+
+read more : https://www.facebook.com/musamulyadi/posts/3288726374528310
+
+- [ ] 14-10-21 // repost 18-9-20
 
 ___
 
-### 11.
+### 11. Qana'ah Atas Nikmat dari Allah
+
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+
+"Sungguh beruntung orang yang masuk islam, kemudian mendapatkan rizki yang cukup dan Allah menganugrahkan kepadanya sifat qana'ah (merasa cukup dan puas) dengan rezki yang diberikan Allah kepadanya"
+
+HR. Muslim.
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1617450688607141
 
 - [ ] 15-10-21
 
 ____
 
-### 12.
+### 12. Meminta Pertolongan dari Allah
+
+Syaikh ibnu 'Utsaimin -rahimahullah- berkata,
+
+"Jika engkau kesusahan untuk melakukan sesuatu bahkan sama sekali tidak mampu melakukannya ucapkanlah laa haula wa laa quwwata illaa billah niscaya Allah akan mudahkan"
+
+Syarah Riyadhus Shalihin, 5/522.
+Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
+
+read more : https://www.facebook.com/arismunandarjogja/posts/1748495742003220
 
 - [ ] 18-10-21
 
 ___
 
-### 13.
+### 13. Berdusta Walau Bercanda
 
-- [ ] 19-10-21
+Rasulullah shallallahu ‘alaihi wa sallam bersabda,
+
+“Celakalah bagi yang berbicara lantas berdusta hanya karena ingin membuat suatu kaum tertawa. Celakalah dia, celakalah dia.”
+
+HR. Abu Daud no. 4990 dan Tirmidzi no. 3315. Al Hafizh Abu Thohir mengatakan bahwa sanad hadits ini hasan
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Berbohong dalam Candaan"
+
+read more : https://rumaysho.com/10672-berbohong-dalam-candaan.html
+
+- [ ] 19-10-21 // repost 29-9-20
 
 ___
 
-### 14.
+### 14. Sebuah Perjalanan
 
-- [ ] 20-10-21
+Dari Ibnu Syaudzab ia berkata,
+
+”Ketika menjelang kematiannya, Abu Hurairah radliyallaahu ’anhu sempat menangis. Maka dikatakan kepadanya : ”Apa gerangan yang membuatmu menangis (wahai Abu Hurairah) ?”. 
+Maka ia menjawab :
+”Jauhnya perjalanan, sedikitnya bekal, dan banyaknya rintangan yang menyusahkan. Sedangkan akhir persinggahan itu bisa ke surga ataupun ke neraka”
+
+Shifatush-Shafwah, 1/694.
+Dinukil dari blog Abul Jauzaa dalam artikel berjudul "Salaf Dalam Rasa Takut dan Muraqabah"
+
+read more : http://abul-jauzaa.blogspot.com/2008/08/salaf-dalam-rasa-takut-dan-muraqabah.html
+
+- [ ] 20-10-21 // repost 2-10-20
 
 ___
 
