@@ -75,7 +75,7 @@ Shahihul Jami' hal 134
 Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd.I -hafizhahullah-
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1622861708066039
 
-- [ ] 7-10-21
+- [x] 7-10-21
 
 ___
 
@@ -125,7 +125,7 @@ ___
 
 ### 9. Yakin Akan Rezeki
 
-Rasulullah -shallallahu 'alaihi wasallam- bersabda :
+Rasulullah -shallallahu 'alaihi wasallam- bersabda ,
 
 “Wahai manusia bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, karena tidaklah suatu jiwa akan mati hingga terpenuhi rezekinya, walau lambat rezeki tersebut sampai kepadanya, maka bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, ambillah rezeki yang halal dan tinggalkanlah rezeki yang haram”
 
