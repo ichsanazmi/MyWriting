@@ -209,19 +209,44 @@ read more : http://abul-jauzaa.blogspot.com/2008/08/salaf-dalam-rasa-takut-dan-m
 
 ___
 
-### 15.
+### 15. Untitled
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Amalan yang paling berat di timbangan (kelak pada hari kiamat -pen) adalah akhlaq yang baik"
+
+Shahihul Jami' hal 134
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1622861708066039
 
 - [ ] 21-10-21
 
 ___
 
-### 16.
+### 16. Orang Yang Diberkahi
+
+Syaikh Abdul Aziz ar-Rajihi -hafizhahullah- mengatakan :
+
+"Orang yang diberkahi adalah yang kemanfaatannya meluas kepada orang-orang lain. Apakah itu dalam bentuk memberikan makanan kepada orang yang kelaparan atau meringankan beban urusan mereka dan memberikan bantuan untuk mereka
+
+Syarh Qawa'id Arba' Syaikh ar-Rajihi, hal. 5.
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8"
+
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
 
 - [ ] 22-10-21
 
 ___
 
-### 17.
+### 17. Investasi Terbaik (ganti judul)
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Ada seseorang yang diangkat derajatnya di syurga lalu bertanya "darimana semua ini?" maka dikatakan kepadanya "(semua ini) buah dari istighfar anakmu untukmu"
+
+Shahihul Jami' hal. 1617.
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1641931349492408
 
 - [ ] 25-10-21
 

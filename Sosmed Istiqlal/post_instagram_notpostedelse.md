@@ -96,9 +96,25 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 9.
+### 9. Hati Yang Lembut
 
-### 10.
+Al-Hafizh Ibnu Rajab -rahimahullah- berkata,
+"Hati ketika sedikit dosa-dosanya, maka paling mudah meneteskan air mata"
+
+Majmu Rasailih 1/262.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyuntingan
+
+read more : https://t.me/wawasan_muslim/8508
+
+### 10. Membaca Al-Quran di Malam Hari (ramadhan)
+
+Imam Ibnu Rajab -rahimahullah- berkata,
+"Dalam hadits Ibnu Abbas yang menyebutkan tadarus Nabi -shallallahu alaihi wa sallam- dengan malaikat Jibril -alaihis salam- di malam hari menunjukkan, dianjurkannya banyak membaca Al Quran di bulan Ramadhan pada malam hari,  karena di malam hari tidak ada lagi kesibukan, perhatian lebih fokus,  hati dan lisan menyatu untuk tadabbur (merenungi) sebagaimana firman Allah Ta'ala, "Sesungguhnya bangun di malam hari lebih lebih tepat untuk khusyu dan bacaan di waktu itu lebih berkesan." (QS.  Al Muzzammil: 6) 
+
+Latha'iful Ma'arif hal. 315.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyuntingan
+
+read more : https://t.me/wawasan_muslim/8513
 
 ### 11. Untitled
 
@@ -135,16 +151,7 @@ Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 3"
 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-3/
 
-### 15. Orang Yang Diberkahi
-
-Syaikh Abdul Aziz ar-Rajihi -hafizhahullah- mengatakan :
-
-"Orang yang diberkahi adalah yang kemanfaatannya meluas kepada orang-orang lain. Apakah itu dalam bentuk memberikan makanan kepada orang yang kelaparan atau meringankan beban urusan mereka dan memberikan bantuan untuk mereka
-
-Syarh Qawa'id Arba' Syaikh ar-Rajihi, hal. 5.
-Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8" 
-
-read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
+### 15.
 
 ### 16.
 
@@ -195,14 +202,7 @@ read more : https://www.facebook.com/umf.muhamadfajri/posts/1626793187672891
 
 ### 22.
 
-### 23. Untitled
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-"Amalan yang paling berat di timbangan (kelak pada hari kiamat -pen) adalah akhlaq yang baik"
-Shahihul Jami' hal 134
-
-Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
-read more : https://www.facebook.com/umf.muhamadfajri/posts/1622861708066039
+### 23.
 
 ### 24. Investasi Terbaik (ganti judul)
 
