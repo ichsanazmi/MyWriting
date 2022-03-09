@@ -89,7 +89,7 @@ Madarijus salikin 2/67.
 Dinukil dari status facebook Ustadz Aris Munandar
 read more : https://www.facebook.com/arismunandarjogja/posts/1805572992962161
 
-- [ ] 8-10-21
+- [x] 8-10-21
 
 ___
 
@@ -104,7 +104,7 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan se
 
 read more : https://www.facebook.com/musamulyadi/posts/4710433725690894
 
-- [ ] 11-10-21
+- [x] 11-10-21
 
 ___
 
@@ -119,7 +119,7 @@ Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6"
 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
 
-- [ ] 12-10-21
+- [x] 12-10-21
 
 ___
 
@@ -134,7 +134,7 @@ Dinukil dari laman Muslim.or.id dalam artikel berjudul "Mengapa ada yang mati ke
 
 read more : https://muslim.or.id/25097-mengapa-ada-yang-mati-kelaparan-padahal-rezeki-sudah-dijamin.html
 
-- [ ] 13-10-21
+- [x] 13-10-21
 
 ___
 
@@ -144,7 +144,7 @@ Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat s
 
 read more : https://www.facebook.com/musamulyadi/posts/3288726374528310
 
-- [ ] 14-10-21 // repost 18-9-20
+- [x] 14-10-21 // repost 18-9-20
 
 ___
 
