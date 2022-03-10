@@ -155,10 +155,10 @@ Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
 "Sungguh beruntung orang yang masuk islam, kemudian mendapatkan rizki yang cukup dan Allah menganugrahkan kepadanya sifat qana'ah (merasa cukup dan puas) dengan rezki yang diberikan Allah kepadanya"
 
 HR. Muslim.
-Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd.I -hafizhahullah-
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1617450688607141
 
-- [ ] 15-10-21
+- [x] 15-10-21
 
 ____
 
@@ -173,7 +173,7 @@ Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
 
 read more : https://www.facebook.com/arismunandarjogja/posts/1748495742003220
 
-- [ ] 18-10-21
+- [x] 18-10-21
 
 ___
 
@@ -188,7 +188,7 @@ Dinukil dari laman Rumaysho.com dalam artikel berjudul "Berbohong dalam Candaan"
 
 read more : https://rumaysho.com/10672-berbohong-dalam-candaan.html
 
-- [ ] 19-10-21 // repost 29-9-20
+- [x] 19-10-21 // repost 29-9-20
 
 ___
 
@@ -205,7 +205,7 @@ Dinukil dari blog Abul Jauzaa dalam artikel berjudul "Salaf Dalam Rasa Takut dan
 
 read more : http://abul-jauzaa.blogspot.com/2008/08/salaf-dalam-rasa-takut-dan-muraqabah.html
 
-- [ ] 20-10-21 // repost 2-10-20
+- [x] 20-10-21 // repost 2-10-20
 
 ___
 
