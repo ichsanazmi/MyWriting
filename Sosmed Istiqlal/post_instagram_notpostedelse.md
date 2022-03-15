@@ -96,15 +96,7 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 9. Hati Yang Lembut
-
-Al-Hafizh Ibnu Rajab -rahimahullah- berkata,
-"Hati ketika sedikit dosa-dosanya, maka paling mudah meneteskan air mata"
-
-Majmu Rasailih 1/262.
-Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyuntingan
-
-read more : https://t.me/wawasan_muslim/8508
+### 9.
 
 ### 10. Membaca Al-Quran di Malam Hari (ramadhan)
 
@@ -204,16 +196,7 @@ read more : https://www.facebook.com/umf.muhamadfajri/posts/1626793187672891
 
 ### 23.
 
-### 24. Investasi Terbaik (ganti judul)
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Ada seseorang yang diangkat derajatnya di syurga lalu bertanya "darimana semua ini?" maka dikatakan kepadanya "(semua ini) buah dari istighfar anakmu untukmu"
-
-Shahihul Jami' hal. 1617.
-Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
-
-read more : https://www.facebook.com/umf.muhamadfajri/posts/1641931349492408
+### 24.
 
 ### 25. Untitled (ganti judul)
 
@@ -234,16 +217,7 @@ read more : https://www.facebook.com/umf.muhamadfajri/posts/1647896375562572
 
 ### 27.
 
-### 28. Terkabulnya Doa
-
-Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
-
-“Tidaklah seorang muslim memanjatkan do’a pada Allah selama tidak mengandung dosa dan memutuskan silaturahmi (antar kerabat, pen) melainkan Allah akan beri padanya tiga hal: (1) Allah akan segera mengabulkan do’anya, (2) Allah akan menyimpannya baginya di akhirat kelak, dan (3) Allah akan menghindarkan darinya kejelekan yang semisal.”
-
-HR. Ahmad, 3:18. Syaikh Syu’aib Al-Arnauth menyatakan bahwa sanad hadits ini jayyid
-Dinukil dari laman Ruqoyyah.com dalam artikel berjudul "Doa Itu Ibadah"
-
-read more : https://ruqoyyah.com/1318-doa-itu-ibadah.html
+### 28.
 
 ### 29.
 

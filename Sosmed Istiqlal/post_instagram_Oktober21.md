@@ -233,38 +233,66 @@ Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8"
 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-8/
 
-- [ ] 22-10-21
+- [x] 22-10-21
 
 ___
 
-### 17. Investasi Terbaik (ganti judul)
+### 17. Salah Satu Investasi Terbaik
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
-"Ada seseorang yang diangkat derajatnya di syurga lalu bertanya "darimana semua ini?" maka dikatakan kepadanya "(semua ini) buah dari istighfar anakmu untukmu"
+"Ada seseorang yang diangkat derajatnya di syurga lalu bertanya, 'darimana semua ini?'. maka dikatakan kepadanya '(semua ini) buah dari istighfar anakmu untukmu'"
 
 Shahihul Jami' hal. 1617.
-Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1641931349492408
 
-- [ ] 25-10-21
+- [x] 25-10-21
 
 ___
 
-### 18.
+### 18. Hati Yang Bersih
 
-- [ ] 26-10-21
+Al-Hafizh Ibnu Rajab -rahimahullah- berkata,
+"Hati ketika sedikit dosa-dosanya, maka paling mudah meneteskan air mata"
+
+Majmu Rasailih 1/262.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyuntingan
+
+read more : https://t.me/wawasan_muslim/8508
+
+- [x] 26-10-21
 
 ___
 
-### 19.
+### 19. Ganjaran Doa
 
-- [ ] 27-10-21 
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+
+“Tidaklah seorang muslim memanjatkan do’a pada Allah selama tidak mengandung dosa dan memutuskan silaturahmi (antar kerabat, pen) melainkan Allah akan beri padanya tiga hal: (1) Allah akan segera mengabulkan do’anya, (2) Allah akan menyimpannya baginya di akhirat kelak, dan (3) Allah akan menghindarkan darinya kejelekan yang semisal.”
+
+HR. Ahmad, 3:18. Syaikh Syu’aib Al-Arnauth menyatakan bahwa sanad hadits ini jayyid
+Dinukil dari laman Ruqoyyah.com dalam artikel berjudul "Doa Itu Ibadah" dengan sedikit penyesuaian
+
+read more : https://ruqoyyah.com/1318-doa-itu-ibadah.html
+
+- [x] 27-10-21 
 
 ___
 
-### 20.
+### 20. Adab dalam Urusan Makanan
+
+Mulai sekarang kita belajar dengan apa yang ada dan tidak bersusah susah hanya demi selera, apalagi jika harus mengorek dompet dan kantong dalam dalam, karena seperti itulah cara Nabi Allah menjalani hidup,
+
+Syaikhul Islam Ibnu Taimiyyah -rahimahullah- menjelaskan,
+"Adab Nabi -shallallahu 'alaihi wasallam- dalam urusan makanan: 
+Beliau tidak menolak yang ada dan tidak bersusah mengupayakan yang tidak ada"
+Jami'ul Masa'il 7/144
+
+Dinukil dari status Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/musamulyadi/posts/4842482379152694
 
 - [ ] 28-10-21
 
