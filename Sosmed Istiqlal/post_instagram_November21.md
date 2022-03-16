@@ -2,7 +2,16 @@
 
 ___
 
-### 1.
+### 1. Pentingnya Ikhlas dan Amal
+
+Imam Ibnul Qayyim -rahimahullah- berkata,
+
+"Seandainya ilmu bisa bermanfaat tanpa amalan niscaya Yang Maha Suci tidak akan mencela para pendeta Ahli Kitab. Dan jika seandainya amalan bisa bermanfaat tanpa adanya keikhlasan niscaya Allah juga tidak akan mencela orang-orang munafik"
+
+Al-Fawa'id, hal. 34.
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6"
+
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
 
 - [ ] 1-11-21
 

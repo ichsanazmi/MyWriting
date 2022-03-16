@@ -294,12 +294,21 @@ Dinukil dari status Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit pe
 
 read more : https://www.facebook.com/musamulyadi/posts/4842482379152694
 
-- [ ] 28-10-21
+- [x] 28-10-21
 
 ___
 
-### 21.
+### 21. Tanda Kebaikan
 
-- [ ] 29-10-21
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+
+“Barangsiapa yang Allah kehendaki menjadi baik maka Allah faqihkan (memahamkan) dia terhadap agama”
+
+HR. Bukhari no. 69
+Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
+
+read more : https://hadits.in/bukhari/69
+
+- [x] 29-10-21 // repost 22-10-20
 
 ___

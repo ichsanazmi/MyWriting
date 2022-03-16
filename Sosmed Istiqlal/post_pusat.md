@@ -1321,7 +1321,7 @@ ___
 
 - [x] 21-10-20 / repost 24-07-20
 
-### 15. Tanda Kebaikan
+### 15. Tanda Kebaikan (1)
 
 ___
 
@@ -4669,7 +4669,7 @@ read More : https://www.facebook.com/arismunandarjogja/posts/1735663663286428
 
 ____
 
-# Agustus 21 (done)
+# Agustus 21 (not done)
 
 ---
 
@@ -4943,7 +4943,7 @@ read more : [Bisakah Kita Tidak Ketinggalan Takbiratul Ihram Bersama Imam Selama
 
 ---
 
-### 19. Lebih Baik dari Dunia dan Seisinya
+### 19. Lebih Baik dari Dunia dan Seisinya (September '20)
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 Dua raka’at (qabliyah) shubuh pahalanya lebih baik dari dunia dan seisinya
@@ -4969,7 +4969,7 @@ read more : https://www.facebook.com/yulian.purnama/posts/10155253676706868
 
 ---
 
-### 21. Perayaan Tahun Baru (1)
+### 21. Perayaan Tahun Baru (November '20)
 
 Pertanyaan : Apakah boleh bagi kaum muslimin mengucapkan ucapan selamat satu sama lain dalam moment tahun baru? Tentu saja mereka lakukan itu tidak dengan niat merayakannya.
 
@@ -4993,5 +4993,319 @@ Dinukil dari laman Islamqa dalam pertanyaan yang berjudul "Hukum Kaum Muslimin M
 read more : [Hukum Kaum Muslimin Mengucapkan Selamat Tahun Baru Satu Sama Lain - Soal Jawab Tentang Islam](https://islamqa.info/id/answers/177460/hukum-kaum-muslimin-mengucapkan-selamat-tahun-baru-satu-sama-lain)
 
 - [x] 31-8-21 // repost 26-11-2020
+
+---
+
+# Oktober 21 (done)
+
+---
+
+### 1. Sendiri (November '20)
+
+Kelak suatu saat, diri kita akan diantar oleh orang ramai.
+diantar menuju kesendirian.
+sambil menunggu dibangkitkan, juga kelak dalam keadaan sendirian.
+lalu dimintai pertanggung jawaban atas kehidupan kita secara sendiri-sendiri. maka persiapkanlah bekal.
+
+Faidah catatan kajian dengan judul "Pada Akhirnya Engkau Akan Sendiri" oleh Ustadz Dr Syafiq Riza Basalamah, Lc. MA -Hafizhahullah-
+
+read more : [Pada Akhirnya Engkau Akan Sendiri - Ustadz Dr. Syafiq Riza Basalamah, M.A. - YouTube](https://youtu.be/TG9JAlFty78)
+
+- [x] 1-10-21 // repost 2-11-20
+
+---
+
+### 2. Efek Dosa
+
+Imam Ibnul Qoyyim -rahimahullah- berkata,
+
+"Jangan tertipu jika engkau belum melihat efek dosa-mu saat ini, kadang engkau akan merasakan efeknya setelah 40 tahun nanti"
+
+Ad-Daa wa Ad-Dawaa, hal. 130.
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd.I -hafizhahullah- 
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1616971041988439
+
+- [x] 4-10-21
+
+---
+
+### 3. Doa Seorang Ustadz untuk Murid-Muridnya
+
+Al-Qadhi Iyadh -rahimahullah- mengatakan,
+
+"Telah sampai khabar kepada kami tentang seorang guru yang selalu menjaga kehormatan dirinya. Suatu ketika beliau terlihat sedang berdoa di sekitar ka'bah. beliau berkata:
+"Ya Allah, jadikanlah seluruh anak yang pernah aku ajari sebagai hambaMu yang Salih"
+Maka keluar dari didikan beliau sekitar 90 orang alim dan orang-orang shalih"
+
+Tartibul Madarik, 266.
+Dinukil dari status facebook Ustadz Wira Bachrun dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/wira.bachrun/posts/1329424780591157
+
+- [x] 5-10-21
+
+---
+
+### 4. Husnuzhon
+
+Syaddad Ibn Aus -radhiallahu 'Anhu- Berkata,
+
+"Wahai manusia, janganlah berburuk sangka terhadap ketetapan Allah, karena Allah tidak pernah menzalimi seorang mukmin pun. Jika salah seorang di antara kamu memperoleh apa yang disukainya, maka pujilah Allah, dan jika salah seorang di antara kamu mendapatkan apa yang tidak disukainya, maka bersabar dan haraplah pahala. Hal itu karena di sisi Allah ada balasan yang sebaik-baiknya."
+
+Tafsir Ibnu Abu Hatim 3/884
+Dinukil dari kanal Telegram Wawasan Ilmu
+yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
+
+read more : [Telegram: Contact @wawasan_muslim](https://t.me/wawasan_muslim/6465)
+
+- [x] 6-10-21
+
+---
+
+### 5. Amalan Pemberat Timbangan
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+
+"Amalan yang paling berat di timbangan (kelak pada hari kiamat -pen) adalah akhlaq yang baik"
+
+Shahihul Jami' hal 134
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd.I -hafizhahullah-
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1622861708066039
+
+- [x] 7-10-21
+
+---
+
+### 6. Kurang Ajar Kepada Allah
+
+Hasan al-bashri -rahimahullah- berkata
+
+"Barangsiapa kurang ajar kepada Allah diatas tanah, Allah akan ajar dia di bawah tanah"
+
+Madarijus salikin 2/67.
+Dinukil dari status facebook Ustadz Aris Munandar
+read more : https://www.facebook.com/arismunandarjogja/posts/1805572992962161
+
+- [x] 8-10-21
+
+---
+
+### 7. Zhalim Terhadap Orang Lain
+
+Abu Bakr Al-Warraq -rahimahullah- berkata,
+
+"Dosa yang paling banyak menyebabkan iman tercabut dari hati adalah kezhaliman terhadap orang lain"
+
+Tanbihul Ghafilin 1/380.
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan sedikit penyesuaian.
+
+read more : https://www.facebook.com/musamulyadi/posts/4710433725690894
+
+- [x] 11-10-21
+
+---
+
+### 8. Kunci Memperbaiki Amalan
+
+Mutharrif bin Abdillah asy-Syikhkhir -rahimahullah- berkata :
+
+"Baiknya hati dengan baiknya amalan. adapun baiknya amalan adalah dengan baiknya niat"
+
+Iqazh al-Himam al-Muntaqa min Jami' al-'Ulum wa al-Hikam, hal. 35.
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6"
+
+read more : [Untaian Nasihat Ulama (6) | al-Mubarok](https://www.al-mubarok.com/untaian-nasihat-ulama-6/)
+
+- [x] 12-10-21
+
+---
+
+### 9. Yakin Akan Rezeki
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda ,
+
+“Wahai manusia bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, karena tidaklah suatu jiwa akan mati hingga terpenuhi rezekinya, walau lambat rezeki tersebut sampai kepadanya, maka bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, ambillah rezeki yang halal dan tinggalkanlah rezeki yang haram”
+
+HR. Ibnu Majah, dan Syaikh Al-Albani menshahihkannya
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Mengapa ada yang mati kelaparan padahal rezeki sudah dijamin"
+
+read more : [Mengapa Ada Yang Mati Kelaparan Padahal Rezeki Sudah Dijamin?](https://muslim.or.id/25097-mengapa-ada-yang-mati-kelaparan-padahal-rezeki-sudah-dijamin.html)
+
+- [x] 13-10-21
+
+---
+
+### 10. Wadah Yang Disebut dengan Hati (September '20)
+
+Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yang mulia ini di hati yang tidak saleh!?
+
+read more : https://www.facebook.com/musamulyadi/posts/3288726374528310
+
+- [x] 14-10-21 // repost 18-9-20
+
+---
+
+### 11. Qana'ah Atas Nikmat dari Allah
+
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+
+"Sungguh beruntung orang yang masuk islam, kemudian mendapatkan rizki yang cukup dan Allah menganugrahkan kepadanya sifat qana'ah (merasa cukup dan puas) dengan rezki yang diberikan Allah kepadanya"
+
+HR. Muslim.
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd.I -hafizhahullah-
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1617450688607141
+
+- [x] 15-10-21
+
+---
+
+### 12. Meminta Pertolongan dari Allah
+
+Syaikh ibnu 'Utsaimin -rahimahullah- berkata,
+
+"Jika engkau kesusahan untuk melakukan sesuatu bahkan sama sekali tidak mampu melakukannya ucapkanlah laa haula wa laa quwwata illaa billah niscaya Allah akan mudahkan"
+
+Syarah Riyadhus Shalihin, 5/522.
+Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah-
+
+read more : https://www.facebook.com/arismunandarjogja/posts/1748495742003220
+
+- [x] 18-10-21
+
+---
+
+### 13. Berdusta Walau Bercanda (September '20)
+
+Rasulullah shallallahu ‘alaihi wa sallam bersabda,
+
+“Celakalah bagi yang berbicara lantas berdusta hanya karena ingin membuat suatu kaum tertawa. Celakalah dia, celakalah dia.”
+
+HR. Abu Daud no. 4990 dan Tirmidzi no. 3315. Al Hafizh Abu Thohir mengatakan bahwa sanad hadits ini hasan
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Berbohong dalam Candaan"
+
+read more : [Berbohong dalam Candaan - Rumaysho.Com](https://rumaysho.com/10672-berbohong-dalam-candaan.html)
+
+- [x] 19-10-21 // repost 29-9-20
+
+---
+
+### 14. Sebuah Perjalanan (Oktober '20)
+
+Dari Ibnu Syaudzab ia berkata,
+
+”Ketika menjelang kematiannya, Abu Hurairah radliyallaahu ’anhu sempat menangis. Maka dikatakan kepadanya : ”Apa gerangan yang membuatmu menangis (wahai Abu Hurairah) ?”. 
+Maka ia menjawab :
+”Jauhnya perjalanan, sedikitnya bekal, dan banyaknya rintangan yang menyusahkan. Sedangkan akhir persinggahan itu bisa ke surga ataupun ke neraka”
+
+Shifatush-Shafwah, 1/694.
+Dinukil dari blog Abul Jauzaa dalam artikel berjudul "Salaf Dalam Rasa Takut dan Muraqabah"
+
+read more : [Abul-Jauzaa Blog - !! كن سلفيا&#1611; على الجادة: SALAF DALAM RASA TAKUT DAN MURAQABAH MEREKA KEPADA ALLAH](http://abul-jauzaa.blogspot.com/2008/08/salaf-dalam-rasa-takut-dan-muraqabah.html)
+
+- [x] 20-10-21 // repost 2-10-20
+
+---
+
+### 15. Akhlaq Yang Baik
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Amalan yang paling berat di timbangan (kelak pada hari kiamat -pen) adalah akhlaq yang baik"
+
+Shahihul Jami' hal 134
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1622861708066039
+
+- [x] 21-10-21
+
+---
+
+### 16. Orang Yang Diberkahi
+
+Syaikh Abdul Aziz ar-Rajihi -hafizhahullah- mengatakan :
+
+"Orang yang diberkahi adalah yang kemanfaatannya meluas kepada orang-orang lain. Apakah itu dalam bentuk memberikan makanan kepada orang yang kelaparan atau meringankan beban urusan mereka dan memberikan bantuan untuk mereka"
+
+Syarh Qawa'id Arba' Syaikh ar-Rajihi, hal. 5.
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 8"
+
+read more : [Untaian Nasihat Ulama (8) | al-Mubarok](https://www.al-mubarok.com/untaian-nasihat-ulama-8/)
+
+- [x] 22-10-21
+
+---
+
+### 17. Salah Satu Investasi Terbaik
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+"Ada seseorang yang diangkat derajatnya di syurga lalu bertanya, 'darimana semua ini?'. maka dikatakan kepadanya '(semua ini) buah dari istighfar anakmu untukmu'"
+
+Shahihul Jami' hal. 1617.
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1641931349492408
+
+- [x] 25-10-21
+
+---
+
+### 18. Hati Yang Bersih
+
+Al-Hafizh Ibnu Rajab -rahimahullah- berkata,
+"Hati ketika sedikit dosa-dosanya, maka paling mudah meneteskan air mata"
+
+Majmu Rasailih 1/262.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyuntingan
+
+read more : [Telegram: Contact @wawasan_muslim](https://t.me/wawasan_muslim/8508)
+
+- [x] 26-10-21
+
+---
+
+### 19. Ganjaran Doa
+
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+
+“Tidaklah seorang muslim memanjatkan do’a pada Allah selama tidak mengandung dosa dan memutuskan silaturahmi (antar kerabat, pen) melainkan Allah akan beri padanya tiga hal: (1) Allah akan segera mengabulkan do’anya, (2) Allah akan menyimpannya baginya di akhirat kelak, dan (3) Allah akan menghindarkan darinya kejelekan yang semisal.”
+
+HR. Ahmad, 3:18. Syaikh Syu’aib Al-Arnauth menyatakan bahwa sanad hadits ini jayyid
+Dinukil dari laman Ruqoyyah.com dalam artikel berjudul "Doa Itu Ibadah" dengan sedikit penyesuaian
+
+read more : [Doa itu Ibadah - Ruqoyyah](https://ruqoyyah.com/1318-doa-itu-ibadah.html)
+
+- [x] 27-10-21
+
+---
+
+### 20. Adab dalam Urusan Makanan
+
+Mulai sekarang kita belajar dengan apa yang ada dan tidak bersusah susah hanya demi selera, apalagi jika harus mengorek dompet dan kantong dalam dalam, karena seperti itulah cara Nabi Allah menjalani hidup,
+
+Syaikhul Islam Ibnu Taimiyyah -rahimahullah- menjelaskan,
+"Adab Nabi -shallallahu 'alaihi wasallam- dalam urusan makanan: 
+Beliau tidak menolak yang ada dan tidak bersusah mengupayakan yang tidak ada"
+Jami'ul Masa'il 7/144
+
+Dinukil dari status Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/musamulyadi/posts/4842482379152694
+
+- [x] 28-10-21
+
+---
+
+### 21. Tanda Kebaikan (Oktober '20)
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+
+“Barangsiapa yang Allah kehendaki menjadi baik maka Allah faqihkan (memahamkan) dia terhadap agama”
+
+HR. Bukhari no. 69
+Dinukil dari aplikasi Ensiklopedi Hadits Lidwa Pustaka
+
+read more : https://hadits.in/bukhari/69
+
+- [x] 29-10-21 // repost 22-10-20
 
 ---
