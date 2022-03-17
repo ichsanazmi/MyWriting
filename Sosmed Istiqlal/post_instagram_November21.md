@@ -13,23 +13,51 @@ Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6"
 
 read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
 
-- [ ] 1-11-21
+- [x] 1-11-21
 
 ___
 
-### 2.
+### 2. Perjuangan Melawan Hawa Nafsu
+
+Al-Imam Malik bin Dinar -rahimahullah- berkata,
+
+"Berjuanglah melawan hawa nafsu kalian sebagaimana kalian berjuang melawan musuh kalian"
+
+Al-Kamil 2/128.
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1626793187672891
 
 - [ ] 2-11-21
 
 ___
 
-### 3.
+### 3. Diharamkan dari Neraka
 
-- [ ] 3-11-21
+Rasulullah -shallallahu 'alaihi wasallam- bersabda :
+
+"Barangsiapa merutinkan shalat sunnah 4 rakaat sebelum zhuhur dan 4 rakaat sesudah zhuhur, maka akan diharamkan baginya neraka"
+
+HR. Abu Daud no. 1269, An-Nasa'i no. 1816, At-Tirmidzi no. 428. Di Shahihkan Syaikh al-Albani.
+Dinukil dari laman Rumaysho dalam artikel berjudul "Merutinkan Shalat Sunnah Rawatib" dengan sedikit penyesuaian
+
+read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
+
+- [x] 3-11-21
 
 ___
 
-### 4.
+### 4. untitled
+
+Apabila keilmuan itu diukur dengan jumlah kitab diperpustakaan seseorang maka penjual kitablah yang paling berilmu.
+
+Kitab itu sangat penting namun bukan satu satunya. Tanpa menelaah, memahami, dan mengamalkan maka semua kitab itu kelak hanya sekedar perpustakaan biasa dan bukan bentuk ilmu yang dikuasai.
+
+Ustadz Musa Mulyadi Luqman, BA
+
+Dinukil dari status fb beliau -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/musamulyadi/posts/2112144878853138
 
 - [ ] 4-11-21
 

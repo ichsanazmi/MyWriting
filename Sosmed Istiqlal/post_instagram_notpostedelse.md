@@ -157,16 +157,7 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan s
 
 read more : https://www.facebook.com/musamulyadi/posts/4660433957357538
 
-### 18. Diharamkan dari Neraka
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda :
-
-"Barangsiapa merutinkan shalat sunnah 4 rakaat sebelum zhuhur dan 4 rakaat sesudah zhuhur, maka akan diharamkan baginya neraka"
-
-HR. Abu Daud no. 1269, An-Nasa'i no. 1816, At-Tirmidzi no. 428. Di Shahihkan Syaikh al-Albani.
-Dinukil dari laman Rumaysho dalam artikel berjudul "Merutinkan Shalat Sunnah Rawatib" dengan sedikit penyesuaian
-
-read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
+### 18.
 
 ### 19.
 
@@ -181,16 +172,7 @@ Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
 
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1620862394932637
 
-### 21. Untitled
-
-Al-Imam Malik bin Dinar -rahimahullah- berkata,
-
-"Berjuanglah melawan hawa nafsu kalian sebagaimana kalian berjuang melawan musuh kalian"
-
-Al-Kamil 2/128.
-Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
-
-read more : https://www.facebook.com/umf.muhamadfajri/posts/1626793187672891
+### 21.
 
 ### 22.
 
