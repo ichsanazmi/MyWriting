@@ -47,7 +47,7 @@ read more : https://rumaysho.com/698-merutinkan-shalat-sunnah-rawatib.html
 
 ___
 
-### 4. untitled
+### 4. Ukuran Ilmu
 
 Apabila keilmuan itu diukur dengan jumlah kitab diperpustakaan seseorang maka penjual kitablah yang paling berilmu.
 
