@@ -34,15 +34,7 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesu
 
 read more : https://muslimafiyah.com/ini-alasan-kenapa-doa-keluar-wc-meminta-ampun.html
 
-### 3. Berbulan-bulan Sebelumnya
-
-Ibnu Rajab Al-Hambali -Rahimahullah- berkata,
-
-“Sebagian salaf berkata, “Dahulu mereka (para salaf) berdoa kepada Allah selama 6 bulan agar mereka disampaikan pada bulan Ramadhan. Kemudian mereka juga berdoa selama 6 bulan agar Allah menerima (amalan mereka di bulan Ramadhan).
-
-Latha’if Al-Ma’arif hal. 232
-
-read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
+### 3.
 
 ### 4. Ghibah
 
@@ -119,29 +111,11 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan se
 
 read more : https://www.facebook.com/musamulyadi/posts/4671457482921852
 
-### 12. Pentingnya Ikhlas dan Amal
-
-Imam Ibnul Qayyim -rahimahullah- berkata,
-
-"Seandainya ilmu bisa bermanfaat tanpa amalan niscaya Yang Maha Suci tidak akan mencela para pendeta Ahli Kitab. Dan jika seandainya amalan bisa bermanfaat tanpa adanya keikhlasan niscaya Allah juga tidak akan mencela orang-orang munafik"
-
-Al-Fawa'id, hal. 34.
-Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 6" 
-
-read more : https://www.al-mubarok.com/untaian-nasihat-ulama-6/
+### 12.
 
 ### 13.
 
-### 14. Bahaya Beramal Tanpa Ilmu
-
-Umar bin Abdul 'Aziz -rahimahullah- berkata :
-
-"Barangsiapa melakukan suatu amal tanpa landasan ilmu maka apa-apa yang dia rusak itu justru lebih banyak daripada apa-apa yang dia perbaik"
-
-Jami' Bayan al-'Ilmi wa Fadhlihi, Hal.131.
-Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 3" 
-
-read more : https://www.al-mubarok.com/untaian-nasihat-ulama-3/
+### 14.
 
 ### 15.
 
@@ -161,16 +135,7 @@ read more : https://www.facebook.com/musamulyadi/posts/4660433957357538
 
 ### 19.
 
-### 20. Untitled
-
-Syaikh Muhammad bin Shalih al-'Utsaimin -rahimahullah- berkata,
-
-"Dunia itu tidak lama, hanya beberapa hari saja kemudian berlalu, maka bersabarlah sampai Allah mendatangkan perkaranya"
-
-Syarah Riyadhus Shalihin hal. 104.
-Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
-
-read more : https://www.facebook.com/umf.muhamadfajri/posts/1620862394932637
+### 20.
 
 ### 21.
 

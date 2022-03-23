@@ -28,7 +28,7 @@ Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
 
 read more : https://www.facebook.com/umf.muhamadfajri/posts/1626793187672891
 
-- [ ] 2-11-21
+- [x] 2-11-21
 
 ___
 
@@ -59,41 +59,90 @@ Dinukil dari status fb beliau -hafizhahullah- dengan sedikit penyesuaian
 
 read more : https://www.facebook.com/musamulyadi/posts/2112144878853138
 
-- [ ] 4-11-21
+- [x] 4-11-21
 
 ____
 
-### 5.
+### 5. Bersabar Sejenak
 
-- [ ] 5-11-21
+Syaikh Muhammad bin Shalih al-'Utsaimin -rahimahullah- berkata,
 
-___
+"Dunia itu tidak lama, hanya beberapa hari saja kemudian berlalu, maka bersabarlah sampai Allah mendatangkan perkaranya"
 
-### 6.
+Syarah Riyadhus Shalihin hal. 104.
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah- dengan sedikit penyesuaian
 
-- [ ] 8-11-21
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1620862394932637
 
-___
-
-### 7.
-
-- [ ] 9-11-21
+- [x] 5-11-21
 
 ___
 
-### 8.
+### 6. Rem Lisan dan Tulisan
 
-- [ ] 10-11-21
+Kalau Anda ingin mengetik status atau komentar, kemudian nggak jadi karena mempertimbangkan akibat buruk dari tulisan Anda, maka bersyukurlah.
+Remnya masih bekerja dengan baik.
+
+Dinukil dari status facebook Ustadz Wira Bachrun -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/wira.bachrun/posts/1929237773943185
+
+- [x] 8-11-21
 
 ___
 
-### 9.
+### 7. Bahaya Beramal Tanpa Ilmu
+
+Umar bin Abdul 'Aziz -rahimahullah- berkata :
+
+"Barangsiapa melakukan suatu amal tanpa landasan ilmu maka apa-apa yang dia rusak itu justru lebih banyak daripada apa-apa yang dia perbaik"
+
+Jami' Bayan al-'Ilmi wa Fadhlihi, Hal.131.
+Dinukil dari laman Al-Mubarok dalam artikel "Untaian Nasihat Ulama 3"
+
+read more : https://www.al-mubarok.com/untaian-nasihat-ulama-3/
+
+- [x] 9-11-21
+
+___
+
+### 8. Keutamaan Mengajarkan Kebaikan
+
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+“Sesungguhnya Allah dan para Malaikat-Nya, serta semua makhluk di langit dan bumi, bahkan semut-semut dalam lubangnya serta ikan-ikan (di lautan), bershalawat kepada orang yang mengajarkan kebaikan kepada orang lain”
+
+HR At-Tirmidzi no. 2685, dishahihkan Al Albani dalam Shahih At Tirmidzi.
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Didekati Orang Baik"
+
+read more : https://muslim.or.id/53957-didekati-orang-baik.html
+
+- [x] 10-11-21
+
+___
+
+### 9. Berbulan-bulan Sebelumnya
+
+Ibnu Rajab Al-Hambali -Rahimahullah- berkata,
+
+“Sebagian salaf berkata, “Dahulu mereka (para salaf) berdoa kepada Allah selama 6 bulan agar mereka disampaikan pada bulan Ramadhan. Kemudian mereka juga berdoa selama 6 bulan agar Allah menerima (amalan mereka di bulan Ramadhan).
+
+Latha’if Al-Ma’arif hal. 232
+
+read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
 
 - [ ] 11-11-21
 
 ___
 
-### 10.
+### 10. Ganti Sirkel
+
+Kalau usiamu 20-an thn & sirkel sekitarmu gak ada yang ngingetin kamu buat belajar agama yang bener, untuk jaga shalat, inget mati, taubat dari dosa dan berupaya jadi muslim yang taat pertimbangkan ganti sirkel.
+Lakukan saran ini, semoga Allah selalu memberi hidayah kepada kita.
+
+Dinukil dari status facebook Ustadz Wira Bachrun -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/wira.bachrun/posts/1934361940097435
 
 - [ ] 12-11-21
 
