@@ -45,26 +45,9 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi ya
 
 read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
 
-### 5. Keutamaan Mengajarkan Kebaikan
+### 5.
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-“Sesungguhnya Allah dan para Malaikat-Nya, serta semua makhluk di langit dan bumi, bahkan semut-semut dalam lubangnya serta ikan-ikan (di lautan), bershalawat kepada orang yang mengajarkan kebaikan kepada orang lain” 
-
-HR At-Tirmidzi no. 2685, dishahihkan Al Albani dalam Shahih At Tirmidzi.
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Didekati Orang Baik"
-
-read more : https://muslim.or.id/53957-didekati-orang-baik.html
-
-### 6. test
-
-Wahab bin Munabbih -rahimahullah-, seorang ulama era tabiin mengatakan, 
-Diantara sifat orang munafik adalah suka pujian dan benci celaan (baca: kritikan)
-
-Al-Mushannaf karya Ibnu Abi Syaibah
-Dinukil dari facebook Ustadz Aris Munandar -Hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
+### 6.
 
 ### 7. Keutamaan Menyebarkan Ilmu
 

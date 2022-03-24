@@ -1784,7 +1784,7 @@ ___
 
 - [x] 23-11-20
 
-### 16. Tertutup oleh penyakit
+### 16. Tertutup oleh penyakit (1)
 
 ___
 
@@ -4669,7 +4669,7 @@ read More : https://www.facebook.com/arismunandarjogja/posts/1735663663286428
 
 ____
 
-# Agustus 21 (not done)
+# Agustus 21 (done)
 
 ---
 
@@ -4714,7 +4714,7 @@ read more : https://twitulama.tumblr.com/post/169450059922/jalan-meraih-kesukses
 
 ---
 
-### 4. Keutamaan Surah Al-Kahfi
+### 4. Keutamaan Surah Al-Kahfi (1)
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 "Barangsiapa yang membaca surat Al Kahfi pada hari Jum’at, dia akan disinari cahaya di antara dua Jum’at"
@@ -4740,7 +4740,7 @@ Dinukil dari laman TheHumairo dalam artikel berjudul "Baca Al-Kahfi Di Hari Jum�
 
 read more : https://thehumairo.com/2668-baca-al-kahfi-di-hari-jumat-dapat-cahaya-apa-maknanya.html
 
-- [ ] 9-8-21
+- [x] 9-8-21
 
 ---
 

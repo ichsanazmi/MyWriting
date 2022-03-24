@@ -121,17 +121,18 @@ read more : https://muslim.or.id/53957-didekati-orang-baik.html
 
 ___
 
-### 9. Berbulan-bulan Sebelumnya
+### 9. Berdoa Agar Bertemu Tamu Spesial
 
 Ibnu Rajab Al-Hambali -Rahimahullah- berkata,
 
-“Sebagian salaf berkata, “Dahulu mereka (para salaf) berdoa kepada Allah selama 6 bulan agar mereka disampaikan pada bulan Ramadhan. Kemudian mereka juga berdoa selama 6 bulan agar Allah menerima (amalan mereka di bulan Ramadhan).
+“Sebagian salaf berkata, “Dahulu mereka (para salaf) berdoa kepada Allah selama 6 bulan agar mereka disampaikan pada bulan Ramadhan.."
 
 Latha’if Al-Ma’arif hal. 232
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Sedih Apabila Amalan Tidak Diterima Di Bulan Ramadhan" dengan sedikit penyesuaian
 
 read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
 
-- [ ] 11-11-21
+- [x] 11-11-21
 
 ___
 
@@ -144,41 +145,100 @@ Dinukil dari status facebook Ustadz Wira Bachrun -hafizhahullah- dengan sedikit 
 
 read more : https://www.facebook.com/wira.bachrun/posts/1934361940097435
 
-- [ ] 12-11-21
+- [x] 12-11-21
 
 ___
 
-### 11.
+### 11. Tertutup Oleh Penyakit (November '20)
 
-- [ ] 15-11-21
+Malik ibn Dinar -rahimahullah- berkata,
+
+“Sesungguhnya badan apabila terkena penyakit maka akan sulit untuk menelan makanan dan minuman, demikian pula hati apabila telah tertutup dengan kecintaan kepada dunia, maka akan sulit menerima nasihat.”
+
+Sifatus Shafwah 2/172
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sakit badan tidak merasakan lezatnya makanan, penyakit hati juga demikian"
+
+read more : https://muslim.or.id/45299-sakit-badan-tidak-merasakan-lezatnya-makanan-penyakit-hati-juga-demikian.html
+
+- [x] 15-11-21 // repost 24-11-20
 
 ____
 
-### 12.
+### 12. Doa Ketika Dipuji
 
-- [ ] 16-11-21
+ﺍَﻟﻠَّﻬُﻢَّ ﻻَ ﺗُﺆَﺍﺧِﺬْﻧِﻲْ ﺑِﻤَﺎ ﻳَﻘُﻮْﻟُﻮْﻥَ، ﻭَﺍﻏْﻔِﺮْﻟِﻲْ ﻣَﺎ ﻻَ ﻳَﻌْﻠَﻤُﻮْﻥَ ‏ ﻭَﺍﺟْﻌَﻠْﻨِﻲْ ﺧَﻴْﺮًﺍ ﻣِﻤَّﺎ ﻳَﻈُﻨُّﻮْﻥَ
+
+“Ya Allah, semoga Engkau tidak menghukumku karena apa yang mereka katakan. Ampunilah aku atas apa yang tidak mereka ketahui. Dan jadikanlah aku lebih baik daripada yang mereka perkirakan."
+
+HR. Bukhari dalam Al-Adabul Mufrad no. 761. Isnadnya dishahihkan oleh Al-Albani dalam Shahih Al-Adabul Mufrad
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Pujian Adalah Ujian" dengan sedikit penyesuaian
+
+Read more : https://muslim.or.id/35123-pujian-adalah-ujian.html
+
+- [x] 16-11-21
 
 ___
 
-### 13.
+### 13. Diantara Sifat Orang Munafik
+
+Wahab bin Munabbih -rahimahullah-, seorang ulama era tabiin mengatakan, 
+Diantara sifat orang munafik adalah suka pujian dan benci celaan (baca: kritikan)
+
+Al-Mushannaf karya Ibnu Abi Syaibah
+Dinukil dari facebook Ustadz Aris Munandar -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
 
 - [ ] 17-11-21
 
 ___
 
-### 14.
+### 14. Untitled
+
+Salah satu sumber ketidakbahagiaan adalah ketika kita menjadikan kebahagiaan orang lain sebagai ukuran.
+
+Belum bahagia kalau belum mencapai apa yang sudah dilakukan atau diraih orang lain.
+
+Betapa banyak keindahan yang ada di tempat jauh, ada pula di dekatmu. Jangan sampai justru tujuanmu sebenarnya bukanlah pemandangan indah atas nama healing, tapi yang kau cari adalah pengakuan dari orang lain melalui selfie-mu..
+
+Banyak orang menemukan kebahagiaan dalam bermunajat kepada Allah, atau dengan membaca Al Quran, atau dengan membuka lembaran-lembaran kitab dan buku di perpustakaan, atau yang lainnya.
+
+Setiap orang tidak harus sama ukuran kebahagiaannya, maka temukan sendiri kebahagiaanmu.
+
+Ustadz Ristiyan Ragil Putradianto
+Dinukil dari facebook beliau -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/ristiyan.ragil/posts/10159456455513190
 
 - [ ] 18-11-21
 
 ___
 
-### 15.
+### 15. Membaca Surah Al-Kahfi (Agustus '21)
 
-- [ ] 19-11-21
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+"Barangsiapa yang membaca surat Al Kahfi pada hari Jum’at, dia akan disinari cahaya di antara dua Jum’at"
+
+HR. Hakim, 2/399. Baihaqi, 3/29. Dinilai Shahih oleh Syekh Albani dalam Shahih Al-Jaami’ no. 6470.
+Dinukil dari laman TheHumairo dalam artikel berjudul "Baca Al-Kahfi Di Hari Jum’at Dapat Cahaya, Apa Maknanya?"
+
+read more : https://thehumairo.com/2668-baca-al-kahfi-di-hari-jumat-dapat-cahaya-apa-maknanya.html
+
+- [x] 19-11-21 // repost 6-8-21
 
 ___
 
-### 16.
+### 16. Untitled
+
+Sebagian salaf berkata,
+
+“Janganlah engkau memperlambat terkabulnya do’a dengan engkau menempuh jalan maksiat.” 
+
+Jaami’ul ‘Ulum wal Hikam, Ibnu Rajab Al Hambali, 1: 275-276
+
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Panduan Makanan 1 Pengaruh Makanan Haram"
+
+Read more : https://muslim.or.id/10842-panduan-makanan-1-pengaruh-makanan-haram.html
 
 - [ ] 22-11-21
 
