@@ -244,21 +244,47 @@ Read more : https://muslim.or.id/10842-panduan-makanan-1-pengaruh-makanan-haram
 
 ___
 
-### 17.
+### 17. Wadah Yang Disebut dengan Hati (Sep '20)
 
-- [ ] 23-11-21
+Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yang mulia ini di hati yang tidak saleh!?
 
-___
+Dinukil dari status yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- via laman facebook beliau
 
-### 18.
-
-- [ ] 24-11-21
+- [ ] 23-11-21 // repost  18-9-20
 
 ___
 
-### 19.
+### 18. Merasa Cukup (Okt '20)
 
-- [ ] 25-11-21 
+Seseorang akan terus merasa kurang dan miskin apabila tidak merasa qana’ah dan selalu melihat orang lain yang berada di atasnya dalam urusan dunia.
+padahal Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+
+“Lihatlah orang yang berada di bawahmu (dalam masalah harta dan dunia) dan janganlah engkau lihat orang yang berada di atasmu. Dengan demikian, hal itu akan membuatmu tidak meremehkan nikmat Allah padamu.”
+
+HR. Bukhari Muslim
+Dinukil dari Muslim.or.id dalam artikel berjudul "Setan Menakut-nakuti dengan Kemiskinan" dengan sedikit penambahan
+
+read more : https://muslim.or.id/50745-setan-menakut-nakuti-dengan-kemiskinan.html
+
+- [ ] 24-11-21 // repost 8-10-20
+
+___
+
+### 19. Manisnya Iman (Nov '20)
+
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+"Ada tiga perkara yang apabila perkara tersebut ada pada seseorang, maka ia akan mendapatkan manisnya iman, yaitu,
+
+1. Barangsiapa yang Allah dan Rasul-Nya lebih ia cintai dari selain keduanya.
+2. Apabila ia mencintai seseorang, ia hanya mencintainya karena Allah.
+3. Ia benci untuk kembali kepada kekufuran setelah Allah menyelamatkannya sebagaimana ia benci untuk dilemparkan ke dalam Neraka"
+
+HR Bukhari & Muslim
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sakit badan tidak merasakan lezatnya makanan, penyakit hati juga demikian"
+
+read more : https://muslim.or.id/45299-sakit-badan-tidak-merasakan-lezatnya-makanan-penyakit-hati-juga-demikian.html
+
+- [x] 25-11-21 // repost 24-11-20
 
 ___
 

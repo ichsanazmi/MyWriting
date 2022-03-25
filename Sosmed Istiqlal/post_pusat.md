@@ -875,7 +875,7 @@ Semoga Allah memberikan kemudahan disetiap mengerjakan soal-soal, aamiin
 
 ___
 
-### 14. Wadah Yang Disebut dengan Hati
+### 14. Wadah Yang Disebut dengan Hati (1)
 
 Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yang mulia ini di hati yang tidak saleh!?
 
@@ -1032,7 +1032,7 @@ read more : https://ruqoyyah.com/1318-doa-itu-ibadah.html
 
 ___
 
-## Oktober 2020 (-1)
+## Oktober 2020 (done)
 
 ### 1. Ancaman Bagi Yang Tidak Mengerjakan Hal Yang Ia Perintahkan
 
@@ -1137,7 +1137,7 @@ ___
 
 - [x] 8-10-20
 
-### 6. Merasa Cukup
+### 6. Merasa Cukup (1)
 
 ___
 
@@ -1402,7 +1402,7 @@ https://muslim.or.id/45173-persahabatan-yang-sampai-ke-surga-selamanya.html
 
 ___
 
-[x] 27-10-20
+- [x] 27-10-20
 
 ### 19. Doa dalam Sepi
 
@@ -1423,9 +1423,9 @@ https://muslim.or.id/45173-persahabatan-yang-sampai-ke-surga-selamanya.html
 
 ___
 
- [x] 28-10-20
+- [x] 28-10-20
 
-### 20. (ilus udah, content belum) Pegang Erat
+### 20. Pegang Erat (fixed in nov 21)
 
 ___
 
@@ -1442,7 +1442,7 @@ https://shahihfiqih.com/tazkiyatun-nafz/carilah-teman-yang-shalih/
 
 ___
 
-- [ ] 29-10-20
+- [x] 29-10-20
 
 ### 21. Doa agar tidak malas, disucikan jiwa, dan diberikan hati yang khusyuk
 
@@ -1802,7 +1802,7 @@ ___
 
 - [x] 24-11-20
 
-### 17. Manisnya Iman
+### 17. Manisnya Iman (1)
 
 ___
 
