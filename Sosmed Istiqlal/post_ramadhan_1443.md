@@ -1,9 +1,17 @@
 # Post Instagram Desember
 
-### 1. Telah Datang Waktunya
+### 1. Do'a Berbuka Puasa
 
-Telah datang waktunya, ajang untuk saling untuk saling berlomba...
-Dimana tidak ada istilah kalah atau menang atas satu sama lain, yang ada hanyalah beruntung atau merugi
+Rasulullah -shallallahu ‘alaihi wa sallam- ketika berbuka beliau membaca doa :
+
+ذَهَبَ الظَّمَأُ وَابْتَلَّتِ الْعُرُوقُ وَثَبَتَ الأَجْرُ إِنْ شَاءَ اللَّهُ
+dzahabazh zhoma'u wab tallatil 'uruuqu wa
+tsabatal ajru insyaa' Allah
+artinya: rasa haus telah hilang dan urat-urat telah basah,
+dan pahala telah ditetapkan insya Allah
+
+HR Abu Daud no. 2357, dari Ibnu Umar, Syaikh Al-Albani berkata hadits ini
+hasan
 
 - [ ] 1 Ramadhan
 
@@ -25,8 +33,6 @@ read more : https://rumaysho.com/3435-menyegerakan-waktu-buka-puasa.html
 ___ 
 
 ### 3. Di Ampuni Yang Telah Lalu
-
-___
 
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 Barangsiapa yang berpuasa ramadhan atas dasar iman dan mengharap pahala dari Allah, maka dosanya yang telah lalu akan diampuni
@@ -54,32 +60,26 @@ Alangkah butanya hati seorang yang tidak mampu bersabar sesaat, dan memilih untu
 
 Bersemilah Ramadhan, Hal 63 Karya Ustadz Armen Halim Naro, Lc. -Rahimahullah-
 
-- [x] 5 Ramadhan
+- [ ] 5 Ramadhan
 
 ___ 
 
-### 6. Do'a Berbuka Puasa
+### 6.Hakikat Puasa
 
-___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
-Rasulullah -shallallahu ‘alaihi wa sallam- ketika berbuka beliau membaca doa :
+"Tidaklah puasa itu hanya sekedar menahan dari makan dan minum. Akan tetapi, hakikat puasa adalah menahan diri dari ucapan kotor dan sia-sia"
 
-ذَهَبَ الظَّمَأُ وَابْتَلَّتِ الْعُرُوقُ وَثَبَتَ الأَجْرُ إِنْ شَاءَ اللَّهُ
-dzahabazh zhoma'u wab tallatil 'uruuqu wa
-tsabatal ajru insyaa' Allah
-artinya: rasa haus telah hilang dan urat-urat telah basah,
-dan pahala telah ditetapkan insya Allah
+HR. Ibnu Khuzaimah dalam kitab Shahihnya no. 1996
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-2"
 
-HR Abu Daud no. 2357, dari Ibnu Umar, Syaikh Al-Albani berkata hadits ini
-hasan
+read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
 
 - [x] 6 Ramadhan
 
 ___ 
 
 ### 7. Berbukanya Nabi -Shallallahu 'Alaihi Wasallam-
-
----
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -91,64 +91,28 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketik
 
 read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
-- [x] 7 ramadhan
+- [ ] 7 ramadhan
 
 ___ 
 
-### 8. Hakikat Puasa
-
----
+### 8.Dusta Saat Puasa
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
-"Tidaklah puasa itu hanya sekedar menahan dari makan dan minum. Akan tetapi, hakikat puasa adalah menahan diri dari ucapan kotor dan sia-sia"
+"Barangsiapa yang tidak meninggalkan perkataan dusta malah mengamalkannya, maka Allah tidak butuh dari rasa lapar dan haus yang dia tahan"
 
-HR. Ibnu Khuzaimah dalam kitab Shahihnya no. 1996
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan Yang Tersebar Di Bulan Ramadhan bag-2"
+HR. Bukhari
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
 
-read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
+read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
 
-- [x] 8 Ramadhan
+Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
 
-___ 
-
-### 9. Tetap Membaca Al-Quran
-
----
-
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Orang yang lancar membaca Alquran akan bersama malaikat utusan yang mulia lagi berbakti, sedangkan orang yang membaca Alquran dengan tersendat-sendat lagi berat, maka ia akan mendapatkan dua pahala (karena telah membaca dan bersusah payah -ed).”
-
-HR Muslim
-Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan Motivasi Membaca Al-Quran di Bulan Ramadhan" dengan sedikit penyesuaian
-
-read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
-
-- [x] 9 Ramadhan
-
-___
-
-### 10. Bersemangat di Waktu Yang Tersisa
-
----
-
-Ummul Mu'minin 'Aisyah -Radhiallahu Anha- berkata,
-
-Rasulullah -shallallahu ‘alaihi wa sallam- sangat bersungguh-sungguh pada sepuluh hari terakhir dari bulan Ramadhan, melebihi kesungguhan beliau di waktu yang lainnya.” 
-
-HR. Muslim
-
-Dinukil dari laman Muslim.or.id dari artikel yang berjudul "Lailatul Qadar dan I'tikaf"
-
-Read more : https://muslim.or.id/356-lailatul-qadar-dan-itikaf.html
-
-- [x] 10 Ramadhan 
+- [ ] 8 Ramadhan
 
 ___ 
 
-### 11. Syafaat Bagi Pembacanya
-
----
+### 9. Syafaat Bagi Pembacanya
 
 Rasulullah -shallallahu 'alaihi wasallam bersabda,
 "Bacalah Al-Quran, karena ia akan datang pada hari kiamat memberikan syafaat kepada pembacanya.”
@@ -158,29 +122,29 @@ Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan 
 
 read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
 
-- [x] 11 Ramadhan
+- [ ] 9 Ramadhan
+
+___
+
+### 10.
+
+- [ ] 10 Ramadhan 
 
 ___ 
 
-### 12. Kemuliaan Ramadhan
+### 11.
 
----
+- [ ] 11 Ramadhan
 
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Jika telah datang bulan Ramadhan, pintu-pintu surga dibuka, pintu-pintu neraka ditutup, dan setan-setan terbelenggu"
+___ 
 
-Mutafaqqun 'Alaihi
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Ramadhan Tiba Pintu-Pintu Surga Terbuka"
+### 12.
 
-read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html
-
-- [x] 12 Ramadhan
+- [ ] 12 Ramadhan
 
 ___ 
 
 ### 13. Menjaga Pahala Puasa dari Ghibah
-
----
 
 Abu Al-'Aliyah (Ulama Tabi'in dari Bashrah) -rahimahullah- berkata,
 "Orang yang puasa ada dalam ibadah selama ia tidak ghibah." 
@@ -195,39 +159,13 @@ source : https://www.facebook.com/story.php?story_fbid=3857932424274366&id=10000
 
 ___ 
 
-### 14. Dusta Saat Puasa
-
----
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Barangsiapa yang tidak meninggalkan perkataan dusta malah mengamalkannya, maka Allah tidak butuh dari rasa lapar dan haus yang dia tahan"
-
-HR. Bukhari
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Bohong Saat Puasa Apakah Membatalkan Puasa"
-
-read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puasa.html
-
-Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
+### 14.
 
 - [x] 14 Ramadhan
 
 ___ 
 
-### 15. Do'a Ampunan di Lailatul Qadar
-
----
-
-Aisyah -radhiallahu 'anha- beliau bertanya kepada Nabi -shallallahu 'alaihi wasallam-
-
-"Katakan padaku wahai Rasulullah -shallallahu 'alaihi wasallam, apa pendapatmu, jika aku mengetahui suatu malam adalah lailatul qadar. Apa yang aku katakan didalamnya?” Beliau menjawab,”Katakanlah:" Allahumma innaka 'afuwwun,tuhibbul 'afwa fa'fu 'anni.
-
-artinya : Ya Allah, Engkau Maha Memberikan Maaf dan Engkau suka memberikan maaf (menghapus kesalahan), karenanya maafkanlah aku (hapuslah dosa-dosaku)
-
-HR. Tirmidzi dan Ibnu Majah,Hadits ini dinilai shahih oleh Al-Albani
-Dinukil dari laman Rumaysho dalam artikel berjudul "Koreksi Do'a Lailatul Qadar"
-
-read more : https://rumaysho.com/499-koreksi-doa-lailatul-qadar.html
+### 15.
 
 - [x] 15 Ramadhan
 
@@ -305,21 +243,19 @@ read more : https://rumaysho.com/1147-pahala-besar-di-balik-memberi-makan-berbuk
 
 ---
 
-### 20. Shalat Semalam Penuh
+### 20. Bersemangat di Waktu Yang Tersisa
 
----
+Ummul Mu'minin 'Aisyah -Radhiallahu Anha- berkata,
 
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+Rasulullah -shallallahu ‘alaihi wa sallam- sangat bersungguh-sungguh pada sepuluh hari terakhir dari bulan Ramadhan, melebihi kesungguhan beliau di waktu yang lainnya.”
 
-"Siapa yang shalat bersama imam sampai ia selesai, maka ditulis untuknya pahala qiyam satu malam penuh"
+HR. Muslim
 
-HR. Tirmidzi no. 806 dishahihkan At-Tirmidzi dan Syaikh Al-Albani
+Dinukil dari laman Muslim.or.id dari artikel yang berjudul "Lailatul Qadar dan I'tikaf"
 
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Ikutilah Imam Shalat Tarawih 23 Rakaat Hingga Selesai"
+Read more : [Lailatul Qadar dan I&#039;tikaf](https://muslim.or.id/356-lailatul-qadar-dan-itikaf.html)
 
-read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hingga-selesai.html
-
-- [x] 20 Ramadhan
+- [ ] 20 Ramadhan
 
 ---
 
@@ -340,35 +276,28 @@ read more : https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
 
 ---
 
-### 22. Meski Seteguk Air
+### 22.Do'a Ampunan di Lailatul Qadar
+
+
+
+Aisyah -radhiallahu 'anha- beliau bertanya kepada Nabi -shallallahu 'alaihi wasallam-
+
+"Katakan padaku wahai Rasulullah -shallallahu 'alaihi wasallam, apa pendapatmu, jika aku mengetahui suatu malam adalah lailatul qadar. Apa yang aku katakan didalamnya?” Beliau menjawab,”Katakanlah:" Allahumma innaka 'afuwwun,tuhibbul 'afwa fa'fu 'anni.
+
+artinya : Ya Allah, Engkau Maha Memberikan Maaf dan Engkau suka memberikan maaf (menghapus kesalahan), karenanya maafkanlah aku (hapuslah dosa-dosaku)
+
+HR. Tirmidzi dan Ibnu Majah,Hadits ini dinilai shahih oleh Al-Albani
+Dinukil dari laman Rumaysho dalam artikel berjudul "Koreksi Do'a Lailatul Qadar"
+
+read more : https://rumaysho.com/499-koreksi-doa-lailatul-qadar.html
+
+- [ ] 22 Ramadhan
 
 ---
 
-Rasulullah -Shallallahu 'Alaihi wasallam- bersabda,
+### 23.
 
-"Sahur adalah makanan yang penuh berkah, Oleh karena itu, janganlah kalian meninggalkannya walaupun hanya dengan minum seteguk air, karena sesungguhnya Allah dan para malaikat bershalawat untuk orang-orang yang makan sahur"
-
-HR Ahmad, 3:12, di shahihkan Syaikh Syu'aib Al-Arnauth
-
-Dinukil dari buku Ramadhan Bersama Nabi, karya Ustadz Muhammad Abduh Tuasikal -hafizhahullah-
-
-- [x] 22 Ramadhan
-
----
-
-### 23. Pintu Surga Khusus Orang Yang Berpuasa
-
----
-
-"Sesungguhnya di surga ada pintu yang dinamakan Ar-Rayyan. Orang-orang yang berpuasa di hari kiamat masuk dari pintu itu. Tidak dibolehkan seorang pun memasukinya selain mereka..."
-
-HR. Bukhari, 1763. Muslim, 1947
-
-Dinukil dari laman Islamqa dalam artikel "Orang yang Berpuasa Akan Dipanggil Dari Pintu Ar-Rayyan"
-
-read more : https://islamqa.info/id/answers/13934/orang-yang-berpuasa-akan-dipanggil-dari-pintu-ar-rayyan
-
-- [x] 23 Ramadhan
+- [ ] 23 Ramadhan
 
 ---
 
@@ -384,21 +313,9 @@ Dinukil dari buku Manusia Paling Bahagia di Bulan Ramadhan karya 'Abdurrahman al
 
 ---
 
-### 25. Berdoa dan Meminta Ampun Pada Waktu Sahur
+### 25.
 
----
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Rabb kita Tabaaraka wa Ta’ala turun ke langit dunia pada sepertiga malam terakhir. Kemudian Allah berfirman, “Siapa saja yang berdoa kepada-Ku, maka akan Aku kabulkan. Siapa yang meminta kepada-Ku, maka akan Aku penuhi. Siapa yang meminta ampunan kepada-Ku, maka akan Aku ampuni.”
-
-HR. Bukhari Muslim
-
-Dinukil dari laman Muslim.or.id dari artikel berjudul "Do'a Sepanjang Ramadhan"
-
-read more : https://muslim.or.id/63336-doa-sepanjang-ramadhan.html
-
-- [x] 25 Ramadhan
+- [ ] 25 Ramadhan
 
 ---
 
@@ -418,23 +335,11 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sedih Apabila Amala
 
 read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
 
-- [x] 26 Ramadhan
+- [ ] 26 Ramadhan
 
 ---
 
-### 27. Bersaing Dalam Masalah Akhirat
-
----
-
-Hasan al-Bashri -rahimahullah- berkata,
-
-"Jika Engkau melihat ada seseorang yang menyaingimu dalam masalah dunia, maka saingilah dia dalam masalah akhirat"
-
-Lathaiful Ma'arif
-
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
-
-read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
+### 27.
 
 - [x] 27 Ramadhan
 
@@ -460,21 +365,9 @@ Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
 ---
 
-### 29. Celaka dan Merugi
+### 29.
 
----
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Celakalah seorang hamba yang mendapati bulan Ramadhan kemudian Ramadhan berlalu dalam keadaan dosa-dosanya belum diampuni.” 
-
-HR. Ahmad, shahih
-
-Dinukil dari laman Muslim.or.id dari artikel berjudul "semoga kita diampuni selama ramadhan"
-
-Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
-
-- [x] 27 Ramadhan
+- [ ] 27 Ramadhan
 
 ---
 

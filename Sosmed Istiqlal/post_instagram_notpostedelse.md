@@ -34,7 +34,15 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesu
 
 read more : https://muslimafiyah.com/ini-alasan-kenapa-doa-keluar-wc-meminta-ampun.html
 
-### 3.
+### 3. Untitled
+
+Bimbing anak-anak memilih hobi agar mereka jangan salah dan tidak berlebihan, betapa banyak orang dewasa sangat sulit lepas dari hobinya dan menjadi penyebab dia jauh dari Agama.
+
+Ustadz Musa Mulyadi Luqman
+
+Dinukil dari facebook beliau hafizhahullah dengan sedikit penyesuaian.
+
+sumber : https://www.facebook.com/musamulyadi/posts/4932804093453855
 
 ### 4. Ghibah
 
