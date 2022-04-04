@@ -1,7 +1,18 @@
-Telah Datang Waktunya
+Tata Cara Berbuka Puasa
 
-Telah datang waktunya, ajang untuk saling untuk saling berlomba...
-Dimana tidak ada istilah kalah atau menang atas satu sama lain, yang ada hanyalah beruntung atau merugi
+1 - Ketika mendengar adzan ucapkan Bismillah
+
+2 - lalu berbuka bisa dengan ruthab (kurma basah) atau tamr (kurma kering) atau seteguk air
+
+3 - Membaca doa :
+
+ذَهَبَ الظَّمَأُ وَابْتَلَّتِ الْعُرُوقُ وَثَبَتَ الأَجْرُ إِنْ شَاءَ اللَّهُ
+dzahabazh zhoma'u wabtallatil 'uruuqu wa tsabatal ajru insyaa' Allah
+artinya : Telah hilanglah dahaga, telah basahlah kerongkongan, semoga ada pahala yang ditetapkan, jika Allah menghendaki
+
+Dinukil dari MuslimAfiyah dalam artikel berjudul "Tata Cara Berbuka Puasa" dengan sedikit penyesuaian
+
+selengkapnya : https://muslimafiyah.com/tata-cara-berbuka-puasa.html
 
 ____
 

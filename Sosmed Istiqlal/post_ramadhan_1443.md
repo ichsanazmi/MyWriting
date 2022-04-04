@@ -1,23 +1,27 @@
 # Post Instagram Desember
 
-### 1. Do'a Berbuka Puasa
+## 1. Marhaban Yaa Ramadhan 1443H
 
-Rasulullah -shallallahu ‘alaihi wa sallam- ketika berbuka beliau membaca doa :
+Telah datang waktunya, ajang untuk saling untuk saling berlomba...
+Dimana tidak ada istilah kalah atau menang atas satu sama lain, yang ada hanyalah beruntung atau merugi
 
-ذَهَبَ الظَّمَأُ وَابْتَلَّتِ الْعُرُوقُ وَثَبَتَ الأَجْرُ إِنْ شَاءَ اللَّهُ
-dzahabazh zhoma'u wab tallatil 'uruuqu wa
-tsabatal ajru insyaa' Allah
-artinya: rasa haus telah hilang dan urat-urat telah basah,
-dan pahala telah ditetapkan insya Allah
+- [x] 1 Ramadhan
 
-HR Abu Daud no. 2357, dari Ibnu Umar, Syaikh Al-Albani berkata hadits ini
-hasan
+### 2. Celaka dan Merugi
 
-- [ ] 1 Ramadhan
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
-___ 
+"Celakalah seorang hamba yang mendapati bulan Ramadhan kemudian Ramadhan berlalu dalam keadaan dosa-dosanya belum diampuni.”
 
-### 2. Bersegera Dalam Berbuka
+HR. Ahmad, shahih
+
+Dinukil dari laman Muslim.or.id dari artikel berjudul "semoga kita diampuni selama ramadhan"
+
+Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
+
+- [ ] 2 Ramadhan
+
+### 3. Bersegera Dalam Berbuka
 
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 Manusia senantiasa berada dalam kebaikan selama mereka menyegerakan waktu berbuka
@@ -277,8 +281,6 @@ read more : https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
 ---
 
 ### 22.Do'a Ampunan di Lailatul Qadar
-
-
 
 Aisyah -radhiallahu 'anha- beliau bertanya kepada Nabi -shallallahu 'alaihi wasallam-
 
