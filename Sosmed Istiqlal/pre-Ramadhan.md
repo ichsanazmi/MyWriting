@@ -16,31 +16,7 @@ selengkapnya : https://muslimafiyah.com/tata-cara-berbuka-puasa.html
 
 ____
 
-Celaka dan Merugi
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Celakalah seorang hamba yang mendapati bulan Ramadhan kemudian Ramadhan berlalu dalam keadaan dosa-dosanya belum diampuni.”
-
-HR. Ahmad, shahih
-
-Dinukil dari laman Muslim.or.id dari artikel berjudul "semoga kita diampuni selama ramadhan"
-
-Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
-
 ____
-
-Bersaing Dalam Masalah Akhirat
-
-Hasan al-Bashri -rahimahullah- berkata,
-
-"Jika Engkau melihat ada seseorang yang menyaingimu dalam masalah dunia, maka saingilah dia dalam masalah akhirat"
-
-Lathaiful Ma'arif
-
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Motivasi Tinggi Dalam Belajar Agama"
-
-read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 
 ---
 
@@ -57,16 +33,6 @@ Dinukil dari laman Muslim.or.id dari artikel berjudul "Do'a Sepanjang Ramadhan"
 read more : https://muslim.or.id/63336-doa-sepanjang-ramadhan.html
 
 ___
-
-Pintu Surga Khusus Orang Yang Berpuasa
-
-"Sesungguhnya di surga ada pintu yang dinamakan Ar-Rayyan. Orang-orang yang berpuasa di hari kiamat masuk dari pintu itu. Tidak dibolehkan seorang pun memasukinya selain mereka..."
-
-HR. Bukhari, 1763. Muslim, 1947
-
-Dinukil dari laman Islamqa dalam artikel "Orang yang Berpuasa Akan Dipanggil Dari Pintu Ar-Rayyan"
-
-read more : https://islamqa.info/id/answers/13934/orang-yang-berpuasa-akan-dipanggil-dari-pintu-ar-rayyan
 
 ---
 
@@ -108,12 +74,31 @@ read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.ht
 
 ---
 
-Tetap Membaca Al-Quran
+Keutamaan Puasa Syawwal
 
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Orang yang lancar membaca Alquran akan bersama malaikat utusan yang mulia lagi berbakti, sedangkan orang yang membaca Alquran dengan tersendat-sendat lagi berat, maka ia akan mendapatkan dua pahala (karena telah membaca dan bersusah payah -ed).”
+Rasulullah -Shallallahu 'alahi wasallam- bersabda,
+"Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
 
-HR Muslim
-Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan Motivasi Membaca Al-Quran di Bulan Ramadhan" dengan sedikit penyesuaian
+HR. Muslim No. 1164
 
-read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Puasa Sunnah 6 Hari Di Bulan Syawwal"
+
+read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-syawwal.html
+
+---
+
+---
+
+Kemungkinan Besar Datangnya Malam Lailatul Qadar
+
+Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
+"Demi Allah aku tahu kapan malam itu, yaitu malam yang kita diperintahkan oleh Rasulullah untuk menghidupkannya, yaitu malam kedua puluh tujuh”
+HR. Muslim
+
+Syaikh Muhammah bin Shalih Al-‘Ustaimin menjelaskan,
+“Malam ke-27 adalah malam yang paling diharapkan sebagai malam lailatul qadar, sebagaimana pada hadits Ubay bin Ka’ab radhiallahu ‘anhu”. 
+http://www.alukah.net/sharia/0/58346
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-27 Adalah Malam Lailatul Qadar"
+
+read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
