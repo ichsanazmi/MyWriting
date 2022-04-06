@@ -1437,8 +1437,7 @@ Imam Syafi’i -rahimahullah- berkata,
 Hilyatul Aulia 4/101
 Dinukil dari Shahihfiqih.com dalam artikel berjudul "Carilah teman yang shalih"
 
-read more :
-https://shahihfiqih.com/tazkiyatun-nafz/carilah-teman-yang-shalih/
+read more : https://shahihfiqih.com/tazkiyatun-nafz/carilah-teman-yang-shalih/
 
 ___
 

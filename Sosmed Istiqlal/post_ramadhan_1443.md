@@ -32,7 +32,7 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "Menyegerakan Waktu Buka
 
 read more : https://rumaysho.com/3435-menyegerakan-waktu-buka-puasa.html
 
-- [ ] 3 Ramadhan
+- [x] 3 Ramadhan
 
 ### 4. Di Ampuni Yang Telah Lalu
 
@@ -41,7 +41,7 @@ Barangsiapa yang berpuasa ramadhan atas dasar iman dan mengharap pahala dari All
 
 HR. Bukhari Muslim
 
-- [ ] 4 Ramadhan
+- [x] 4 Ramadhan
 
 ### 5. Keutamaan Shalat Tarawih
 
@@ -50,7 +50,7 @@ Barangsiapa sholat (tarawih) di bulan ramadhan atas dasar iman dan mengharap pah
 
 HR. Bukhari Muslim
 
-- [ ] 5 Ramadhan
+- [x] 5 Ramadhan
 
 ### 6. Bersabar di Ramadhan
 
@@ -58,7 +58,7 @@ Alangkah butanya hati seorang yang tidak mampu bersabar sesaat, dan memilih untu
 
 Bersemilah Ramadhan, Hal 63 Karya Ustadz Armen Halim Naro, Lc. -Rahimahullah-
 
-- [ ] 6 Ramadhan
+- [x] 6 Ramadhan
 
 ### 7. Hakikat Puasa
 
@@ -71,7 +71,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan 
 
 read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
 
-- [ ] 7 Ramadhan
+- [x] 7 Ramadhan
 
 ### 8. Bersaing Dalam Masalah Akhirat
 
@@ -85,7 +85,7 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "Muslim Harus Punya Moti
 
 read more : https://rumaysho.com/27646-muslim-harus-punya-motivasi-tinggi-dalam-belajar-agama.html
 
-- [ ] 8 ramadhan
+- [x] 8 ramadhan
 
 ### 9. Dusta Saat Puasa
 
@@ -100,9 +100,7 @@ read more : https://rumaysho.com/11175-bohong-saat-puasa-apakah-membatalkan-puas
 
 Jumhur (mayoritas) ulama berpendapat bahwa larangan yang dimaksud dalam hadits di atas adalah larangan haram, namun bukan termasuk pembatal puasa. Pembatal puasa hanyalah makan, minum dan jima’ (hubungan intim). Lihat Fath Al-Bari, 4: 117.
 
-- [ ] 9 Ramadhan
-
-___ 
+- [x] 9 Ramadhan
 
 ### 10. Syafaat Bagi Pembacanya
 
@@ -114,12 +112,11 @@ Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan 
 
 read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
 
-- [ ] 10 Ramadhan
-
-___
+- [x] 10 Ramadhan
 
 ### 11. Pintu Surga Khusus Orang Yang Berpuasa
 
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 "Sesungguhnya di surga ada pintu yang dinamakan Ar-Rayyan. Orang-orang yang berpuasa di hari kiamat masuk dari pintu itu. Tidak dibolehkan seorang pun memasukinya selain mereka..."
 
 HR. Bukhari, 1763. Muslim, 1947
@@ -128,9 +125,7 @@ Dinukil dari laman Islamqa dalam artikel "Orang yang Berpuasa Akan Dipanggil Dar
 
 read more : https://islamqa.info/id/answers/13934/orang-yang-berpuasa-akan-dipanggil-dari-pintu-ar-rayyan
 
-- [ ] 11 Ramadhan 
-
-___ 
+- [x] 11 Ramadhan 
 
 ### 12. Tetap Membaca Al-Quran
 
