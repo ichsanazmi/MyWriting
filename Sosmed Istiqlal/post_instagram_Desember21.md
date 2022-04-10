@@ -2,62 +2,34 @@
 
 ___
 
-### 1. Meski Seteguk Air
+### 1. Langkah Kaki yang menghapus Dosa
 
-Rasulullah -Shallallahu 'Alaihi wasallam- bersabda,
+Rasulullah shallallahu ‘alaihi wa sallam bersabda,
 
-"Sahur adalah makanan yang penuh berkah, Oleh karena itu, janganlah kalian meninggalkannya walaupun hanya dengan minum seteguk air, karena sesungguhnya Allah dan para malaikat bershalawat untuk orang-orang yang makan sahur"
+“Maukah kalian aku tunjukkan kepada suatu amal yang dapat menghapus kesalahan (dosa) dan meninggikan derajat?” Para sahabat menjawab, ”Ya, wahai Rasulullah.” Rasulullah bersabda, ”(Yaitu) menyempurnakan wudhu dalam kondisi sulit, banyaknya langkah menuju masjid, menunggu shalat setelah mendirikan shalat. Itulah ar-ribath (kebaikan yang banyak).”
 
-HR Ahmad, 3:12, di shahihkan Syaikh Syu'aib Al-Arnauth
+HR. Muslim no. 251
+Dinukil dari Muslim.or.id dalam artikel berjudul "Keutamaan Berjalan Menuju Masjid"
 
-Dinukil dari buku Ramadhan Bersama Nabi, karya Ustadz Muhammad Abduh Tuasikal -hafizhahullah-
+read more : https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
 
 - [ ] 1-12-21
 
 ___
 
-### 2. Kemuliaan Ramadhan
-
-Rasulullah -shallallahu 'alaihi wasallam bersabda,
-"Jika telah datang bulan Ramadhan, pintu-pintu surga dibuka, pintu-pintu neraka ditutup, dan setan-setan terbelenggu"
-
-Mutafaqqun 'Alaihi
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Ramadhan Tiba Pintu-Pintu Surga Terbuka"
-
-read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html
+### 2.
 
 - [ ] 2-12-21
 
 ___
 
-### 3. Keutamaan Puasa Syawwal
-
-Rasulullah -Shallallahu 'alahi wasallam- bersabda,
-"Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
-
-HR. Muslim No. 1164
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Puasa Sunnah 6 Hari Di Bulan Syawwal"
-
-read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-syawwal.html
+### 3.
 
 - [ ] 3-12-21
 
 ___
 
-### 4. Kemungkinan Besar Datangnya Malam Lailatul Qadar
-
-Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
-"Demi Allah aku tahu kapan malam itu, yaitu malam yang kita diperintahkan oleh Rasulullah untuk menghidupkannya, yaitu malam kedua puluh tujuh”
-HR. Muslim
-
-Syaikh Muhammah bin Shalih Al-‘Ustaimin menjelaskan,
-“Malam ke-27 adalah malam yang paling diharapkan sebagai malam lailatul qadar, sebagaimana pada hadits Ubay bin Ka’ab radhiallahu ‘anhu”. 
-http://www.alukah.net/sharia/0/58346
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-27 Adalah Malam Lailatul Qadar"
-
-read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
+### 4.
 
 - [ ] 6-12-21
 

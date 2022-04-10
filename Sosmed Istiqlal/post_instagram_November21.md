@@ -308,32 +308,12 @@ selengkapnya : https://muslimafiyah.com/tata-cara-berbuka-puasa.html
 
 ___
 
-### 21. Berdoa dan Meminta Ampun Pada Waktu Sahur
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Rabb kita Tabaaraka wa Ta’ala turun ke langit dunia pada sepertiga malam terakhir. Kemudian Allah berfirman, “Siapa saja yang berdoa kepada-Ku, maka akan Aku kabulkan. Siapa yang meminta kepada-Ku, maka akan Aku penuhi. Siapa yang meminta ampunan kepada-Ku, maka akan Aku ampuni.”
-
-HR. Bukhari Muslim
-
-Dinukil dari laman Muslim.or.id dari artikel berjudul "Do'a Sepanjang Ramadhan"
-
-read more : https://muslim.or.id/63336-doa-sepanjang-ramadhan.html
+### 21.
 
 - [ ] 29-11-21
 
 ___
 
-### 22. Shalat Semalam Penuh
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Siapa yang shalat bersama imam sampai ia selesai, maka ditulis untuknya pahala qiyam satu malam penuh"
-
-HR. Tirmidzi no. 806 dishahihkan At-Tirmidzi dan Syaikh Al-Albani
-
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Ikutilah Imam Shalat Tarawih 23 Rakaat Hingga Selesai"
-
-read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hingga-selesai.html
+### 22.
 
 - [ ] 30-11-21

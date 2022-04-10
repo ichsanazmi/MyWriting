@@ -137,7 +137,7 @@ Dinukil dari laman KonsultasiSyariah dalam artikel yang berjudul "Keutamaan dan 
 
 read more : https://konsultasisyariah.com/12884-keutamaan-dan-motivasi-membaca-alquran-di-bulan-ramadhan.html
 
-- [ ] 12 Ramadhan
+- [x] 12 Ramadhan
 
 ### 13. Berdoa dan Meminta Ampun Pada Waktu Sahur
 
@@ -179,21 +179,7 @@ read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan
 
 - [ ] 15 Ramadhan
 
-### 16. Memperbanyak Do'a Di Ramadhan
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Ada tiga doa yang tidak tertolak. Doanya orang yang berpuasa hingga ia berbuka, doanya pemimpin yang adil dan doanya orang yang terzhalimi"
-
-HR. Tirmidzi, Dishahihkan oleh Syaikh Al-Albani
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketika Berbuka Puasa"
-
-read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
-
-- [ ] 16 Ramadhan
-
-### 17. Dua Kebahagiaan
+### 16. Dua Kebahagiaan
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -207,22 +193,21 @@ read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
 penjelasan : https://youtu.be/ZtgAVjW--g0
 
+- [ ] 16 Ramadhan
+
+### 17.
+
 - [ ] 17 Ramadhan
 
-### 18. Sebagaimana Pahala Orang Itu
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Siapa memberi makan orang yang berpuasa, maka baginya pahala seperti orang yang berpuasa tersebut, tanpa mengurangi pahala orang yang berpuasa itu sedikit pun juga"
-
-HR. Tirmidzi No. 807, At-Tirmidzi berkata hadits ini Hasan Shahih
-Dinukil dari laman Rumaysho dalam artikel yang berjudul "Pahala Besar di Balik Memberi Makan Berbuka"
-
-read more : https://rumaysho.com/1147-pahala-besar-di-balik-memberi-makan-berbuka.html
+### 18.
 
 - [ ] 18 Ramadhan
 
-### 19. Bersemangat di Waktu Yang Tersisa
+### 19.
+
+- [ ] 19 Ramadhan
+
+### 20. Bersemangat di Waktu Yang Tersisa
 
 Ummul Mu'minin 'Aisyah -Radhiallahu Anha- berkata,
 
@@ -232,22 +217,9 @@ HR. Muslim
 
 Dinukil dari laman Muslim.or.id dari artikel yang berjudul "Lailatul Qadar dan I'tikaf"
 
-Read more : [Lailatul Qadar dan I&#039;tikaf](https://muslim.or.id/356-lailatul-qadar-dan-itikaf.html)
+Read more : https://muslim.or.id/356-lailatul-qadar-dan-itikaf.html
 
-- [ ] 19 Ramadhan
-
-### 20. Langkah Kaki yang menghapus Dosa
-
-Rasulullah shallallahu ‘alaihi wa sallam bersabda,
-
-“Maukah kalian aku tunjukkan kepada suatu amal yang dapat menghapus kesalahan (dosa) dan meninggikan derajat?” Para sahabat menjawab, ”Ya, wahai Rasulullah.” Rasulullah bersabda, ”(Yaitu) menyempurnakan wudhu dalam kondisi sulit, banyaknya langkah menuju masjid, menunggu shalat setelah mendirikan shalat. Itulah ar-ribath (kebaikan yang banyak).”
-
-HR. Muslim no. 251
-Dinukil dari Muslim.or.id dalam artikel berjudul "Keutamaan Berjalan Menuju Masjid"
-
-read more : https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
-
-- [x] 20 Ramadhan // repost september '20
+- [ ] 20 Ramadhan // repost september '20
 
 ### 21.Do'a Ampunan di Lailatul Qadar
 
