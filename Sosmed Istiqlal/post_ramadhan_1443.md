@@ -199,7 +199,17 @@ penjelasan : https://youtu.be/ZtgAVjW--g0
 
 - [ ] 17 Ramadhan
 
-### 18.
+### 18. Untitled
+
+Jangan menunda taubat..
+Jangan beralasan masih muda..
+Di pemakaman tak tertulis di sana "khusus orang tua"
+
+Ustadz Aris Munandar -hafizhahullah-
+
+Dinukil dari status facebook beliau
+
+sumber : https://www.facebook.com/arismunandarjogja/posts/474342129418594
 
 - [ ] 18 Ramadhan
 

@@ -110,7 +110,15 @@ read more : https://muslim.or.id/63336-doa-sepanjang-ramadhan.html
 
 - [ ] 10-3-22
 
-### 9.
+### 9. Untitled
+
+Ketika anda terlalu berharap pada seseorang, Allah akan timpakan kepadamu pedihnya sebuah pengharapan supaya anda mengetahui betapa Allah mencemburui terhadap hati yang berharap kepada selain Dia. Oleh karena itu sering kali Allah akan menghalangimu untuk mendapatkan harapan tersebut agar anda kembali berharap kepada-Nya.
+
+Ustadz Aris Munandar -hafizhahullah-
+
+Dinukil dari status facebook beliau 
+
+sumber : https://www.facebook.com/arismunandarjogja/posts/474339652752175
 
 - [ ] 11-3-22
 
