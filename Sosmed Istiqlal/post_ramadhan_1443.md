@@ -195,7 +195,16 @@ penjelasan : https://youtu.be/ZtgAVjW--g0
 
 - [ ] 16 Ramadhan
 
-### 17.
+### 17. UNtitled
+
+Al-Imaam Asy-Syafi'iy -rahimahullah- berkata,
+
+"Seandainya engkau mengerahkan segala kemampuanmu agar semua orang meridlaimu, tidaklah mungkin. Maka ikhlashkan amalan dan niatmu hanya untuk Allah 'azza wa jalla semata"
+Al-Majmuu' lin-Nawawiy, 1/31
+
+Dinukil dari status Ustadz Dony Arif Wibowo -hafizhahullah-
+
+Sumber : https://www.facebook.com/donyarif.wibowo.12/posts/1386018835215937
 
 - [ ] 17 Ramadhan
 
@@ -221,7 +230,7 @@ sumber : https://www.facebook.com/arismunandarjogja/posts/474342129418594
 
 Ummul Mu'minin 'Aisyah -Radhiallahu Anha- berkata,
 
-Rasulullah -shallallahu ‘alaihi wa sallam- sangat bersungguh-sungguh pada sepuluh hari terakhir dari bulan Ramadhan, melebihi kesungguhan beliau di waktu yang lainnya.”
+"Rasulullah -shallallahu ‘alaihi wa sallam- sangat bersungguh-sungguh pada sepuluh hari terakhir dari bulan Ramadhan, melebihi kesungguhan beliau di waktu yang lainnya.”
 
 HR. Muslim
 

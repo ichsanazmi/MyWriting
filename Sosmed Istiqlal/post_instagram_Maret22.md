@@ -96,17 +96,7 @@ read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hi
 
 - [ ] 9-3-22
 
-### 8. Berdoa dan Meminta Ampun Pada Waktu Sahur
-
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
-
-"Rabb kita Tabaaraka wa Ta’ala turun ke langit dunia pada sepertiga malam terakhir. Kemudian Allah berfirman, “Siapa saja yang berdoa kepada-Ku, maka akan Aku kabulkan. Siapa yang meminta kepada-Ku, maka akan Aku penuhi. Siapa yang meminta ampunan kepada-Ku, maka akan Aku ampuni.”
-
-HR. Bukhari Muslim
-
-Dinukil dari laman Muslim.or.id dari artikel berjudul "Do'a Sepanjang Ramadhan"
-
-read more : https://muslim.or.id/63336-doa-sepanjang-ramadhan.html
+### 8.
 
 - [ ] 10-3-22
 
