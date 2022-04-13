@@ -195,7 +195,7 @@ penjelasan : https://youtu.be/ZtgAVjW--g0
 
 - [ ] 16 Ramadhan
 
-### 17. UNtitled
+### 17. Memperbaiki Niat dan Amal
 
 Al-Imaam Asy-Syafi'iy -rahimahullah- berkata,
 
@@ -208,21 +208,31 @@ Sumber : https://www.facebook.com/donyarif.wibowo.12/posts/1386018835215937
 
 - [ ] 17 Ramadhan
 
-### 18. Untitled
+### 18. Sebelum Terlambat
 
-Jangan menunda taubat..
-Jangan beralasan masih muda..
+Jangan menunda taubat
+Jangan beralasan masih muda
 Di pemakaman tak tertulis di sana "khusus orang tua"
 
 Ustadz Aris Munandar -hafizhahullah-
 
-Dinukil dari status facebook beliau
+Dinukil dari status facebook beliau dengan sedikit penyesuaian
 
 sumber : https://www.facebook.com/arismunandarjogja/posts/474342129418594
 
 - [ ] 18 Ramadhan
 
-### 19.
+### 19. Untitled
+
+Uwais al-Qarni -rahimahullah- berkata,
+
+"Jika engkau berdiri, maka berdoalah kepada Allah agar Dia memperbaiki hatimu dan niatmu, karena engkau tidak mengatasi sesuatu yang lebih sulit daripada keduanya"
+
+Shifatush Shofwah 2/31
+
+Dinukil dari telegram Wawasan Ilmu dengan sedikit penyesuaian
+
+sumber : https://t.me/wawasan_muslim/11824
 
 - [ ] 19 Ramadhan
 
