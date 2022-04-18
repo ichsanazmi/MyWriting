@@ -163,10 +163,12 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
 
 source : https://www.facebook.com/story.php?story_fbid=3857932424274366&id=100001729388129
 
-- [ ] 14 Ramadhan
+- [x] 14 Ramadhan
 
 ### 15. Menghindari Cacian dan Perkelahian
+
 ___
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Jika ada seseorang yang mencacimu dan berbuat usil kepadamu, maka ucapkanlah, Saya sedang berpuasa, saya sedang berpuasa.”
@@ -176,10 +178,12 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Beberapa Kesalahan 
 
 read more : https://muslim.or.id/39999-beberapa-kesalahan-yang-tersebar-di-bulan-ramadhan-bag-2.html
 
-- [ ] 15 Ramadhan
+- [x] 15 Ramadhan
 
 ### 16. Dua Kebahagiaan
+
 ___
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 "Bagi orang yang berpuasa ada dua kebahagiaan. Kebahagiaan ketika ia berbuka dan kebahagiaan ketika ia bertemu Rabb-Nya"
@@ -192,10 +196,12 @@ read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
 penjelasan : https://youtu.be/ZtgAVjW--g0
 
-- [ ] 16 Ramadhan
+- [x] 16 Ramadhan
 
 ### 17. Memperbaiki Niat dan Amal
+
 ___
+
 Al-Imaam Asy-Syafi'iy -rahimahullah- berkata,
 
 "Seandainya engkau mengerahkan segala kemampuanmu agar semua orang meridlaimu, tidaklah mungkin. Maka ikhlashkan amalan dan niatmu hanya untuk Allah 'azza wa jalla semata"
@@ -205,10 +211,12 @@ Dinukil dari status Ustadz Dony Arif Wibowo -hafizhahullah-
 
 Sumber : https://www.facebook.com/donyarif.wibowo.12/posts/1386018835215937
 
-- [ ] 17 Ramadhan
+- [x] 17 Ramadhan
 
 ### 18. Sebelum Terlambat
+
 ___
+
 Jangan menunda taubat
 Jangan beralasan masih muda
 Di pemakaman tak tertulis di sana "khusus orang tua"
@@ -219,9 +227,9 @@ Dinukil dari status facebook beliau dengan sedikit penyesuaian
 
 sumber : https://www.facebook.com/arismunandarjogja/posts/474342129418594
 
-- [ ] 18 Ramadhan
+- [x] 18 Ramadhan
 
-### 19. Untitled
+### 19. Memperbaiki Hati dan Niat
 
 Uwais al-Qarni -rahimahullah- berkata,
 
@@ -233,7 +241,7 @@ Dinukil dari telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 sumber : https://t.me/wawasan_muslim/11824
 
-- [ ] 19 Ramadhan
+- [x] 19 Ramadhan
 
 ### 20. Bersemangat di Waktu Yang Tersisa
 

@@ -1,4 +1,4 @@
-# Post Instagram November 21
+# Post Instagram November 21 (-6)
 
 ___
 
@@ -193,7 +193,7 @@ read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
 
 ___
 
-### 14. Untitled
+### 14. Sumber Ketidakbahagiaan
 
 Salah satu sumber ketidakbahagiaan adalah ketika kita menjadikan kebahagiaan orang lain sebagai ukuran.
 

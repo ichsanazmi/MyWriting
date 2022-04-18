@@ -12,7 +12,7 @@ HR Ahmad, 3:12, di shahihkan Syaikh Syu'aib Al-Arnauth
 
 Dinukil dari buku Ramadhan Bersama Nabi, karya Ustadz Muhammad Abduh Tuasikal -hafizhahullah-
 
-- [ ] 1-3-22
+- [x] 1-3-22
 
 ### 2. Kemuliaan Ramadhan
 
@@ -24,7 +24,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Ramadhan Tiba Pintu
 
 read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html
 
-- [ ] 2-3-22
+- [x] 2-3-22
 
 ### 3. Keutamaan Puasa Syawwal
 
@@ -67,7 +67,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sunnah-Sunnah Ketik
 
 read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
-- [ ] 7-3-22
+- [x] 7-3-22
 
 ### 6. Sebagaimana Pahala Orang Itu
 
