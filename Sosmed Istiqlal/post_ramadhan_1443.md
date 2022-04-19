@@ -215,8 +215,6 @@ Sumber : https://www.facebook.com/donyarif.wibowo.12/posts/1386018835215937
 
 ### 18. Sebelum Terlambat
 
-___
-
 Jangan menunda taubat
 Jangan beralasan masih muda
 Di pemakaman tak tertulis di sana "khusus orang tua"
@@ -255,9 +253,9 @@ Dinukil dari laman Muslim.or.id dari artikel yang berjudul "Lailatul Qadar dan I
 
 Read more : https://muslim.or.id/356-lailatul-qadar-dan-itikaf.html
 
-- [ ] 20 Ramadhan // repost september '20
+- [x] 20 Ramadhan // repost september '20
 
-### 21.Do'a Ampunan di Lailatul Qadar
+### 21. Do'a Ampunan di Lailatul Qadar
 
 Aisyah -radhiallahu 'anha- beliau bertanya kepada Nabi -shallallahu 'alaihi wasallam-
 
@@ -270,7 +268,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Koreksi Do'a Lailatul Qadar"
 
 read more : https://rumaysho.com/499-koreksi-doa-lailatul-qadar.html
 
-- [ ] 21 Ramadhan
+- [x] 21 Ramadhan
 
 ### 22.
 

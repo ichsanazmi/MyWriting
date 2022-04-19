@@ -80,7 +80,7 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "Pahala Besar di Balik M
 
 read more : https://rumaysho.com/1147-pahala-besar-di-balik-memberi-makan-berbuka.html
 
-- [ ] 8-3-22
+- [x] 8-3-22
 
 ### 7. Shalat Semalam Penuh
 
@@ -94,7 +94,7 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "Ikutilah Imam Shalat Ta
 
 read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hingga-selesai.html
 
-- [ ] 9-3-22
+- [x] 9-3-22
 
 ### 8.
 
