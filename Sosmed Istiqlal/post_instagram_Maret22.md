@@ -39,19 +39,15 @@ read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-sya
 
 - [ ] 3-3-22
 
-### 4. Kemungkinan Besar Datangnya Malam Lailatul Qadar
+### 4. Untitled
 
-Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
-"Demi Allah aku tahu kapan malam itu, yaitu malam yang kita diperintahkan oleh Rasulullah untuk menghidupkannya, yaitu malam kedua puluh tujuh”
-HR. Muslim
+Ibnu Rajab Al-Hambali -rahimahullah- mengatakan,
 
-Syaikh Muhammah bin Shalih Al-‘Ustaimin menjelaskan,
-“Malam ke-27 adalah malam yang paling diharapkan sebagai malam lailatul qadar, sebagaimana pada hadits Ubay bin Ka’ab radhiallahu ‘anhu”. 
-http://www.alukah.net/sharia/0/58346
+"Membiasakan puasa setelah puasa Ramadhan merupakan tanda diterimanya amal puasa di bulan Ramadhan. Sesungguhnya Allah jika menerima suatu amal hamba, maka Allah beri ia taufik untuk melakukan amal shalih setelahnya." [1]
 
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-27 Adalah Malam Lailatul Qadar"
+Dinukil dari Muslim.or.id dalam artikel "Tanda Amalan di Bulan Ramadhan Diterima"
 
-read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
+sumber: https://muslim.or.id/30547-tanda-amalan-di-bulan-ramadhan-diterima.html
 
 - [ ] 4-3-22
 
@@ -96,7 +92,15 @@ read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hi
 
 - [x] 9-3-22
 
-### 8.
+### 8. Untitled
+
+Syaikh Shalih Al-Fauzan -hafidzahullah- berkata,
+
+“Diantara tanda diterimanya amal shalih di bulan Ramadhan adalah keadaan seorang muslim setelahnya menjadi lebih baik daripada sebelum Ramadhan, karena kebaikan akan mengajak kepada kebaikan (selanjutnya) dan amal shalih akan mengajak pada amal shalih lainnya.”[2]
+
+Dinukil dari Muslim.or.id dalam artikel "Tanda Amalan di Bulan Ramadhan Diterima"
+
+sumber: https://muslim.or.id/30547-tanda-amalan-di-bulan-ramadhan-diterima.html
 
 - [ ] 10-3-22
 
@@ -112,29 +116,68 @@ sumber : https://www.facebook.com/arismunandarjogja/posts/474339652752175
 
 - [ ] 11-3-22
 
-### 10.
+### 10. Untitled
+
+Ibnul Qayyim -rahimahullah- berkata,
+
+"Barang siapa yang menjaga perintah Allah Azza wa Jalla ketika kuat dan masih muda, maka Allah Azza wa Jalla akan menjaganya ketika ia telah tua dan sudah lemah."
+
+Shifatush Shofwah 1/560
+
+Dinukil dari kanal telegram Wawasan Ilmu dengan perubahan judul
+
+sumber : https://t.me/wawasan_muslim/11954
 
 - [ ] 14-3-22
 
-### 11.
+### 11. Untitled
+
+Bimbing anak-anak memilih hobi agar mereka jangan salah dan tidak berlebihan, betapa banyak orang dewasa sangat sulit lepas dari hobinya dan menjadi penyebab dia jauh dari Agama.
+
+Ustadz Musa Mulyadi Luqman
+
+Dinukil dari facebook beliau hafizhahullah dengan sedikit penyesuaian.
+
+sumber : https://www.facebook.com/musamulyadi/posts/4932804093453855
 
 - [ ] 15-3-22
 
-____
+### 12. Istiqamahlah Selepas Bulan Ramadhan
 
-### 12.
+Para ulama’ mengatakan,
+
+“Sesungguhnya diantara alamat diterimanya kebaikan adalah kebaikan selanjutnya”
+
+Dinukil dari Muslim.or.id dalam artikel "Bukan Pura-Pura Bersedih Pada Perpisahan Dengan Ramadhan"
+
+sumber : https://muslim.or.id/30564-bukan-pura-pura-bersedih-pada-perpisahan-dengan-ramadhan.html
 
 - [ ] 16-3-22
 
 ___
 
-### 13.
+### 13. Iedul Fitri
+
+Dari ‘Abdullah bin Buraidah, dari ayahnya, ia berkata,
+“Rasulullah -shallallahu ‘alaihi wa sallam- biasa berangkat shalat Id pada hari Idulfitri dan sebelumnya beliau makan terlebih dahulu. Sedangkan pada hari Iduladha, beliau tidak makan lebih dulu kecuali setelah pulang dari shalat Id baru beliau menyantap hasil qurbannya.”
+
+HR. Ahmad, 5:352. Syaikh Syu’aib Al-Arnauth mengatakan bahwa hadits ini hasan
+
+Dinukil dari Ebook Fikih Lebaran Karya Ustadz Muhammad Abduh Tuasikal
 
 - [ ] 17-3-22
 
 ___
 
-### 14.
+### 14. Untitled
+
+Dari Jabir -radhiyallahu ‘anhu- , 
+
+ia berkata bahwa Nabi -shallallahu ‘alaihi wasallam- ketika berada di hari Id (ingin pergi ke tempat shalat), beliau membedakan jalan antara pergi dan pulang. 
+
+HR. Bukhari, no. 986
+
+Dinukil dari Ebook Fikih Lebaran Karya Ustadz Muhammad Abduh Tuasikal
 
 - [ ] 18-3-22
 

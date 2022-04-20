@@ -270,7 +270,11 @@ read more : https://rumaysho.com/499-koreksi-doa-lailatul-qadar.html
 
 - [x] 21 Ramadhan
 
-### 22.
+### 22. Datang & Pergi
+
+Ramadhan telah datang dan sebentar lagi akan pergi. Dan bisa jadi kelak ia kembali datang, tetapi kita telah pergi. 
+
+Bersemangatlah. Banyak waktu yg berlalu, tapi masih ada yang tersisa
 
 - [ ] 22 Ramadhan
 
@@ -295,61 +299,35 @@ Dinukil dari buku Manusia Paling Bahagia di Bulan Ramadhan karya 'Abdurrahman al
 
 - [ ] 24 Ramadhan
 
-### 25.
-
-- [ ] 25 Ramadhan
-
-### 26. Khawatir Akan Tidak Diterimanya Amalan
-
-Ibnu Rajab -Rahimahullah- berkata,
-
-"Sebagian salaf menampakkan kesedihan pada hari idul fitri, kemudian dikatakan pada mereka: ‘Hari ini adalah hari kegembiraan dan kesenangan’!"
-
-Mereka menjawab: ‘Kalian benar, akan tetapi aku hanyalah seorang hamba yang diperintahkan oleh Rabb agar beramal. Aku tidak tahu apakah Rabb menerima amalku atau tidak‘”. 
-
-Latha-if Al-Ma’arif 1/209
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sedih Apabila Amalan Tidak Diterima di Bulan Ramadhan"
-
-read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
-
-- [ ] 26 Ramadhan
-
----
-
-### 27. Ampunan Pada Malam Lailatul Qadar
-
----
+### 25. Ampunan Pada Malam Lailatul Qadar
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
 Barangsiapa yang berdiri (menunaikan shalat) pada malam Lailatul Qadar dengan 
 (penuh) keimanan dan pengharapan (pahala), maka dosa-dosanya yang telah 
-lalu akan diampuni. 
+lalu akan diampuni.
 
 HR. Bukhari & Muslim
 
-Dinukil dari laman Muslim.or.id dari artikel berjudul "Semoga Kita Diampuni Selama Ramadhan"
+Dinukil dari Muslim.or.id dari artikel "Semoga Kita Diampuni Selama Ramadhan"
 
 Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
-- [ ] 27 Ramadhan
+- [ ] 25 Ramadhan
 
----
+### 26. Membaca Al-Quran di Malam Hari
 
-### 28.
+Imam Ibnu Rajab -rahimahullah- berkata,
+"Dalam hadits Ibnu Abbas yang menyebutkan tadarus Nabi -shallallahu alaihi wa sallam- dengan malaikat Jibril -alaihis salam- di malam hari menunjukkan, dianjurkannya banyak membaca Al Quran di bulan Ramadhan pada malam hari, karena di malam hari tidak ada lagi kesibukan, perhatian lebih fokus, hati dan lisan menyatu untuk tadabbur (merenungi) sebagaimana firman Allah Ta'ala, "Sesungguhnya bangun di malam hari lebih lebih tepat untuk khusyu dan bacaan di waktu itu lebih berkesan." (QS. Al Muzzammil: 6)
 
-- [ ] 28 Ramadhan
+Latha'iful Ma'arif hal. 315.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyuntingan
 
----
+read more : https://t.me/wawasan_muslim/8513
 
-### 30.
+- [ ] 26 Ramadhan
 
-- [ ] 29 Ramadhan
-
----
-
-### 31. Kemungkinan Besar Datangnya Malam Lailatul Qadar
+### 27. Kemungkinan Besar Datangnya Malam Lailatul Qadar
 
 Ubay ibn Ka'ab -Radhiallahu 'anhu- pernah berkata,
 "Demi Allah aku tahu kapan malam itu, yaitu malam yang kita diperintahkan oleh Rasulullah untuk menghidupkannya, yaitu malam kedua puluh tujuh”
@@ -362,6 +340,51 @@ http://www.alukah.net/sharia/0/58346
 Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-27 Adalah Malam Lailatul Qadar"
 
 read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
+
+- [ ] 27 Ramadhan
+
+---
+
+### 28.  Untitled
+
+Nabi Ibrahim -Alaihissalam- membangun ka’bah rumah Allah dan itupun atas perintah Allah, akan tetapi beliau tetap berdoa dan memohon agar amalnya diterima oleh Allah
+
+Beliau berdoa,
+
+ﺭَﺑَّﻨَﺎ ﺗَﻘَﺒَّﻞْ ﻣِﻨَّﺎ ﺇِﻧَّﻚَ ﺃَﻧْﺖَ ﺍﻟﺴَّﻤِﻴﻊُ ﺍﻟْﻌَﻠِﻴﻢُ
+
+“Ya Allah, terimalah amal kami. Sesungguhnya Engkau Maha Mendengar lagi Maha Mengetahui.” (QS. Al-
+Baqarah: 127).
+
+Tentunya kita yang bukan Nabi dan tidak mendapatkan wahyu, tentu lebih layak berdoa dan memohon agar amal kita diterima.
+
+Dinukil dari Muslim.or.id dalam artikel "Tanda Amalan di Bulan Ramadhan Diterima" dengan sedikit perubahan
+
+Sumber : https://muslim.or.id/30547-tanda-amalan-di-bulan-ramadhan-diterima.html
+
+- [ ] 28 Ramadhan
+
+---
+
+### 29. Khawatir Akan Tidak Diterimanya Amalan
+
+Ibnu Rajab -Rahimahullah- berkata,
+
+"Sebagian salaf menampakkan kesedihan pada hari idul fitri, kemudian dikatakan pada mereka: ‘Hari ini adalah hari kegembiraan dan kesenangan’!"
+
+Mereka menjawab: ‘Kalian benar, akan tetapi aku hanyalah seorang hamba yang diperintahkan oleh Rabb agar beramal. Aku tidak tahu apakah Rabb menerima amalku atau tidak‘”.
+
+Latha-if Al-Ma’arif 1/209
+
+Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sedih Apabila Amalan Tidak Diterima di Bulan Ramadhan"
+
+read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
+
+- [ ] 29 Ramadhan
+
+---
+
+### 30.
 
 - [ ] 30 Ramadhan
 

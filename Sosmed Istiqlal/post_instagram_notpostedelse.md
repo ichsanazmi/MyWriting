@@ -34,17 +34,7 @@ yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah- dengan sedikit penyesu
 
 read more : https://muslimafiyah.com/ini-alasan-kenapa-doa-keluar-wc-meminta-ampun.html
 
-### 3. Untitled
-
-Bimbing anak-anak memilih hobi agar mereka jangan salah dan tidak berlebihan, betapa banyak orang dewasa sangat sulit lepas dari hobinya dan menjadi penyebab dia jauh dari Agama.
-
-Ustadz Musa Mulyadi Luqman
-
-Dinukil dari facebook beliau hafizhahullah dengan sedikit penyesuaian.
-
-sumber : https://www.facebook.com/musamulyadi/posts/4932804093453855
-
-### 4. Ghibah
+### 3. Ghibah
 
 Hai orang-orang yang beriman, jauhilah kebanyakan prasangka, karena sebagian dari prasangka itu dosa. Dan janganlah mencari-cari keburukan orang. Jangan pula menggunjing satu sama lain. Adakah seorang di antara kamu yang suka memakan daging saudaranya yang sudah mati? Maka tentulah kamu merasa jijik kepadanya. dan bertakwalah kepada Allah. Sesungguhnya Allah Maha Penerima taubat lagi Maha Penyayang.
 
@@ -53,11 +43,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi ya
 
 read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
 
-### 5.
-
-### 6.
-
-### 7. Keutamaan Menyebarkan Ilmu
+### 4. Keutamaan Menyebarkan Ilmu
 
 Rasulullah -Shallallahu ‘alaihi wa sallam- bersabda kepada ‘Ali,
 Demi Allah, sungguh satu orang saja diberi petunjuk (oleh Allah) melalui perantaraanmu, maka itu lebih baik dari unta merah
@@ -70,37 +56,67 @@ Miftah Daar As-Sa’adah, 1:247
 Dinukil dari laman Rumaysho dalam artikel berjudul "Lebih dari 100 Keutamaan Orang Berilmu dari Kitab Miftah Daar As-Saadah"
 read more : https://rumaysho.com/29364-lebih-dari-100-keutamaan-orang-berilmu-dari-kitab-miftah-daar-as-saadah.html
 
-### 8. Tak Sesuai Dengan Lisan
+### 5. Tak Sesuai Dengan Lisan
 
 Tiap hari di Al-Fatihah, minta agar dijauhkan dr jalan kaum Yahudi & Nasrani
 Tp lisan yg sama, ikut²an mengatakan selamat hari raya mereka, pantaskah?
 
-Ustadz Musyaffa' ad-Dariny 
+Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 9.
+### 6. Pionir Kebaikan
 
-### 10. Membaca Al-Quran di Malam Hari (ramadhan)
+Rasulullah -shallallahu ’alaihi wa sallam- bersabda,
 
-Imam Ibnu Rajab -rahimahullah- berkata,
-"Dalam hadits Ibnu Abbas yang menyebutkan tadarus Nabi -shallallahu alaihi wa sallam- dengan malaikat Jibril -alaihis salam- di malam hari menunjukkan, dianjurkannya banyak membaca Al Quran di bulan Ramadhan pada malam hari,  karena di malam hari tidak ada lagi kesibukan, perhatian lebih fokus,  hati dan lisan menyatu untuk tadabbur (merenungi) sebagaimana firman Allah Ta'ala, "Sesungguhnya bangun di malam hari lebih lebih tepat untuk khusyu dan bacaan di waktu itu lebih berkesan." (QS.  Al Muzzammil: 6) 
+“Barangsiapa melakukan suatu amalan kebaikan lalu diamalkan oleh orang sesudahnya, maka akan dicatat baginya ganjaran semisal ganjaran orang yang mengikutinya dan sedikitpun tidak akan mengurangi ganjaran yang mereka peroleh. Sebaliknya, barangsiapa melakukan suatu amalan kejelekan lalu diamalkan oleh orang sesudahnya, maka akan dicatat baginya dosa semisal dosa orang yang mengikutinya, tanpa mengurangi dosanya sedikit pun.”
 
-Latha'iful Ma'arif hal. 315.
-Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyuntingan
+HR. Muslim, no. 1017
+Dinukil dari Rumaysho.com dalam artikel berjudul "Bulughul Maram Akhlak Menjadi Pionir Kebaikan"
 
-read more : https://t.me/wawasan_muslim/8513
+read more : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 
-### 11. Untitled
+### 7. Untitled (ganti judul)
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+
+"Jika Allah menghendaki kebaikan pada diri seorang hamba, Allah akan memperkerjakannya sebelum ia mati"
+
+para sahabat bertanya, "Wahai Rasulullah, bagaimana Allah memperkerjakannya?"
+
+beliau menjawab, "Allah akan membimbingnya untuk mengerjakan amal shalih, kemudia Allah akan mencabut nyawanya saat ia tengah mengerjakan amal shalih tersebut."
+
+HR. Tirmidzi no. 2142,2229
+
+Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
+
+read more : https://www.facebook.com/umf.muhamadfajri/posts/1647896375562572
+
+### 8. Mengenal Hakikat Dunia
+
+Nasihat Ibnu Abi al-Hawariy -rahimahullah- :
+"Siapa saja yang mengenal hakikat dunia ini maka dia akan zuhud di dalamnya, dan siapa saja yang mengenal hakikat Akhirat maka dia akan menginginkannya, dan siapa saja yang mengenal Allah dia akan mendahulukan ridla-Nya"
+
+Albidayah Wannihayah 11/202
+
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
+
+read more : https://www.facebook.com/musamulyadi/posts/4660433957357538
+
+### 9. Untitled
 
 Sa'id bin Al-Musayyib -rahimahullah- berkata,
 
-"Usiaku telah delapan puluh tahun dan tidak ada yang paling aku takutkan selain dari fitnah perempuan" Ketika itu penglihatan beliau hampir hilang 
+"Usiaku telah delapan puluh tahun dan tidak ada yang paling aku takutkan selain dari fitnah perempuan" Ketika itu penglihatan beliau hampir hilang
 
 Ibnu Sa'd dalam kitab Al-Thabaqat. 6948.
 Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan sedikit penyesuaian.
 
 read more : https://www.facebook.com/musamulyadi/posts/4671457482921852
+
+### 10.
+
+### 11.
 
 ### 12.
 
@@ -112,15 +128,7 @@ read more : https://www.facebook.com/musamulyadi/posts/4671457482921852
 
 ### 16.
 
-### 17. Mengenal Hakikat Dunia
-
-Nasihat Ibnu Abi al-Hawariy -rahimahullah- :
-"Siapa saja yang mengenal hakikat dunia ini maka dia akan zuhud di dalamnya, dan siapa saja yang mengenal hakikat Akhirat maka dia akan menginginkannya, dan siapa saja yang mengenal Allah dia akan mendahulukan ridla-Nya"
-
-Albidayah Wannihayah 11/202.
-Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/musamulyadi/posts/4660433957357538
+### 17.
 
 ### 18.
 
@@ -136,20 +144,7 @@ read more : https://www.facebook.com/musamulyadi/posts/4660433957357538
 
 ### 24.
 
-### 25. Untitled (ganti judul)
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-
-"Jika Allah menghendaki kebaikan pada diri seorang hamba, Allah akan memperkerjakannya sebelum ia mati"
-
-para sahabat bertanya, "Wahai Rasulullah, bagaimana Allah memperkerjakannya?"
-
-beliau menjawab, "Allah akan membimbingnya untuk mengerjakan amal shalih, kemudia Allah akan mencabut nyawanya saat ia tengah mengerjakan amal shalih tersebut."
-
-HR. Tirmidzi no. 2142,2229
-Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
-
-read more : https://www.facebook.com/umf.muhamadfajri/posts/1647896375562572
+### 25.
 
 ### 26.
 
@@ -159,13 +154,4 @@ read more : https://www.facebook.com/umf.muhamadfajri/posts/1647896375562572
 
 ### 29.
 
-### 30. Pionir Kebaikan
-
-Rasulullah -shallallahu ’alaihi wa sallam- bersabda,
-
-“Barangsiapa melakukan suatu amalan kebaikan lalu diamalkan oleh orang sesudahnya, maka akan dicatat baginya ganjaran semisal ganjaran orang yang mengikutinya dan sedikitpun tidak akan mengurangi ganjaran yang mereka peroleh. Sebaliknya, barangsiapa melakukan suatu amalan kejelekan lalu diamalkan oleh orang sesudahnya, maka akan dicatat baginya dosa semisal dosa orang yang mengikutinya, tanpa mengurangi dosanya sedikit pun.”
-
-HR. Muslim, no. 1017
-Dinukil dari Rumaysho.com dalam artikel berjudul "Bulughul Maram Akhlak Menjadi Pionir Kebaikan"
-
-read more : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
+### 30.
