@@ -276,7 +276,7 @@ Ramadhan telah datang dan sebentar lagi akan pergi. Dan bisa jadi kelak ia kemba
 
 Bersemangatlah. Banyak waktu yg berlalu, tapi masih ada yang tersisa
 
-- [ ] 22 Ramadhan
+- [x] 22 Ramadhan
 
 ### 23. Tak Terluput Dari Hari Yang Tersisa
 
@@ -289,7 +289,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-2
 
 read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
 
-- [ ] 23 Ramadhan
+- [x] 23 Ramadhan
 
 ### 24. Belajar Ikhlas
 
@@ -297,7 +297,7 @@ Puasa melatih anda bagaimana mengarahkan cercaan kepada diri sendiri. puasa pun 
 
 Dinukil dari buku Manusia Paling Bahagia di Bulan Ramadhan karya 'Abdurrahman al-Yahya, terbitan Pustaka Ibnu Umar
 
-- [ ] 24 Ramadhan
+- [x] 24 Ramadhan
 
 ### 25. Ampunan Pada Malam Lailatul Qadar
 
@@ -313,7 +313,7 @@ Dinukil dari Muslim.or.id dari artikel "Semoga Kita Diampuni Selama Ramadhan"
 
 Read More : https://muslim.or.id/47161-semoga-kita-diampuni-selama-ramadhan.html
 
-- [ ] 25 Ramadhan
+- [x] 25 Ramadhan
 
 ### 26. Membaca Al-Quran di Malam Hari
 
