@@ -325,7 +325,7 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyuntingan
 
 read more : https://t.me/wawasan_muslim/8513
 
-- [ ] 26 Ramadhan
+- [x] 26 Ramadhan
 
 ### 27. Kemungkinan Besar Datangnya Malam Lailatul Qadar
 
@@ -341,11 +341,11 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Benarkah Malam ke-2
 
 read more : https://muslim.or.id/40287-benarkah-malam-ke-27-adalah-malam-lailatul-qadar.html
 
-- [ ] 27 Ramadhan
+- [x] 27 Ramadhan
 
 ---
 
-### 28.  Untitled
+### 28.  Selalu Memohon Agar Amal Diterima
 
 Nabi Ibrahim -Alaihissalam- membangun ka’bah rumah Allah dan itupun atas perintah Allah, akan tetapi beliau tetap berdoa dan memohon agar amalnya diterima oleh Allah
 
@@ -353,8 +353,7 @@ Beliau berdoa,
 
 ﺭَﺑَّﻨَﺎ ﺗَﻘَﺒَّﻞْ ﻣِﻨَّﺎ ﺇِﻧَّﻚَ ﺃَﻧْﺖَ ﺍﻟﺴَّﻤِﻴﻊُ ﺍﻟْﻌَﻠِﻴﻢُ
 
-“Ya Allah, terimalah amal kami. Sesungguhnya Engkau Maha Mendengar lagi Maha Mengetahui.” (QS. Al-
-Baqarah: 127).
+“Ya Allah, terimalah amal kami. Sesungguhnya Engkau Maha Mendengar lagi Maha Mengetahui.” (QS. Al-Baqarah: 127).
 
 Tentunya kita yang bukan Nabi dan tidak mendapatkan wahyu, tentu lebih layak berdoa dan memohon agar amal kita diterima.
 
@@ -362,7 +361,7 @@ Dinukil dari Muslim.or.id dalam artikel "Tanda Amalan di Bulan Ramadhan Diterima
 
 Sumber : https://muslim.or.id/30547-tanda-amalan-di-bulan-ramadhan-diterima.html
 
-- [ ] 28 Ramadhan
+- [x] 28 Ramadhan
 
 ---
 
@@ -380,7 +379,7 @@ Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Sedih Apabila Amala
 
 read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bulan-ramadhan.html
 
-- [ ] 29 Ramadhan
+- [x] 29 Ramadhan
 
 ---
 
@@ -388,4 +387,4 @@ read more : https://muslim.or.id/40463-sedih-apabila-amalan-tidak-diterima-di-bu
 
 - [ ] 30 Ramadhan
 
-___
+_____

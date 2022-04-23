@@ -114,23 +114,106 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan se
 
 read more : https://www.facebook.com/musamulyadi/posts/4671457482921852
 
-### 10.
+### 10. Melawan Hawa Nafsu
 
-### 11.
+Abu Hazim rahimahullah- berkata, 
 
-### 12.
+"Perangilah hawa nafsumu melebihi engkau memerangi musuhmu"
 
-### 13.
+Hilyatul Awliya 3/231.
+Dinukil dari kanal telegram Wawasan Ilmu
 
-### 14.
+Sumber : https://t.me/wawasan_muslim/8873
 
-### 15.
+### 11. Di Balik Cobaan
 
-### 16.
+Ibnul Qayyim -rahimahullah- berkata,
 
-### 17.
+"Ujian membuat tampak mutiara pada diri laki-laki."
 
-### 18.
+Bada'iul Fawaid 3/751. 
+Dinukil dari kanal telegram Wawasan Ilmu
+
+Sumber : https://t.me/wawasan_muslim/8884
+
+### 12. Datangi Shalat Dengan Semangat
+
+Ibnu Abbas -radhiyallahu anhuma- berkata,
+
+"Dimakruhkan seseorang pergi mendatangi salat dalam keadaan malas. Oleh karena itu, hendaknya ia mendatangi dalam keadaan wajah yang ceria, besar harapan, dan sangat gembira, karena dia akan bermunajat dengan Allah, sedangkan Allah di hadapannya, Dia akan mengampuninya dan mengabulkannya ketika dia berdoa. Ia pun membaca firman Allah Ta'ala, "Dan apabila mereka (orang-orang munafik) berdiri untuk salat maka mereka berdiri dalam keadaan malas." (Qs. An Nisaa: 142)
+
+Diriwayatkan oleh Imam At Taimi dalam At Targhib wat Tarhib.
+Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
+
+Sumber : https://t.me/wawasan_muslim/8891
+
+### 13. Saat Dicabutnya Rasa Malu
+
+Malik bin Dinar -rahimahullah- berkata,
+
+"Allah tidak memberi hukuman yang lebih keras terhadap hati daripada dicabut-Nya rasa malu dari dalam hati seseorang."
+
+Tanbihul Mughtarrin. 
+Dinukil dari kanal telegram Wawasan Ilmu
+
+Sumber : https://t.me/wawasan_muslim/9051
+
+### 14. Ketika Ada Rintangan Dalam Menjalani Kebenaran
+
+Ibnul Qayyim -rahimahullah- berkata,
+
+"Kebenaran akan mendapatkan pertolongan dan akan diuji. Maka jangan heran terhadap ujian itu, karena semua itu sudah menjadi ketetapan Allah Yang Maha pengasih. Dengan ujian dan cobaan itulah, akan tampak jelas siapa tentara Allah Subhanahu Wa Ta’ala dan siapa musuh-Nya. Dan dengan itu pula, manusia terpisah menjadi dua kelompok (antara yang selamat dan yang menyimpang)."
+
+Syair An Nuniyah (1/17).
+Dinukil dari kanal telegram Wawasan Ilmu
+
+Sumber : https://t.me/wawasan_muslim/9059
+
+### 15. Angan-Angan Mereka Yang Telah Berada di Kubur✍
+
+Imam Ibnu Rajab -rahimahullah- berkata,
+
+"Angan-angan orang-orang yang telah meninggal dunia di kuburnya adalah bisa hidup meskipun sesaat agar dapat mengejar yang telah lewat dari mereka berupa tobat dan beramal saleh, dimana penduduk dunia meremehkannya saat hidup di dunia, sehingga usia mereka habis dalam kelalaian dan kesia-siaan, di antara mereka bahkan ada yang mengisinya dengan maksiat. 
+
+Sebagian kaum salaf berkata, “Kalian berada dalam angan-angan manusia yang banyak.” Maksudnya bahwa orang-orang yang telah meninggal dunia berangan-angan hidup sesaat agar dapat bertobat dan bersungguh-sungguh dalam ketaatan, namun tidak ada kesempatan hal itu bagi mereka.” 
+
+Lathaíful Ma’arif hal. 422. 
+Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
+
+Sumber : https://t.me/wawasan_muslim/9138
+
+### 16. Adab Makan
+
+Ibnu Muflih -rahimahullah- berkata,
+
+"Sepatutnya menampakkan suara tasmiyah (bismillah)  ketika hendak makan untuk mengingatkan yang lain juga."
+
+Al Aadab Asy Syar'iyyah.
+Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
+
+Sumber : https://t.me/wawasan_muslim/9260
+
+### 17. Terus Menyebarkan Ilmu
+
+Syaikh Muhammad bin Sholih Al Utsaimin -rahimahullah- berkata,
+
+"Pesanku kepada diriku dan kepada kalian adalah hendaknya kita bersemangat menyebarkan ilmu ke tengah-tengah manusia dan tidak meremehkan sedikit pun daripadanya. Jika engkau mengajarkan kepada seorang satu materi saja, kemudian dia mengamalkannya lalu dia pun menyampaikan kepada yang lain dan seterusnya, maka setiap pahala yang diperoleh karena mengamalkan apa yang engkau sampaikan, engkau akan memperoleh juga pahalanya."
+
+Liqa'ul Babil Maftuh 14/86. 
+Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
+
+Sumber : https://t.me/wawasan_muslim/9266
+
+### 18. Memenuhi Kebutuhan Seorang Muslim
+
+Rasulullah -shalallahu alaihi wa sallam- bersabda,
+
+"Barangsiapa yang berjalan bersama saudaranya yang muslim untuk memenuhi kebutuhannya sampai terpenuhi untuknya, maka Allah akan meneguhkan kakinya pada hari ketika kaki-kaki tergelincir."
+
+As Silsilah Ash Shahihah. 
+Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
+
+Sumber : https://t.me/wawasan_muslim/9272
 
 ### 19.
 

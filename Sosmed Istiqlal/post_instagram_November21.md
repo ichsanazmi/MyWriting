@@ -179,7 +179,7 @@ Read more : https://muslim.or.id/35123-pujian-adalah-ujian.html
 
 ___
 
-### 13. Diantara Sifat Orang Munafik
+### 13. () Diantara Sifat Orang Munafik
 
 Wahab bin Munabbih -rahimahullah-, seorang ulama era tabiin mengatakan, 
 Diantara sifat orang munafik adalah suka pujian dan benci celaan (baca: kritikan)
@@ -193,7 +193,7 @@ read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
 
 ___
 
-### 14. Sumber Ketidakbahagiaan
+### 14. () Sumber Ketidakbahagiaan
 
 Salah satu sumber ketidakbahagiaan adalah ketika kita menjadikan kebahagiaan orang lain sebagai ukuran.
 
@@ -228,7 +228,7 @@ read more : https://thehumairo.com/2668-baca-al-kahfi-di-hari-jumat-dapat-cahaya
 
 ___
 
-### 16. Untitled
+### 16. () Untitled
 
 Sebagian salaf berkata,
 

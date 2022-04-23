@@ -2,7 +2,7 @@
 
 ___
 
-### 1. Meski Seteguk Air
+### 1. (vv) Meski Seteguk Air
 
 Rasulullah -Shallallahu 'Alaihi wasallam- bersabda,
 
@@ -14,7 +14,7 @@ Dinukil dari buku Ramadhan Bersama Nabi, karya Ustadz Muhammad Abduh Tuasikal -h
 
 - [x] 1-3-22
 
-### 2. Kemuliaan Ramadhan
+### 2. (vv) Kemuliaan Ramadhan
 
 Rasulullah -shallallahu 'alaihi wasallam bersabda,
 "Jika telah datang bulan Ramadhan, pintu-pintu surga dibuka, pintu-pintu neraka ditutup, dan setan-setan terbelenggu"
@@ -26,7 +26,7 @@ read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.ht
 
 - [x] 2-3-22
 
-### 3. Keutamaan Puasa Syawwal
+### 3. () Keutamaan Puasa Syawwal
 
 Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 "Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
@@ -39,7 +39,7 @@ read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-sya
 
 - [ ] 3-3-22
 
-### 4. Untitled
+### 4. () Untitled (belum ada footnote)
 
 Ibnu Rajab Al-Hambali -rahimahullah- mengatakan,
 
@@ -51,7 +51,7 @@ sumber: https://muslim.or.id/30547-tanda-amalan-di-bulan-ramadhan-diterima.html
 
 - [ ] 4-3-22
 
-### 5. Memperbanyak Do'a Di Ramadhan
+### 5. (vv) Memperbanyak Do'a Di Ramadhan
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -65,7 +65,7 @@ read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
 - [x] 7-3-22
 
-### 6. Sebagaimana Pahala Orang Itu
+### 6. (vv) Sebagaimana Pahala Orang Itu
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -78,7 +78,7 @@ read more : https://rumaysho.com/1147-pahala-besar-di-balik-memberi-makan-berbuk
 
 - [x] 8-3-22
 
-### 7. Shalat Semalam Penuh
+### 7. (vv) Shalat Semalam Penuh
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -92,7 +92,7 @@ read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hi
 
 - [x] 9-3-22
 
-### 8. Untitled
+### 8. ( ) Untitled (belum ada footnote)
 
 Syaikh Shalih Al-Fauzan -hafidzahullah- berkata,
 
@@ -104,33 +104,32 @@ sumber: https://muslim.or.id/30547-tanda-amalan-di-bulan-ramadhan-diterima.html
 
 - [ ] 10-3-22
 
-### 9. Untitled
+### 9. (v) Berharap Yang Salah
 
 Ketika anda terlalu berharap pada seseorang, Allah akan timpakan kepadamu pedihnya sebuah pengharapan supaya anda mengetahui betapa Allah mencemburui terhadap hati yang berharap kepada selain Dia. Oleh karena itu sering kali Allah akan menghalangimu untuk mendapatkan harapan tersebut agar anda kembali berharap kepada-Nya.
 
 Ustadz Aris Munandar -hafizhahullah-
 
-Dinukil dari status facebook beliau 
+Dinukil dari status facebook beliau dengan sedikit penyesuaian
 
 sumber : https://www.facebook.com/arismunandarjogja/posts/474339652752175
 
 - [ ] 11-3-22
 
-### 10. Untitled
+### 10. (v) Bersungguh-sungguh Menjaga Masa Muda
 
 Ibnul Qayyim -rahimahullah- berkata,
 
 "Barang siapa yang menjaga perintah Allah Azza wa Jalla ketika kuat dan masih muda, maka Allah Azza wa Jalla akan menjaganya ketika ia telah tua dan sudah lemah."
 
-Shifatush Shofwah 1/560
-
-Dinukil dari kanal telegram Wawasan Ilmu dengan perubahan judul
+Shifatush Shofwah 1/560. 
+Dinukil dari kanal telegram Wawasan Muslim dengan perubahan judul
 
 sumber : https://t.me/wawasan_muslim/11954
 
 - [ ] 14-3-22
 
-### 11. Untitled
+### 11. (v) Pengaruh Hobi
 
 Bimbing anak-anak memilih hobi agar mereka jangan salah dan tidak berlebihan, betapa banyak orang dewasa sangat sulit lepas dari hobinya dan menjadi penyebab dia jauh dari Agama.
 
@@ -142,7 +141,7 @@ sumber : https://www.facebook.com/musamulyadi/posts/4932804093453855
 
 - [ ] 15-3-22
 
-### 12. Istiqamahlah Selepas Bulan Ramadhan
+### 12. () Istiqamahlah Selepas Bulan Ramadhan
 
 Para ulama’ mengatakan,
 
@@ -156,7 +155,7 @@ sumber : https://muslim.or.id/30564-bukan-pura-pura-bersedih-pada-perpisahan-den
 
 ___
 
-### 13. Iedul Fitri
+### 13. () Iedul Fitri
 
 Dari ‘Abdullah bin Buraidah, dari ayahnya, ia berkata,
 “Rasulullah -shallallahu ‘alaihi wa sallam- biasa berangkat shalat Id pada hari Idulfitri dan sebelumnya beliau makan terlebih dahulu. Sedangkan pada hari Iduladha, beliau tidak makan lebih dulu kecuali setelah pulang dari shalat Id baru beliau menyantap hasil qurbannya.”
@@ -169,7 +168,7 @@ Dinukil dari Ebook Fikih Lebaran Karya Ustadz Muhammad Abduh Tuasikal
 
 ___
 
-### 14. Untitled
+### 14. () Untitled
 
 Dari Jabir -radhiyallahu ‘anhu- , 
 
@@ -183,7 +182,17 @@ Dinukil dari Ebook Fikih Lebaran Karya Ustadz Muhammad Abduh Tuasikal
 
 ___
 
-### 15.
+### 15. Doa Memohon Kemudahan
+
+اللَّهُمَّ لاَ سَهْلَ إِلاَّ مَا جَعَلْتَهُ سَهْلاً وَأَنْتَ تَجْعَلُ الحَزْنَ إِذَا شِئْتَ سَهْلاً
+
+Allahumma laa sahla illa maa ja'altahu sahlaa, wa anta taj'alul hazna idza syi'ta sahlaa
+artinya: Ya Allah, tidak ada kemudahan kecuali yang Engkau buat mudah. Dan engkau menjadikan kesedihan (kesulitan), jika Engkau kehendaki pasti akan menjadi mudah
+
+HR. Ibnu Hibban dalam Shahihnya (3/255). Di shahih kan Syaikh Syu'aib Al-Arnauth
+Dinukil dari Rumaysho dalam artikel "Doa Memohon Kemudahan" dengan sedikit penyesuaian
+
+Sumber : https://rumaysho.com/1182-doa-memohon-kemudahan.html
 
 - [ ] 21-3-22
 
