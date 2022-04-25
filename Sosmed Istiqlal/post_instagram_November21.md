@@ -1,4 +1,4 @@
-# Post Instagram November 21 (-6)
+# Post Instagram November 21
 
 ___
 
@@ -179,7 +179,7 @@ Read more : https://muslim.or.id/35123-pujian-adalah-ujian.html
 
 ___
 
-### 13. (v) Diantara Sifat Orang Munafik
+### 13. (vv) Diantara Sifat Orang Munafik
 
 Wahab bin Munabbih -rahimahullah-, seorang ulama era tabiin mengatakan, 
 Diantara sifat orang munafik adalah suka pujian dan benci celaan (baca: kritikan)
@@ -189,7 +189,7 @@ Dinukil dari facebook Ustadz Aris Munandar -hafizhahullah- dengan sedikit penyes
 
 read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
 
-- [ ] 17-11-21
+- [x] 17-11-21
 
 ___
 
@@ -302,7 +302,7 @@ selengkapnya : https://muslimafiyah.com/tata-cara-berbuka-puasa.html
 
 ___
 
-### 21. (v) Langkah Kaki yang menghapus Dosa
+### 21. (vv) Langkah Kaki yang menghapus Dosa
 
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -313,11 +313,11 @@ Dinukil dari Muslim.or.id dalam artikel berjudul "Keutamaan Berjalan Menuju Masj
 
 read more : https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
 
-- [ ] 29-11-21
+- [x] 29-11-21
 
 ___
 
-### 22. (v) Melawan Hawa Nafsu
+### 22. (vv) Melawan Hawa Nafsu
 
 Abu Hazim -rahimahullah- berkata,
 
@@ -328,4 +328,4 @@ Dinukil dari kanal telegram Wawasan Ilmu
 
 Sumber : https://t.me/wawasan_muslim/8873
 
-- [ ] 30-11-21
+- [x] 30-11-21

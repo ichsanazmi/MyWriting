@@ -103,7 +103,7 @@ sumber: https://muslim.or.id/30547-tanda-amalan-di-bulan-ramadhan-diterima.html
 
 - [ ] 10-3-22
 
-### 9. (v) Berharap Yang Salah
+### 9. (vv) Berharap Yang Salah
 
 Ketika anda terlalu berharap pada seseorang, Allah akan timpakan kepadamu pedihnya sebuah pengharapan supaya anda mengetahui betapa Allah mencemburui terhadap hati yang berharap kepada selain Dia. Oleh karena itu sering kali Allah akan menghalangimu untuk mendapatkan harapan tersebut agar anda kembali berharap kepada-Nya.
 
@@ -113,9 +113,9 @@ Dinukil dari status facebook beliau dengan sedikit penyesuaian
 
 sumber : https://www.facebook.com/arismunandarjogja/posts/474339652752175
 
-- [ ] 11-3-22
+- [x] 11-3-22
 
-### 10. (v) Bersungguh-sungguh Menjaga Masa Muda
+### 10. (vv) Bersungguh-sungguh Menjaga Masa Muda
 
 Ibnul Qayyim -rahimahullah- berkata,
 
@@ -126,9 +126,9 @@ Dinukil dari kanal telegram Wawasan Muslim dengan perubahan judul
 
 sumber : https://t.me/wawasan_muslim/11954
 
-- [ ] 14-3-22
+- [x] 14-3-22
 
-### 11. (v) Pengaruh Hobi
+### 11. (vv) Pengaruh Hobi
 
 Bimbing anak-anak memilih hobi agar mereka jangan salah dan tidak berlebihan, betapa banyak orang dewasa sangat sulit lepas dari hobinya dan menjadi penyebab dia jauh dari Agama.
 
@@ -138,7 +138,7 @@ Dinukil dari facebook beliau hafizhahullah dengan sedikit penyesuaian.
 
 sumber : https://www.facebook.com/musamulyadi/posts/4932804093453855
 
-- [ ] 15-3-22
+- [x] 15-3-22
 
 ### 12. () Istiqamahlah Selepas Bulan Ramadhan
 
@@ -179,7 +179,7 @@ Dinukil dari Ebook Fikih Lebaran Karya Ustadz Muhammad Abduh Tuasikal
 
 ___
 
-### 15. Doa Memohon Kemudahan
+### 15. (vv) Doa Memohon Kemudahan
 
 اللَّهُمَّ لاَ سَهْلَ إِلاَّ مَا جَعَلْتَهُ سَهْلاً وَأَنْتَ تَجْعَلُ الحَزْنَ إِذَا شِئْتَ سَهْلاً
 
@@ -191,47 +191,110 @@ Dinukil dari Rumaysho dalam artikel "Doa Memohon Kemudahan" dengan sedikit penye
 
 Sumber : https://rumaysho.com/1182-doa-memohon-kemudahan.html
 
-- [ ] 21-3-22
+- [x] 21-3-22
 
 ___
 
-### 16.
+### 16. (vv) Tidak Ada Kata Putus Asa
 
-- [ ] 22-3-22
+Ibnu Taimiyah -rahimahullah- berkata,
+
+"Tidak halal bagi seseorang untuk berputus asa dari rahmat Allah meskipun banyak dosa-dosanya."
+
+Al Fatawa 16/19. 
+Dinukil dari kanal Wawasan Muslim dengan sedikit penyesuaian
+
+sumber : https://t.me/wawasan_muslim/11992
+
+- [x] 22-3-22
 
 ___
 
-### 17.
+### 17. (vv) Hikmah Dirahasiakan Lailatul Qadr
+
+Bagaimana jika Lailatulqadr ternyata sudah turun pada malam 21 kemarin? 
+Apakah kamu akan terus melanjutkan ibadahmu? 
+Hikmah dirahasiakannya Lailatulqadr tidak lain untuk mengukur sekuat apa tekadmu mendekatkan diri kepada Allah 'Azza Wajalla, dan sejernih apa ketulusanmu
+
+Ustadz Musa Mulyadi Luqman -hafizhahullah-.
+Dinukil dari facebook beliau dengan sedikit penyesuaian
+
+Sumber : https://www.facebook.com/musamulyadi/posts/4999500943450836
 
 - [ ] 23-3-22
 
 ___
 
-### 18.
+### 18. () Untitled
+
+Keberpangkuan seseorang pada ampunan Allah yang disertai dengan maksiat terus menerus tanpa pertaubatan dan amal saleh adalah bentuk salah kaprah yang paling besar
+
+Ustadz Musa Mulyadi Luqman -hafizhahullah-.
+Dinukil dari facebook beliau dengan sedikit penyesuaian
+
+Sumber : https://www.facebook.com/musamulyadi/posts/4995305823870348
 
 - [ ] 24-3-22
 
 ___
 
-### 19.
+### 19. () Doa Mustajab Dari Orang Tua
+
+Rasulullah -Shallallahu 'Alaihi wasallam- bersabda,
+
+“Tiga doa mustajab yang tidak diragukan lagi, yaitu doa kedua orang tua, doa orang yang bepergian (safar), dan doa orang yang dizalimi” 
+
+HR. Abu Daud, hasan. 
+Dinukil dari Muslim.or.id dalam artikel "Doa Terbaik Untuk Anak Tercinta" dengan sedikit penyesuaian
+
+Sumber: https://muslim.or.id/70101-doa-terbaik-untuk-anak-tercinta.html
 
 - [ ] 25-3-22 
 
 ___
 
-### 20.
+### 20. () Jangan Mendoakan Keburukan Untuk Anak
+
+Rasulullah -Shallallahu 'Alaihi wasallam- bersabda,
+
+“Janganlah kalian mendoakan keburukan untuk diri kalian, dan juga untuk anak-anak kalian, atau harta kalian. Jangan sampai kalian menepati suatu waktu yang pada waktu itu Allah Subhanahu wa Ta’ala diminta sesuatu lantas Dia kabulkan doa kalian tersebut”
+
+HR. Muslim. 
+Dinukil dari Muslim.or.id dalam artikel "Doa Terbaik Untuk Anak Tercinta"
+
+Sumber: https://muslim.or.id/70101-doa-terbaik-untuk-anak-tercinta.html
 
 - [ ] 28-3-22
 
 ___
 
-### 21.
+### 21. () Dunia, Negeri Tempat Ujian dan Cobaan
+
+Allah -‘azza wa jalla- berfirman,
+
+وَنَبْلُوكُمْ بِالشَّرِّ وَالْخَيْرِ فِتْنَةً ۖ وَإِلَيْنَا تُرْجَعُونَ
+
+“Wahai manusia, Kami akan menguji kalian dengan kesempitan dan kenikmatan, untuk menguji iman kalian. Dan hanya kepada Kamilah kalian akan kembali” 
+
+QS. Al-Anbiya: 35. 
+Dinukil dari Muslim.or.id dalam artikel "Janganlah Bersedih" dengan sedikit penyesuaian
+
+Sumber: https://muslim.or.id/26272-janganlah-bersedih.html
 
 - [ ] 29-3-22
 
 ___
 
-### 22.
+### 22. () Salah Satu Tanda Iman
+
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+
+“Barangsiapa yang merasa bergembira karena amal kebaikannya dan sedih karena amal keburukannya, maka ia adalah seorang yang beriman”
+
+HR. Tirmidzi. 
+Dinukil dari Muslim.or.id dalam artikel "Janganlah Bersedih" dengan sedikit penyesuaian
+
+Sumber: https://muslim.or.id/26272-janganlah-bersedih.html
 
 - [ ] 30-3-22
 
