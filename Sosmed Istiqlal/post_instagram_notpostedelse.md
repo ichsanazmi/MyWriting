@@ -114,27 +114,9 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan se
 
 read more : https://www.facebook.com/musamulyadi/posts/4671457482921852
 
-### 10. Melawan Hawa Nafsu
+### 10.
 
-Abu Hazim rahimahullah- berkata, 
-
-"Perangilah hawa nafsumu melebihi engkau memerangi musuhmu"
-
-Hilyatul Awliya 3/231.
-Dinukil dari kanal telegram Wawasan Ilmu
-
-Sumber : https://t.me/wawasan_muslim/8873
-
-### 11. Di Balik Cobaan
-
-Ibnul Qayyim -rahimahullah- berkata,
-
-"Ujian membuat tampak mutiara pada diri laki-laki."
-
-Bada'iul Fawaid 3/751. 
-Dinukil dari kanal telegram Wawasan Ilmu
-
-Sumber : https://t.me/wawasan_muslim/8884
+### 11.
 
 ### 12. Datangi Shalat Dengan Semangat
 
@@ -169,7 +151,7 @@ Dinukil dari kanal telegram Wawasan Ilmu
 
 Sumber : https://t.me/wawasan_muslim/9059
 
-### 15. Angan-Angan Mereka Yang Telah Berada di Kubur✍
+### 15. Angan-Angan Mereka Yang Telah Berada di Kubur
 
 Imam Ibnu Rajab -rahimahullah- berkata,
 

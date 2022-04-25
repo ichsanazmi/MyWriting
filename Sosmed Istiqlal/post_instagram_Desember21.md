@@ -2,16 +2,7 @@
 
 ___
 
-### 1. Langkah Kaki yang menghapus Dosa
-
-Rasulullah shallallahu ‘alaihi wa sallam bersabda,
-
-“Maukah kalian aku tunjukkan kepada suatu amal yang dapat menghapus kesalahan (dosa) dan meninggikan derajat?” Para sahabat menjawab, ”Ya, wahai Rasulullah.” Rasulullah bersabda, ”(Yaitu) menyempurnakan wudhu dalam kondisi sulit, banyaknya langkah menuju masjid, menunggu shalat setelah mendirikan shalat. Itulah ar-ribath (kebaikan yang banyak).”
-
-HR. Muslim no. 251
-Dinukil dari Muslim.or.id dalam artikel berjudul "Keutamaan Berjalan Menuju Masjid"
-
-read more : https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
+### 1.
 
 - [ ] 1-12-21
 

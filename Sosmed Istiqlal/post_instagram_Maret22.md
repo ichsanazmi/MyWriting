@@ -26,14 +26,13 @@ read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.ht
 
 - [x] 2-3-22
 
-### 3. () Keutamaan Puasa Syawwal
+### 3. (v) Keutamaan Puasa Syawwal
 
 Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 "Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
 
-HR. Muslim No. 1164
-
-Dinukil dari laman Muslim.or.id dalam artikel yang berjudul "Keutamaan Puasa Sunnah 6 Hari Di Bulan Syawwal"
+HR. Muslim No. 1164. 
+Dinukil dari Muslim.or.id dalam artikel "Keutamaan Puasa Sunnah 6 Hari Di Bulan Syawwal"
 
 read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-syawwal.html
 
@@ -155,27 +154,25 @@ sumber : https://muslim.or.id/30564-bukan-pura-pura-bersedih-pada-perpisahan-den
 
 ___
 
-### 13. () Iedul Fitri
+### 13. (v) Makan Sebelum Shalat Iedul Fitri
 
 Dari ‘Abdullah bin Buraidah, dari ayahnya, ia berkata,
 “Rasulullah -shallallahu ‘alaihi wa sallam- biasa berangkat shalat Id pada hari Idulfitri dan sebelumnya beliau makan terlebih dahulu. Sedangkan pada hari Iduladha, beliau tidak makan lebih dulu kecuali setelah pulang dari shalat Id baru beliau menyantap hasil qurbannya.”
 
-HR. Ahmad, 5:352. Syaikh Syu’aib Al-Arnauth mengatakan bahwa hadits ini hasan
-
+HR. Ahmad, 5:352. Syaikh Syu’aib Al-Arnauth mengatakan bahwa hadits ini hasan. 
 Dinukil dari Ebook Fikih Lebaran Karya Ustadz Muhammad Abduh Tuasikal
 
 - [ ] 17-3-22
 
 ___
 
-### 14. () Untitled
+### 14. (v) Berangkat Shalat Ied
 
 Dari Jabir -radhiyallahu ‘anhu- , 
 
 ia berkata bahwa Nabi -shallallahu ‘alaihi wasallam- ketika berada di hari Id (ingin pergi ke tempat shalat), beliau membedakan jalan antara pergi dan pulang. 
 
-HR. Bukhari, no. 986
-
+HR. Bukhari, no. 986. 
 Dinukil dari Ebook Fikih Lebaran Karya Ustadz Muhammad Abduh Tuasikal
 
 - [ ] 18-3-22

@@ -179,7 +179,7 @@ Read more : https://muslim.or.id/35123-pujian-adalah-ujian.html
 
 ___
 
-### 13. () Diantara Sifat Orang Munafik
+### 13. (v) Diantara Sifat Orang Munafik
 
 Wahab bin Munabbih -rahimahullah-, seorang ulama era tabiin mengatakan, 
 Diantara sifat orang munafik adalah suka pujian dan benci celaan (baca: kritikan)
@@ -193,22 +193,16 @@ read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
 
 ___
 
-### 14. () Sumber Ketidakbahagiaan
+### 14. () Mutiara Di Balik Cobaan
 
-Salah satu sumber ketidakbahagiaan adalah ketika kita menjadikan kebahagiaan orang lain sebagai ukuran.
+Ibnul Qayyim -rahimahullah- berkata,
 
-Belum bahagia kalau belum mencapai apa yang sudah dilakukan atau diraih orang lain.
+"Ujian membuat tampak mutiara pada diri laki-laki."
 
-Betapa banyak keindahan yang ada di tempat jauh, ada pula di dekatmu. Jangan sampai justru tujuanmu sebenarnya bukanlah pemandangan indah atas nama healing, tapi yang kau cari adalah pengakuan dari orang lain melalui selfie-mu..
+Bada'iul Fawaid 3/751. 
+Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
-Banyak orang menemukan kebahagiaan dalam bermunajat kepada Allah, atau dengan membaca Al Quran, atau dengan membuka lembaran-lembaran kitab dan buku di perpustakaan, atau yang lainnya.
-
-Setiap orang tidak harus sama ukuran kebahagiaannya, maka temukan sendiri kebahagiaanmu.
-
-Ustadz Ristiyan Ragil Putradianto
-Dinukil dari facebook beliau -hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/ristiyan.ragil/posts/10159456455513190
+Sumber : https://t.me/wawasan_muslim/8884
 
 - [ ] 18-11-21
 
@@ -244,7 +238,7 @@ Read more : https://muslim.or.id/10842-panduan-makanan-1-pengaruh-makanan-haram
 
 ___
 
-### 17. Wadah Yang Disebut dengan Hati (Sep '20)
+### 17. () Wadah Yang Disebut dengan Hati (Sep '20)
 
 Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yang mulia ini di hati yang tidak saleh!?
 
@@ -308,12 +302,30 @@ selengkapnya : https://muslimafiyah.com/tata-cara-berbuka-puasa.html
 
 ___
 
-### 21.
+### 21. (v) Langkah Kaki yang menghapus Dosa
+
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+
+“Maukah kalian aku tunjukkan kepada suatu amal yang dapat menghapus kesalahan (dosa) dan meninggikan derajat?” Para sahabat menjawab, ”Ya, wahai Rasulullah.” Rasulullah bersabda, ”(Yaitu) menyempurnakan wudhu dalam kondisi sulit, banyaknya langkah menuju masjid, menunggu shalat setelah mendirikan shalat. Itulah ar-ribath (kebaikan yang banyak).”
+
+HR. Muslim no. 251
+Dinukil dari Muslim.or.id dalam artikel berjudul "Keutamaan Berjalan Menuju Masjid"
+
+read more : https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
 
 - [ ] 29-11-21
 
 ___
 
-### 22.
+### 22. (v) Melawan Hawa Nafsu
+
+Abu Hazim -rahimahullah- berkata,
+
+"Perangilah hawa nafsumu melebihi engkau memerangi musuhmu"
+
+Hilyatul Awliya 3/231.
+Dinukil dari kanal telegram Wawasan Ilmu
+
+Sumber : https://t.me/wawasan_muslim/8873
 
 - [ ] 30-11-21
