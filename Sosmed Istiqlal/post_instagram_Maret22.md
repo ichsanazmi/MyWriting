@@ -300,6 +300,8 @@ Sumber: https://muslim.or.id/26272-janganlah-bersedih.html
 
 ---
 
-### 23.
+### 23. (vv) Pantaskah Kita Merasa Sama
 
-- [ ] 31-3-22
+pantaskah kita merasa tidurnya kita sama dengan tidurnya mereka yang memanfaatkan malamnya.mata yang perih berselancar di gawai tentu tak sama dengan mata yang letih bermalam di mushaf
+
+- [x] 31-3-22
