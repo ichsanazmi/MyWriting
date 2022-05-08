@@ -104,7 +104,7 @@ read more : https://web.facebook.com/story.php?story_fbid=10219153604011767&id=1
 
 ___ 
 
-### 6. Telah Datang Waktunya
+### 6. (missing di png) Telah Datang Waktunya
 
 ---
 
@@ -116,7 +116,7 @@ Dimana tidak ada istilah kalah atau menang atas satu sama lain, yang ada hanyala
 
 ___ 
 
-### 7. Di Ampuni Yang Telah Lalu
+### 7. (f di Ramadhan21) Di Ampuni Yang Telah Lalu
 
 ---
 
@@ -204,7 +204,7 @@ https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
 ___ 
 
-### 12. Teman Seiman Selalu Berbaik Sangka
+### 12. (missing) Teman Seiman Selalu Berbaik Sangka (Des '20)
 
 ___
 
@@ -219,11 +219,11 @@ Imam Asy-syafi'i berkata; "Aku tahu itu, sesungguhnya jika kamu mencacimakiku se
 Adab Asyyafi'i Wa Manaqibih karya Ibnu Abi Hatim Hal. 209
 Dinukil dari Ustadz Musa Mulyadi Luqman, Lc. via WhatsApp dengan sedikit penyesuaian
 
-- [ ] 16-2-21
+- [ ] 16-2-21 // repost 16-12-20
 
 ___ 
 
-### 13. Tanda Kebahagiaan
+### 13. (Missing) Tanda Kebahagiaan
 
 ___
 
@@ -264,7 +264,7 @@ read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
 ___ 
 
-### 15. Membaca Al-Kahfi di Siang Hari
+### 15. (Missing) Membaca Al-Kahfi di Siang Hari
 
 ___
 
@@ -281,7 +281,7 @@ read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
 ___ 
 
-### 16. Membaca Al-Kahfi Di Malam Hari
+### 16. (Missing) Membaca Al-Kahfi Di Malam Hari
 
 ___
 
@@ -298,7 +298,7 @@ read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
 ___ 
 
-### 17. Makna Cahaya di Hadits Al-kahfi
+### 17. (Missing) Makna Cahaya di Hadits Al-kahfi
 
 ___
 
@@ -313,7 +313,7 @@ read more : http://kristalilmu.com/agar-meraih-cahaya-di-antara-dua-jumat/
 
 ___ 
 
-### 18. Bersegera Dalam Berbuka
+### 18. (f di Ramadhan21) Bersegera Dalam Berbuka
 
 ---
 

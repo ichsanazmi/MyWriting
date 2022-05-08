@@ -217,28 +217,37 @@ Sumber : https://www.facebook.com/musamulyadi/posts/4999500943450836
 
 ___
 
-### 18. () Untitled
+### 18. Tidak Ada Qobliyah dan Ba'diyah Ied
 
-Keberpangkuan seseorang pada ampunan Allah yang disertai dengan maksiat terus menerus tanpa pertaubatan dan amal saleh adalah bentuk salah kaprah yang paling besar
+Ibnu ‘Abbas -Radhiallahu 'anhu- berkata,
 
-Ustadz Musa Mulyadi Luqman -hafizhahullah-.
-Dinukil dari facebook beliau dengan sedikit penyesuaian
+“Rasulullah -shallallahu ‘alaihi wa sallam- pernah keluar pada hari Idul Adha atau Idul Fithri, lalu beliau mengerjakan shalat ‘ied dua raka’at, namun beliau tidak mengerjakan shalat qobliyah maupun ba’diyah ‘ied.”
 
-Sumber : https://www.facebook.com/musamulyadi/posts/4995305823870348
+HR. Bukhari no. 964 dan Muslim no. 884. 
+Dinukil dari Rumaysho dalam artikel "Panduan Shalat Idul Fithri dan Idul Adha" dengan sedikit penyesuaian
 
-- [ ] 24-2-22
+Sumber : https://rumaysho.com/676-panduan-shalat-idul-fithri-dan-idul-adha.html
 
-___
-
-### 19. () 
-
-- [ ] 25-2-22 
+- [x] 24-2-22
 
 ___
 
-### 20. (vv) Meminta Pertolongan di Sisa Ramadhan
+### 19. Bertakbir Saat Menuju Shalat Ied
+
+“Nabi -shallallahu ‘alaihi wa sallam- biasa keluar hendak shalat pada hari raya ‘Idul Fithri, lantas beliau bertakbir sampai di lapangan dan sampai shalat hendak dilaksanakan. Ketika shalat hendak dilaksanakan, beliau berhenti dari bertakbir.”
+
+As Silsilah Ash Shahihah no. 171. Syaikh Al Albani mengatakan bahwa riwayat ini shahih. 
+Dinukil dari Rumaysho dalam artikel "Panduan Shalat Idul Fithri dan Idul Adha" dengan sedikit penyesuaian
+
+Sumber : https://rumaysho.com/676-panduan-shalat-idul-fithri-dan-idul-adha.html
+
+- [x] 25-2-22 
+
+___
+
+### 20. Meminta Pertolongan di Sisa Ramadhan
 
 Bulan yang agung ini akan segera meninggalkan kita. Bulan dimana yang telah mendahulu kita, berangan untuk kembali berjumpa dengannya. Maka mohonlah pertolongan kepadaNya serta teruslah berpacu di yang tersisa. 
 "Dan mintalah pertolongan kepada Allah serta janganlah sekali-kali engkau merasa lemah"
 
-- [ ] 28-2-22
+- [x] 28-2-22

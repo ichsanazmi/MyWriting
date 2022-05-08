@@ -1,8 +1,8 @@
 # Post Instagram Maret 22
 
-___
+---
 
-### 1. (vv) Meski Seteguk Air
+### 1. Meski Seteguk Air
 
 Rasulullah -Shallallahu 'Alaihi wasallam- bersabda,
 
@@ -14,7 +14,7 @@ Dinukil dari buku Ramadhan Bersama Nabi, karya Ustadz Muhammad Abduh Tuasikal -h
 
 - [x] 1-3-22
 
-### 2. (vv) Kemuliaan Ramadhan
+### 2. Kemuliaan Ramadhan
 
 Rasulullah -shallallahu 'alaihi wasallam bersabda,
 "Jika telah datang bulan Ramadhan, pintu-pintu surga dibuka, pintu-pintu neraka ditutup, dan setan-setan terbelenggu"
@@ -26,7 +26,7 @@ read more : https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.ht
 
 - [x] 2-3-22
 
-### 3. (v) Keutamaan Puasa Syawwal
+### 3. Keutamaan Puasa Syawwal
 
 Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 "Barangsiapa yang berpuasa (di bulan) Ramadhan, kemudian dia mengikutkannya dengan (puasa sunnah) enam hari di bulan Syawwal, maka (dia akan mendapatkan pahala) seperti puasa setahun penuh.”
@@ -34,9 +34,9 @@ Rasulullah -Shallallahu 'alahi wasallam- bersabda,
 HR. Muslim No. 1164. 
 Dinukil dari Muslim.or.id dalam artikel "Keutamaan Puasa Sunnah 6 Hari Di Bulan Syawwal"
 
-read more : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-syawwal.html
+Sumber : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-syawwal.html
 
-- [ ] 3-3-22
+- [x] 3-3-22
 
 ### 4. () Untitled (belum ada footnote)
 
@@ -50,7 +50,7 @@ sumber: https://muslim.or.id/30547-tanda-amalan-di-bulan-ramadhan-diterima.html
 
 - [ ] 4-3-22
 
-### 5. (vv) Memperbanyak Do'a Di Ramadhan
+### 5. Memperbanyak Do'a Di Ramadhan
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -64,7 +64,7 @@ read more : https://muslim.or.id/56520-sunnah-sunnah-ketika-berbuka-puasa.html
 
 - [x] 7-3-22
 
-### 6. (vv) Sebagaimana Pahala Orang Itu
+### 6. Sebagaimana Pahala Orang Itu
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -77,7 +77,7 @@ read more : https://rumaysho.com/1147-pahala-besar-di-balik-memberi-makan-berbuk
 
 - [x] 8-3-22
 
-### 7. (vv) Shalat Semalam Penuh
+### 7. Shalat Semalam Penuh
 
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 
@@ -91,7 +91,7 @@ read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hi
 
 - [x] 9-3-22
 
-### 8. ( ) Untitled (belum ada footnote)
+### 8. () Untitled (belum ada footnote)
 
 Syaikh Shalih Al-Fauzan -hafidzahullah- berkata,
 
@@ -103,7 +103,7 @@ sumber: https://muslim.or.id/30547-tanda-amalan-di-bulan-ramadhan-diterima.html
 
 - [ ] 10-3-22
 
-### 9. (vv) Berharap Yang Salah
+### 9. Berharap Yang Salah
 
 Ketika anda terlalu berharap pada seseorang, Allah akan timpakan kepadamu pedihnya sebuah pengharapan supaya anda mengetahui betapa Allah mencemburui terhadap hati yang berharap kepada selain Dia. Oleh karena itu sering kali Allah akan menghalangimu untuk mendapatkan harapan tersebut agar anda kembali berharap kepada-Nya.
 
@@ -115,7 +115,7 @@ sumber : https://www.facebook.com/arismunandarjogja/posts/474339652752175
 
 - [x] 11-3-22
 
-### 10. (vv) Bersungguh-sungguh Menjaga Masa Muda
+### 10. Bersungguh-sungguh Menjaga Masa Muda
 
 Ibnul Qayyim -rahimahullah- berkata,
 
@@ -128,7 +128,7 @@ sumber : https://t.me/wawasan_muslim/11954
 
 - [x] 14-3-22
 
-### 11. (vv) Pengaruh Hobi
+### 11. Pengaruh Hobi
 
 Bimbing anak-anak memilih hobi agar mereka jangan salah dan tidak berlebihan, betapa banyak orang dewasa sangat sulit lepas dari hobinya dan menjadi penyebab dia jauh dari Agama.
 
@@ -140,7 +140,7 @@ sumber : https://www.facebook.com/musamulyadi/posts/4932804093453855
 
 - [x] 15-3-22
 
-### 12. () Istiqamahlah Selepas Bulan Ramadhan
+### 12. Istiqamahlah Selepas Bulan Ramadhan
 
 Para ulama’ mengatakan,
 
@@ -150,23 +150,24 @@ Dinukil dari Muslim.or.id dalam artikel "Bukan Pura-Pura Bersedih Pada Perpisaha
 
 sumber : https://muslim.or.id/30564-bukan-pura-pura-bersedih-pada-perpisahan-dengan-ramadhan.html
 
-- [ ] 16-3-22
+- [x] 16-3-22
 
 ___
 
-### 13. (v) Makan Sebelum Shalat Iedul Fitri
+### 13. Makan Sebelum Shalat Iedul Fitri
 
 Dari ‘Abdullah bin Buraidah, dari ayahnya, ia berkata,
+
 “Rasulullah -shallallahu ‘alaihi wa sallam- biasa berangkat shalat Id pada hari Idulfitri dan sebelumnya beliau makan terlebih dahulu. Sedangkan pada hari Iduladha, beliau tidak makan lebih dulu kecuali setelah pulang dari shalat Id baru beliau menyantap hasil qurbannya.”
 
 HR. Ahmad, 5:352. Syaikh Syu’aib Al-Arnauth mengatakan bahwa hadits ini hasan. 
 Dinukil dari Ebook Fikih Lebaran Karya Ustadz Muhammad Abduh Tuasikal
 
-- [ ] 17-3-22
+- [x] 17-3-22
 
 ___
 
-### 14. (v) Berangkat Shalat Ied
+### 14. Berangkat Shalat Ied
 
 Dari Jabir -radhiyallahu ‘anhu- , 
 
@@ -175,11 +176,11 @@ ia berkata bahwa Nabi -shallallahu ‘alaihi wasallam- ketika berada di hari Id 
 HR. Bukhari, no. 986. 
 Dinukil dari Ebook Fikih Lebaran Karya Ustadz Muhammad Abduh Tuasikal
 
-- [ ] 18-3-22
+- [x] 18-3-22
 
 ___
 
-### 15. (vv) Doa Memohon Kemudahan
+### 15. Doa Memohon Kemudahan
 
 اللَّهُمَّ لاَ سَهْلَ إِلاَّ مَا جَعَلْتَهُ سَهْلاً وَأَنْتَ تَجْعَلُ الحَزْنَ إِذَا شِئْتَ سَهْلاً
 
@@ -195,7 +196,7 @@ Sumber : https://rumaysho.com/1182-doa-memohon-kemudahan.html
 
 ___
 
-### 16. (vv) Tidak Ada Kata Putus Asa
+### 16. Tidak Ada Kata Putus Asa
 
 Ibnu Taimiyah -rahimahullah- berkata,
 
@@ -210,7 +211,7 @@ sumber : https://t.me/wawasan_muslim/11992
 
 ___
 
-### 17. (vv) Hikmah Dirahasiakan Lailatul Qadr
+### 17. Hikmah Dirahasiakan Lailatul Qadr
 
 Bagaimana jika Lailatulqadr ternyata sudah turun pada malam 21 kemarin? 
 Apakah kamu akan terus melanjutkan ibadahmu? 
@@ -225,7 +226,7 @@ Sumber : https://www.facebook.com/musamulyadi/posts/4999500943450836
 
 ___
 
-### 18. () Untitled
+### 18. Salah Kaprah
 
 Keberpangkuan seseorang pada ampunan Allah yang disertai dengan maksiat terus menerus tanpa pertaubatan dan amal saleh adalah bentuk salah kaprah yang paling besar
 
@@ -234,11 +235,11 @@ Dinukil dari facebook beliau dengan sedikit penyesuaian
 
 Sumber : https://www.facebook.com/musamulyadi/posts/4995305823870348
 
-- [ ] 24-3-22
+- [x] 24-3-22
 
 ___
 
-### 19. () Doa Mustajab Dari Orang Tua
+### 19. Doa Mustajab Dari Orang Tua
 
 Rasulullah -Shallallahu 'Alaihi wasallam- bersabda,
 
@@ -249,11 +250,11 @@ Dinukil dari Muslim.or.id dalam artikel "Doa Terbaik Untuk Anak Tercinta" dengan
 
 Sumber: https://muslim.or.id/70101-doa-terbaik-untuk-anak-tercinta.html
 
-- [ ] 25-3-22 
+- [x] 25-3-22 
 
 ___
 
-### 20. () Jangan Mendoakan Keburukan Untuk Anak
+### 20. Jangan Mendoakan Keburukan Untuk Anak
 
 Rasulullah -Shallallahu 'Alaihi wasallam- bersabda,
 
@@ -264,11 +265,11 @@ Dinukil dari Muslim.or.id dalam artikel "Doa Terbaik Untuk Anak Tercinta"
 
 Sumber: https://muslim.or.id/70101-doa-terbaik-untuk-anak-tercinta.html
 
-- [ ] 28-3-22
+- [x] 28-3-22
 
 ___
 
-### 21. () Dunia, Negeri Tempat Ujian dan Cobaan
+### 21. Dunia, Negeri Tempat Ujian dan Cobaan
 
 Allah -‘azza wa jalla- berfirman,
 
@@ -281,11 +282,11 @@ Dinukil dari Muslim.or.id dalam artikel "Janganlah Bersedih" dengan sedikit peny
 
 Sumber: https://muslim.or.id/26272-janganlah-bersedih.html
 
-- [ ] 29-3-22
+- [x] 29-3-22
 
 ___
 
-### 22. () Salah Satu Tanda Iman
+### 22. Salah Satu Tanda Iman
 
 Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
 
@@ -296,11 +297,11 @@ Dinukil dari Muslim.or.id dalam artikel "Janganlah Bersedih" dengan sedikit peny
 
 Sumber: https://muslim.or.id/26272-janganlah-bersedih.html
 
-- [ ] 30-3-22
+- [x] 30-3-22
 
 ---
 
-### 23. (vv) Pantaskah Kita Merasa Sama
+### 23. Pantaskah Kita Merasa Sama
 
 pantaskah kita merasa tidurnya kita sama dengan tidurnya mereka yang memanfaatkan malamnya.mata yang perih berselancar di gawai tentu tak sama dengan mata yang letih bermalam di mushaf
 

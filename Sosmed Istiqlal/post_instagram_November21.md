@@ -179,7 +179,7 @@ Read more : https://muslim.or.id/35123-pujian-adalah-ujian.html
 
 ___
 
-### 13. (vv) Diantara Sifat Orang Munafik
+### 13. Diantara Sifat Orang Munafik
 
 Wahab bin Munabbih -rahimahullah-, seorang ulama era tabiin mengatakan, 
 Diantara sifat orang munafik adalah suka pujian dan benci celaan (baca: kritikan)
@@ -193,7 +193,7 @@ read more : https://www.facebook.com/arismunandarjogja/posts/440273729492101
 
 ___
 
-### 14. () Mutiara Di Balik Cobaan
+### 14. Mutiara Di Balik Cobaan
 
 Ibnul Qayyim -rahimahullah- berkata,
 
@@ -204,7 +204,7 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/8884
 
-- [ ] 18-11-21
+- [x] 18-11-21
 
 ___
 
@@ -222,29 +222,28 @@ read more : https://thehumairo.com/2668-baca-al-kahfi-di-hari-jumat-dapat-cahaya
 
 ___
 
-### 16. () Untitled
+### 16. Sebab Terhambat Terkabulnya Do'a
 
 Sebagian salaf berkata,
 
 “Janganlah engkau memperlambat terkabulnya do’a dengan engkau menempuh jalan maksiat.” 
 
-Jaami’ul ‘Ulum wal Hikam, Ibnu Rajab Al Hambali, 1: 275-276
-
-Dinukil dari laman Muslim.or.id dalam artikel berjudul "Panduan Makanan 1 Pengaruh Makanan Haram"
+Jaami’ul ‘Ulum wal Hikam, Ibnu Rajab Al Hambali, 1: 275-276. 
+Dinukil dari laman Muslim.or.id dalam artikel berjudul "Panduan Makanan 1 Pengaruh Makanan Haram" dengan sedikit penyesuaian
 
 Read more : https://muslim.or.id/10842-panduan-makanan-1-pengaruh-makanan-haram.html
 
-- [ ] 22-11-21
+- [x] 22-11-21
 
 ___
 
-### 17. () Wadah Yang Disebut dengan Hati (Sep '20)
+### 17. Wadah Yang Disebut dengan Hati (Sep '20)
 
 Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yang mulia ini di hati yang tidak saleh!?
 
 Dinukil dari status yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah- via laman facebook beliau
 
-- [ ] 23-11-21 // repost  18-9-20
+- [x] 23-11-21 // repost  18-9-20
 
 ___
 
@@ -302,7 +301,7 @@ selengkapnya : https://muslimafiyah.com/tata-cara-berbuka-puasa.html
 
 ___
 
-### 21. (vv) Langkah Kaki yang menghapus Dosa
+### 21. Langkah Kaki yang menghapus Dosa
 
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -317,7 +316,7 @@ read more : https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
 
 ___
 
-### 22. (vv) Melawan Hawa Nafsu
+### 22. Melawan Hawa Nafsu
 
 Abu Hazim -rahimahullah- berkata,
 

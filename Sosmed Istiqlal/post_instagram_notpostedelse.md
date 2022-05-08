@@ -43,18 +43,18 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi ya
 
 read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
 
-### 4. Keutamaan Menyebarkan Ilmu
+### 4. Berharaplah Diterima (Okt '20)
 
-Rasulullah -Shallallahu ‘alaihi wa sallam- bersabda kepada ‘Ali,
-Demi Allah, sungguh satu orang saja diberi petunjuk (oleh Allah) melalui perantaraanmu, maka itu lebih baik dari unta merah
-HR. Bukhari, no. 2942 dan Muslim, no. 2406, dari Sahl bin Sa’ad
+Ibnu 'Aun -rahimahullah- berkata;
+"Kamu jangan berpegang dengan banyaknya amal, sesungguhnya kamu tidak tau apakah amal tersebut diterima ataukah tidak, dan kamu jangan merasa terjamin dari ancaman dosa -dosamu, sesungguhnya kamu tidak tau diampuni ataukah tidak, karena seluruh amalmu gaib darimu, kamu tidak tau apa yang Allah lakukan dengannya".
 
-Ibnul Qayyim rahimahullah berkata, 
-Hadits ini menunjukkan keutamaan berilmu dan mengajarkan ilmu, juga menunjukkan mulianya kedudukan ahli ilmu. Karena jika ada seseorang mendapatkan hidayah lewat perantaraan seorang alim, itu lebih berharga dari unta merah. Unta merah adalah harta terbaik dan paling mulia. Bagaimana penilaianmu terhadap orang yang setiap hari ada sekelompok orang dapat hidayah lewat dia
-Miftah Daar As-Sa’adah, 1:247
+Rasail Ibnu Rajab 4/440
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah-
 
-Dinukil dari laman Rumaysho dalam artikel berjudul "Lebih dari 100 Keutamaan Orang Berilmu dari Kitab Miftah Daar As-Saadah"
-read more : https://rumaysho.com/29364-lebih-dari-100-keutamaan-orang-berilmu-dari-kitab-miftah-daar-as-saadah.html
+sumber :
+https://www.facebook.com/musamulyadi/posts/3421645881236358
+
+- [ ] x-x-x / repost 21-10-20
 
 ### 5. Tak Sesuai Dengan Lisan
 
@@ -65,7 +65,7 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 6. Pionir Kebaikan
+### 6. Pionir Kebaikan (repost 6-10-20)
 
 Rasulullah -shallallahu ’alaihi wa sallam- bersabda,
 
@@ -76,33 +76,29 @@ Dinukil dari Rumaysho.com dalam artikel berjudul "Bulughul Maram Akhlak Menjadi 
 
 read more : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 
-### 7. Untitled (ganti judul)
+### 7. Andai Ia Meninggalkan Bau (Agustus '20)
+
+Muhammad bin Wasi’ -rahimahullah- berkata,
+“Andaikan dosa itu memiliki bau, tentu tidak ada dari seorang pun yang ingin duduk dekat-dekat denganku.”
+
+Muhasabah An-Nafs, hlm. 37. Lihat A’mal Al-Qulub,hlm. 373. 
+Dinukil dari Rumaysho dalam artikel "Bisakah Jadi Lebih Baik"
+
+Sumber :
+https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
+
+- [ ] x-x-x / repost 04-08-20
+### 8. Warisan Para Nabi (Agustus '20)
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+“Sesungguhnya para Nabi tidak mewariskan dinar dan dirham, mereka hanyalah mewariskan ilmu. Barangsiapa yang mengambilnya, maka dia telah memperoleh keberuntungan yang banyak."
 
-"Jika Allah menghendaki kebaikan pada diri seorang hamba, Allah akan memperkerjakannya sebelum ia mati"
+HR Abu Dawud no. 3641 dan Tirmidzi no. 2682, Shahih. 
+Dinukil dari Rumaysho.com dalam artikel "Lalai Untuk Belajar Islam"
 
-para sahabat bertanya, "Wahai Rasulullah, bagaimana Allah memperkerjakannya?"
+Sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-beliau menjawab, "Allah akan membimbingnya untuk mengerjakan amal shalih, kemudia Allah akan mencabut nyawanya saat ia tengah mengerjakan amal shalih tersebut."
-
-HR. Tirmidzi no. 2142,2229
-
-Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
-
-read more : https://www.facebook.com/umf.muhamadfajri/posts/1647896375562572
-
-### 8. Mengenal Hakikat Dunia
-
-Nasihat Ibnu Abi al-Hawariy -rahimahullah- :
-"Siapa saja yang mengenal hakikat dunia ini maka dia akan zuhud di dalamnya, dan siapa saja yang mengenal hakikat Akhirat maka dia akan menginginkannya, dan siapa saja yang mengenal Allah dia akan mendahulukan ridla-Nya"
-
-Albidayah Wannihayah 11/202
-
-Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
-
-read more : https://www.facebook.com/musamulyadi/posts/4660433957357538
-
+- [ ] x-x-x / repost 10-8-20
 ### 9. Untitled
 
 Sa'id bin Al-Musayyib -rahimahullah- berkata,
@@ -114,9 +110,29 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan se
 
 read more : https://www.facebook.com/musamulyadi/posts/4671457482921852
 
-### 10.
+### 10. Tawakkal Kepada Allah (Agustus '20)
 
-### 11.
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang."
+
+HR. Ahmad, Tirmidzi, An-Nasai, Ibnu Majah, Ibnu Hibban dalam kitab sahihnya, dan Al-Hakim. Tirmidzi mengatakan bahwa hadits ini hasan sahih
+Dinukil dari Rumaysho dalam artikel "Kunci Rezeki Itu Tawakkal Kepada Allah (Hadits Jami'ul 'Ulum wal Hikam #49"
+
+sumber : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
+
+- [ ] x-x-x / repost 12-08-20
+
+### 11. Sebab Terhalangnya Ibadah
+
+Ibnu Mas'ud -Radhiallahu 'anhu- pernah ditanya,
+"Mengapa Kami Tidak Mampu Melakukan Shalat Malam?".
+Beliau menjawab,
+"Dosa-Dosa kalian telah menghalangi kalian"
+
+Lathaiful Ma'arif, Hal.46. 
+Dinukil dari Muslim.or.id dalam artikel "Untukmu yang malas beribadah" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/70768-untukmu-yang-sedang-malas-beribadah.html
 
 ### 12. Datangi Shalat Dengan Semangat
 
@@ -129,27 +145,29 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/8891
 
-### 13. Saat Dicabutnya Rasa Malu
+### 13. Berputar Arah (September '20) CARI LINK
 
-Malik bin Dinar -rahimahullah- berkata,
+Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
+Rindu masa lalu dan tidak menghancurkan jejaknya. apapun yang tersisa dari masa jahiliyahmu hancurkan dan relakan, itulah taubat hijrah yang sesungguhnya
 
-"Allah tidak memberi hukuman yang lebih keras terhadap hati daripada dicabut-Nya rasa malu dari dalam hati seseorang."
+Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
+dengan sedikit penyesuaian
 
-Tanbihul Mughtarrin. 
-Dinukil dari kanal telegram Wawasan Ilmu
+read more : -
 
-Sumber : https://t.me/wawasan_muslim/9051
+- [] x-x-x / repost 1-9-20
 
-### 14. Ketika Ada Rintangan Dalam Menjalani Kebenaran
+### 14. Harapan atau Angan ? (September '20)
 
-Ibnul Qayyim -rahimahullah- berkata,
+Syaikh Abdul Aziz ar-Rajihi menjelaskan,
+Harapan itu disertai dengan mengerahkan kesungguhan dan bertawakal dengan sebaik-baiknya. Namun ia berubah menjadi angan-angan tatkala upayanya dilakukan dengan bermalas-malasan
 
-"Kebenaran akan mendapatkan pertolongan dan akan diuji. Maka jangan heran terhadap ujian itu, karena semua itu sudah menjadi ketetapan Allah Yang Maha pengasih. Dengan ujian dan cobaan itulah, akan tampak jelas siapa tentara Allah Subhanahu Wa Ta’ala dan siapa musuh-Nya. Dan dengan itu pula, manusia terpisah menjadi dua kelompok (antara yang selamat dan yang menyimpang)."
+Syarh al-Ushul ats-Tsalatsah, hal. 59. 
+Dinukil dari Muslimafiyah.com dalam artikel "Untuk Apa Kamu Hidup"
 
-Syair An Nuniyah (1/17).
-Dinukil dari kanal telegram Wawasan Ilmu
+Sumber : https://muslim.or.id/58455-untuk-apa-kamu-hidup.html
 
-Sumber : https://t.me/wawasan_muslim/9059
+- [] x-x-x / repost 11-9-20
 
 ### 15. Angan-Angan Mereka Yang Telah Berada di Kubur
 
@@ -164,16 +182,16 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9138
 
-### 16. Adab Makan
+### 16. Membuat Gembira Saudara (Agustus '20 / judul asli Kegembiraan Saudaramu)
 
-Ibnu Muflih -rahimahullah- berkata,
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Seutama-utama amal shalih ialah hendaknya engkau memasukkan kegembiraan kepada saudaramu yang beriman"
 
-"Sepatutnya menampakkan suara tasmiyah (bismillah)  ketika hendak makan untuk mengingatkan yang lain juga."
+HR. Ibnu Abid Dunya, dihasankan Syaikh Al-Albani dalam Shahiih Al Jaami'ush Shaghir no. 1096
+Dinukil dari buku berjudul Adab Bergaul Agar Dicintai Allah Kemudian Dicintai Manusia hal 17
+yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 
-Al Aadab Asy Syar'iyyah.
-Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
-
-Sumber : https://t.me/wawasan_muslim/9260
+- [ ] x-x-x / repost  31-08-20
 
 ### 17. Terus Menyebarkan Ilmu
 
