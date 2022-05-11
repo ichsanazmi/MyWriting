@@ -215,7 +215,16 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9272
 
-### 19.
+### 19. Untitled
+
+Sebagian orang ada yang merasa rindu dengan awal-awal dulu ketika ia mendapatkan hidayah.
+Namun sayang, betapa sedikit usahanya sekarang untuk mempertahankan hidayah.
+Entah di masa depan nanti, dengan kondisi yang terus seperti ini, tak takutkah dia dengan tercabutnya hidayah?
+Ustadz Boris Tanesia -hafizhahullah-
+
+Dinukil dari facebook beliau -hafizhahullah-
+
+Sumber : https://www.facebook.com/boris.tanesia/posts/10214452877536543
 
 ### 20.
 
