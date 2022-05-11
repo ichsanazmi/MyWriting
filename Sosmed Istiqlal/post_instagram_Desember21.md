@@ -2,7 +2,7 @@
 
 ___
 
-### 1. (v) Penghilang Nikmat dan Pengundang Musibah
+### 1.  Penghilang Nikmat dan Pengundang Musibah
 
 Ibnu Qoyyim Al Jauziyah -Rahimahullah- berkata,
 
@@ -13,11 +13,11 @@ Dinukil dari Muslim.or.id dalam artikel "Bertekad Untuk Tidak Melakukan Dosa" ju
 
 Sumber : https://muslim.or.id/71739-bertekad-untuk-tidak-melakukan-dosa.html
 
-- [x ] 1-12-21 evie-s-DV0Vhf7ZHDk-unsplash
+- [x] 1-12-21 evie-s-DV0Vhf7ZHDk-unsplash
 
 ___
 
-### 2. (v) Luasnya Ampunan Allah
+### 2.  Luasnya Ampunan Allah
 
 Nabi -Shallallahu ‘alaihi wasallam- bersabda, sesungguhnya Allah Ta’ala telah berfirman,
 
@@ -28,11 +28,11 @@ Dinukil dari Muslim.or.id dalam artikel "Bertekad Untuk Tidak Melakukan Dosa"
 
 Sumber : https://muslim.or.id/71739-bertekad-untuk-tidak-melakukan-dosa.html
 
-- [x ] 2-12-21 pat-whelen-zyslr75hc6A-unsplash
+- [x] 2-12-21 pat-whelen-zyslr75hc6A-unsplash
 
 ___
 
-### 3. (v) Urgensi Menjaga Shalat
+### 3.  Urgensi Menjaga Shalat
 
 Rasulullah -Shallallahu ‘alaihi wasallam- bersabda,
 
@@ -43,11 +43,11 @@ Dinukil dari Muslim.or.id dalam artikel "Shalat Adalah Kebutuhan Kita"
 
 Sumber:  https://muslim.or.id/71471-shalat-adalah-kebutuhan-kita.html
 
-- [x ] 3-12-21 dewang-gupta-Mu3T3DmvQQw-unsplash
+- [x] 3-12-21 dewang-gupta-Mu3T3DmvQQw-unsplash
 
 ___
 
-### 4. (v) Penebus Dosa Yang Lalu
+### 4.  Penebus Dosa Yang Lalu
 
 Rasulullah -Shallallahu ‘alaihi wasallam- bersabda,
 
@@ -58,11 +58,11 @@ Dinukil dari Muslim.or.id dalam artikel "Shalat Adalah Kebutuhan Kita"
 
 Sumber : https://muslim.or.id/71471-shalat-adalah-kebutuhan-kita.html
 
-- [x ] 6-12-21 mrjn-photography-YpZ2cj4s0oo-unsplash.RcASuTAj.jpg
+- [x] 6-12-21 mrjn-photography-YpZ2cj4s0oo-unsplash.RcASuTAj.jpg
 
 ____
 
-### 5. (v) Ancaman Bagi Yang Tidak Mengerjakan Hal Yang Ia Perintahkan (Oktober '20)
+### 5.  Ancaman Bagi Yang Tidak Mengerjakan Hal Yang Ia Perintahkan (Oktober '20)
 
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 “Kelak pada hari kiamat didatangkan seorang lelaki, lalu dia dilemparkan ke dalam neraka. Usus perutnya pun terburai. Dia berputar-putar seperti seekor keledai mengelilingi alat penggilingan. Para penduduk neraka berkumpul mengerumuninya. Mereka pun bertanya kepadanya, “Wahai fulan, apa yang terjadi padamu. Bukankah dulu kamu memerintahkan yang ma’ruf dan melarang yang mungkar?”. Dia menjawab, “Benar. Aku dulu memang memerintahkan yang ma’ruf tapi aku tidak melaksanakannya. Aku juga melarang yang mungkar tetapi aku justru melakukannya.”
@@ -73,11 +73,11 @@ Dinukil dari Muslim.or.id dalam artikel berjudul "Pondasi Tegaknya Ibadah"
 Sumberread more :
 https://muslim.or.id/58612-pondasi-tegaknya-ibadah.html
 
-- [x ] 7-12-21 // repost 1-10-20 tobias-rademacher-wnF27F85ZKw-unsplash
+- [x] 7-12-21 // repost 1-10-20 tobias-rademacher-wnF27F85ZKw-unsplash
 
 ___
 
-### 6. (v) Mengenal Hakikat Dunia
+### 6.  Mengenal Hakikat Dunia
 
 Nasihat Ibnu Abi al-Hawariy -rahimahullah-,
 "Siapa saja yang mengenal hakikat dunia ini maka dia akan zuhud di dalamnya, dan siapa saja yang mengenal hakikat Akhirat maka dia akan menginginkannya, dan siapa saja yang mengenal Allah dia akan mendahulukan ridla-Nya"
@@ -87,11 +87,11 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan s
 
 sumber : https://www.facebook.com/musamulyadi/posts/4660433957357538
 
-- [x ] 8-12-21 abuzar-xheikh-M60DTUtSbHQ-unsplash.FYMzoiEB.jpg
+- [x] 8-12-21 abuzar-xheikh-M60DTUtSbHQ-unsplash.FYMzoiEB.jpg
 
 ___
 
-### 7. (v) Saat Dicabutnya Rasa Malu
+### 7.  Saat Dicabutnya Rasa Malu
 
 Malik bin Dinar -rahimahullah- berkata, 
 "Allah tidak memberi hukuman yang lebih keras terhadap hati daripada dicabut-Nya rasa malu dari dalam hati seseorang."
@@ -101,11 +101,11 @@ Dinukil dari kanal telegram Wawasan Ilmu
 
 Sumber : https://t.me/wawasan_muslim/9051 
 
-- [x ] 9-12-21 marianne-krohn-nrnUa2IoxSU-unsplash
+- [x] 9-12-21 marianne-krohn-nrnUa2IoxSU-unsplash
 
 ___
 
-### 8. (v) Doa Berlindung Dari Keburukan (Okt 20)
+### 8.  Doa Berlindung Dari Keburukan (Okt 20)
 
 Rasulullah shallallahu ’alaihi wa sallam berdoa,
 
@@ -119,11 +119,11 @@ Dinukil dari Rumaysho.com dalam artikel berjudul "Bulughul Maram Akhlak Menjadi 
 sumber :
 https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 
-- [x ] 10-12-21 // repost 7-10-20 dameli-zhantas-gapRs3zsdg0-unsplash
+- [x] 10-12-21 // repost 7-10-20 dameli-zhantas-gapRs3zsdg0-unsplash
 
 ___
 
-### 9. (v) Keutamaan Menyebarkan Ilmu
+### 9.  Keutamaan Menyebarkan Ilmu
 
 Rasulullah -Shallallahu ‘alaihi wa sallam- bersabda kepada ‘Ali,
 Demi Allah, sungguh satu orang saja diberi petunjuk (oleh Allah) melalui perantaraanmu, maka itu lebih baik dari unta merah
@@ -136,11 +136,11 @@ Miftah Daar As-Sa’adah, 1:247
 Dinukil dari Rumaysho dalam artikel "Lebih dari 100 Keutamaan Orang Berilmu dari Kitab Miftah Daar As-Saadah"
 read more : https://rumaysho.com/29364-lebih-dari-100-keutamaan-orang-berilmu-dari-kitab-miftah-daar-as-saadah.html
 
-- [x ] 13-12-21 marten-bjork-FVtG38Cjc_k-unsplash
+- [x] 13-12-21 marten-bjork-FVtG38Cjc_k-unsplash
 
 ___
 
-### 10. (v) Ketika Ada Rintangan Dalam Menjalani Kebenaran
+### 10.  Ketika Ada Rintangan Dalam Menjalani Kebenaran
 
 Ibnul Qayyim -rahimahullah- berkata,
 "Kebenaran akan mendapatkan pertolongan dan akan diuji. Maka jangan heran terhadap ujian itu, karena semua itu sudah menjadi ketetapan Allah Yang Maha pengasih. Dengan ujian dan cobaan itulah, akan tampak jelas siapa tentara Allah Subhanahu Wa Ta’ala dan siapa musuh-Nya. Dan dengan itu pula, manusia terpisah menjadi dua kelompok (antara yang selamat dan yang menyimpang)."
@@ -150,11 +150,11 @@ Dinukil dari kanal telegram Wawasan Ilmu
 
 Sumber : https://t.me/wawasan_muslim/9059
 
-- [x ] 14-12-21 joe-beck-NbUokuw0BQI-unsplash
+- [x] 14-12-21 joe-beck-NbUokuw0BQI-unsplash
 
 ___
 
-### 11. (v) Doa Memohon Kebaikan Agama dan Akhirat
+### 11.  Doa Memohon Kebaikan Agama dan Akhirat
 
 اللَّهُمَّ أَصْلِحْ لِي دِينِي الَّذِي هُوَ عِصْمَةُ أَمْرِي وَأَصْلِحْ لِي دُنْيَايَ الَّتِي فِيهَا مَعَاشِي وَأَصْلِحْ لِي آخِرَتِي الَّتِي فِيهَا مَعَادِي وَاجْعَلْ الْحَيَاةَ زِيَادَةً لِي فِي كُلِّ خَيْرٍ وَاجْعَلْ الْمَوْتَ رَاحَةً لِي مِنْ كُلِّ شَرٍّ
 Allahumma ashlih lii diinilladzi huwa 'ishmatu 'amri, wa ashlih lii dunyaaya allatii fiihaa ma'aaisyii, Wa ashlih lii aakhirotii allati fiihaa ma'aa dii, Waj'alhayaata ziyaadatan lii fii kulli khoirin, Waj'al mauta roohatan lii min kulli syarrin.
@@ -165,11 +165,11 @@ Ya Allah, perbaikilah agamaku yang merupakan pokok urusanku, perbaikilah duniaku
 HR. Muslim. 
 Dinukil dari buku 100 Doa Pilihan dari Al-Quran & Hadits Shahih terbitan Pustaka Al-Inabah
 
-- [x ] 15-12-21 matthew-henry-HeVd38MWnw4-unsplash
+- [x] 15-12-21 matthew-henry-HeVd38MWnw4-unsplash
 
 ____
 
-### 12. () Jika Allah Menghendaki Kebaikan
+### 12. Jika Allah Menghendaki Kebaikan
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Jika Allah menghendaki kebaikan pada diri seorang hamba, Allah akan memperkerjakannya sebelum ia mati"
@@ -182,11 +182,11 @@ Dinukil dari status facebook Ustadz Muhamad Fajri, M.Pd -hafizhahullah-
 
 sumber : https://www.facebook.com/umf.muhamadfajri/posts/1647896375562572
 
-- [x ] 16-12-21 dev-benjamin-voIzq8LEdlo-unsplash.iaNk_35f.jpg
+- [x] 16-12-21 dev-benjamin-voIzq8LEdlo-unsplash.iaNk_35f.jpg
 
 ___
 
-### 13. () Jangan Mencela Makanan
+### 13. Jangan Mencela Makanan
 
 Abu Hurairah -Radhiallahu 'anhu- berkata,
 “Tidaklah Nabi -shallallahu ‘alaihi wa sallam- mencela suatu makanan sedikit pun. Seandainya beliau menyukainya, beliau menyantapnya. Jika tidak menyukainya, beliau meninggalkannya (tidak memakannya).”
@@ -197,11 +197,11 @@ Dinukil dari Rumaysho dalam artikel "Jangan menjelek-jelekan makanan" dengan sed
 Sumberelengkapnya : https://rumaysho.com/6777-jangan-menjelek-jelekkan-makanan.html
 
 
-- [x ] 17-12-21 toa-heftiba-_hqV-h2sQHM-unsplash.jpg
+- [x] 17-12-21 toa-heftiba-_hqV-h2sQHM-unsplash.jpg
 
 ___
 
-### 14. () Pahala Shalat Sepanjang Malam (Okt '20)
+### 14. Pahala Shalat Sepanjang Malam (Okt '20)
 
 Rasulullah -shallallahu ‘alaihi wasallam- bersabda,
 “Siapa yang membaca 100 ayat pada suatu malam dituliskan baginya pahala shalat sepanjang malam.”
@@ -212,11 +212,11 @@ Dinukil dari Muslim.or.id dalam artikel "Keutamaan Membaca AlQuran"
 sumber :
 https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 
-- [x ] 20-12-21 / repost 16-10-20 sidik-kurniawan-hiFpJqA4FcE-unsplash.jpg
+- [x] 20-12-21 / repost 16-10-20 sidik-kurniawan-hiFpJqA4FcE-unsplash.jpg
 
 ___
 
-### 15. () Adab Makan
+### 15. Adab Makan
 
 Ibnu Muflih -rahimahullah- berkata,
 "Sepatutnya menampakkan suara tasmiyah (bismillah) ketika hendak makan untuk mengingatkan yang lain juga."
@@ -226,11 +226,11 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9260
 
-- [x ] 21-12-21 jordane-mathieu-k7VgPnWFcx8-unsplash
+- [x] 21-12-21 jordane-mathieu-k7VgPnWFcx8-unsplash
 
 ___
 
-### 16. () Kebaikan Berlipat di Tiap Huruf (okt '20, judul asli 10 Kebaikan))
+### 16. Kebaikan Berlipat di Tiap Huruf (okt '20, judul asli 10 Kebaikan))
 
 Rasulullah -shallallahu ‘alaihi wasallam- bersabda,
 “Siapa yang membaca satu huruf dari Al Quran maka baginya satu kebaikan dengan bacaan tersebut, satu kebaikan dilipatkan menjadi 10 kebaikan semisalnya dan aku tidak mengatakan الم satu huruf akan tetapi Alif satu huruf, Laam satu huruf dan Miim satu huruf.”
@@ -241,11 +241,11 @@ Dinukil dari Muslim.or.id dalam artikel "Keutamaan Membaca AlQuran"
 sumber :
 https://muslim.or.id/8669-keutamaan-membaca-al-quran.html
 
-- [x ] 22-12-21 // repost 20-10-20 wizdan-zacky-fauzan-Jb0nTHhXIYA-unsplash
+- [x] 22-12-21 // repost 20-10-20 wizdan-zacky-fauzan-Jb0nTHhXIYA-unsplash
 
 ___
 
-### 17. () Nikmat yang Menipu (Juli '20)
+### 17. Nikmat yang Menipu (Juli '20)
 
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda ,
 "Dua nikmat, kebanyakan manusia tertipu dengan keduanya, yaitu kesehatan dan waktu luang"
@@ -255,11 +255,11 @@ Dinukil dari Muslimah.or.id dalam artikel "Nikmat Yang Banyak Dilalaikan"
 
 Sumber : https://muslimah.or.id/7233-2-nikmat-yang-banyak-dilalaikan.html
 
-- [x ] 23-12-21 / repost 26-07-20 annie-spratt-XSdHnR_LJmE-unsplash
+- [x] 23-12-21 / repost 26-07-20 annie-spratt-XSdHnR_LJmE-unsplash
 
 ___
 
-### 18. () Kedermawanan yang Tercela (Juli '20)
+### 18. Kedermawanan yang Tercela (Juli '20)
 
 Syaikhul Islam Ibnu Taimiyah -rahimahullah- berkata,
 “Bentuk kedermawanan yang paling buruk adalah kedermawananmu dalam menghadiahkan kebaikan-kebaikanmu kepada orang lain (yang diakibatkan oleh) menggunjing, mengadu domba, menfitnah, mencela dan mencaci-maki.”
@@ -269,11 +269,11 @@ Dinukil dari status Ustadz Abu Razin Taufiq -Hafizhahullah-
 
 sumber : https://web.facebook.com/abu.yusha/posts/2917034971734511
 
-- [x ] 24-12-21 / repost 27-07-20 clay-banks-h4elZPxUXLU-unsplash.ScwpYgIP.jpg
+- [x] 24-12-21 / repost 27-07-20 clay-banks-h4elZPxUXLU-unsplash.ScwpYgIP.jpg
 
 ___
 
-### 19. () Introspeksi Diri (Agustus '20)
+### 19. Introspeksi Diri (Agustus '20)
 
 Al-Fudhail bin ‘Iyadh - rahimahullah- mengatakan,
 “Mukmin itu yang rajin menghisab dirinya dan ia mengetahui bahwa ia akan berada di hadapan Allah kelak. Sedangkan orang munafik adalah orang yang lalai terhadap dirinya sendiri (enggan mengoreksi diri, pen.). Semoga Allah merahmati seorang hamba yang terus mengoreksi dirinya sebelum datang malaikat maut menjemputnya."
@@ -283,11 +283,11 @@ Dinukil dari Rumaysho dalam artikel "Bisakah Jadi Lebih Baik"
 
 Sumber : https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
-- [x ] 27-12-21 / repost 03-08-20 lowell-so-Bn8eOJmZXtc-unsplash.k926qid7.jpg
+- [x] 27-12-21 / repost 03-08-20 lowell-so-Bn8eOJmZXtc-unsplash.k926qid7.jpg
 
 ___
 
-### 20. () Efek Taqwanya Lisan (Agustus '20 / Judul Asli Berbanding Lurus)
+### 20. Efek Taqwanya Lisan (Agustus '20 / Judul Asli Berbanding Lurus)
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 “Jika manusia berada di waktu pagi, maka semua anggota badannya menyalahkan lisan. 
@@ -298,11 +298,11 @@ Dinukil dari Muslim.or.id dalam artikel "Buah Manis Menjaga Lisan"
 
 Sumber : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
-- [x ] 28-12-21 / repost 27-08-20 tomoko-uji-STsMn4oIe64-unsplash.zFu5UBZp.jpg
+- [x] 28-12-21 / repost 27-08-20 tomoko-uji-STsMn4oIe64-unsplash.zFu5UBZp.jpg
 
 ___
 
-### 21. () Istiqomahnya Lisan (Agustus '20)
+### 21. Istiqomahnya Lisan (Agustus '20)
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 “Tidak akan lurus di atas jalan istiqomah iman seorang hamba sebelum istiqomah hatinya, dan tidak akan istiqomah hatinya sebelum istiqomah lisannnya”.
@@ -312,11 +312,11 @@ Dinukil dari Muslim.or.id dalam artikel "Buah Manis Menjaga Lisan"
 
 sumber : https://muslim.or.id/57826-buah-manis-menjaga-lisan.html
 
-- [x ] 29-12-21 / repost 28-08-20 himal-rana-_g1IMF0DqAw-unsplash.lO-aXje8.jpg
+- [x] 29-12-21 / repost 28-08-20 himal-rana-_g1IMF0DqAw-unsplash.lO-aXje8.jpg
 
 ___
 
-### 22. () Keutamaan Shaf Awal (Agustus '20)
+### 22. Keutamaan Shaf Awal (Agustus '20)
 
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 “Seandainya orang-orang mengetahui pahala azan dan shaf pertama, kemudian mereka tidak mendapatkannya melainkan dengan cara mengadakan undian, pasti mereka melakukannya.”
@@ -326,11 +326,11 @@ Dinukil dari Rumaysho dalam artikel "Mengejar Shaf Pertama"
 
 Sumberread more : https://rumaysho.com/17030-mengejar-shaf-pertama.html
 
-- [x ] 30-12-21 / repost 24-08-20 utsman-media-L4SDwP3LElQ-unsplash
+- [x] 30-12-21 / repost 24-08-20 utsman-media-L4SDwP3LElQ-unsplash
 
 ---
 
-### 23. () Ilmu Sebelum Amal (Agustus '20)
+### 23. Ilmu Sebelum Amal (Agustus '20)
 
 'Umar bin 'Abdul 'Aziz -rahimahullah- berkata,
 
@@ -341,7 +341,4 @@ Dinukil dari Rumaysho.com dalam artikel "Lalai Untuk Belajar Islam"
 
 sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-- [x ] 31-12-21 / repost 11-08-20 utsman-media-BrgwHYI-428-unsplash
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ3OTQxMzIxMl19
--->
+- [x] 31-12-21 / repost 11-08-20 utsman-media-BrgwHYI-428-unsplash
