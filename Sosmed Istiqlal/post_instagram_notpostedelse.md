@@ -99,10 +99,46 @@ dengan sedikit penyesuaian
 read more : -
 
 - [] x-x-x / repost 1-9-20
-### 10. 
-### 11. 
-### 12. 
-### 13. 
+### 10. Semangat Menyebarkan Ilmu
+___
+Syaikh Ibnu Baz -rahimahullah- berkata,
+
+"Engkau wajib semangat menyebarkan ilmu dengan sungguh-sungguh dan sekuat tenaga, jangan sampai mereka yang berada di atas kebatilan lebih semangat dalam menyampaikan kebatilan mereka, dan hendaknya engkau juga bersemangat untuk memberikan manfaat kepada kaum muslimin terkait dengan agama dan dunia mereka."
+
+Majmu Fatawa 6/76.
+Dinukil dari kanal telegram Wawasan Ilmu
+
+Sumber : https://t.me/wawasan_muslim/12002
+### 11. Di Balik Musibah
+___
+Syaikhul Islam Ibnu Taimiyah -rahimahullah- berkata,
+
+"Apabila ujian semakin besar, maka bagi seorang mukmin yang saleh menjadi sebab tingginya derajat dan besarnya pahala."
+
+Al Istiqamah 2/260.
+Dinukil dari kanal telegram Wawasan Ilmu
+
+Sumber : https://t.me/wawasan_muslim/12006
+### 12. Tadabbur Al Qur'an kunci hidayah
+___
+Ibnu Hubairah -rahimahullah- berkata,
+
+"Termasuk tipu daya setan adalah membuat jauh hamba-hamba Allah dari mentadaburi Al-Quran, karena diketahui bahwa petunjuk akan datang ketika seseorang mentadaburi Al-Quran."
+
+Dzail Thabaqat Al Hanabilah 1/111.
+Dinukil dari kanal telegram Wawasan Ilmu
+
+Sumber : https://t.me/wawasan_muslim/12028
+### 13. Terus Beribadah Kepada Allah Sampai Ajal Menjemput
+___
+Syaikh Ibnu Utsaimin -rahimahullah- berkata,
+
+"Amal itu tidak berakhir dengan habisnya musim ketaatan, akan tetapi amal berakhir dengan habisnya ajal."
+
+Liqa'ul babil Maftuh no. 51.
+Dinukil dari kanal telegram Wawasan Ilmu
+
+Sumber : https://t.me/wawasan_muslim/12051
 ### 14. 
 ### 15. 
 ### 16. 
@@ -119,4 +155,4 @@ read more : -
 ### 27.
 ### 28.
 ### 29.
-### 30.
+### 30.  

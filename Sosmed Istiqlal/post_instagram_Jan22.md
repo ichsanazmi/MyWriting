@@ -2,7 +2,7 @@
 
 ___
 
-### 1. () Memenuhi Kebutuhan Seorang Muslim
+### 1. (v) Memenuhi Kebutuhan Seorang Muslim
 ___
 Rasulullah -shalallahu alaihi wa sallam- bersabda,
 
@@ -13,9 +13,9 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9272
 
-- [] 3-1-22
+- [] 3-1-22 rolf-blicher-godfrey-Pqhzts9gpEc-unsplash
 
-### 2. () Harapan atau Angan ? (September '20)
+### 2. (v) Harapan atau Angan ? (September '20)
 ___
 Syaikh Abdul Aziz ar-Rajihi menjelaskan,
 
@@ -26,9 +26,9 @@ Dinukil dari Muslimafiyah.com dalam artikel "Untuk Apa Kamu Hidup"
 
 Sumber : https://muslim.or.id/58455-untuk-apa-kamu-hidup.html
 
-- [] 4-1-22  / repost 11-9-20
+- [] 4-1-22  / repost 11-9-20 pexels-daria-shevtsova-3794732
 
-### 3. () Berharaplah Diterima (Okt '20)
+### 3. (v) Berharaplah Diterima (Okt '20)
 ___
 Ibnu 'Aun -rahimahullah- berkata,
 
@@ -40,9 +40,9 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah-
 sumber :
 https://www.facebook.com/musamulyadi/posts/3421645881236358
 
-- [ ] 5-1-22 / repost 21-10-20
+- [ ] 5-1-22 / repost 21-10-20 pexels-rahul-pandit-1212487
 
-### 4. () Untitled
+### 4. (v) Fitnah Wanita
 ___
 Sa'id bin Al-Musayyib -rahimahullah- berkata,
 
@@ -53,9 +53,9 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan se
 
 read more : https://www.facebook.com/musamulyadi/posts/4671457482921852
 
-- [ ] 6-1-22
+- [ ] 6-1-22 pexels-evie-shaffer-2395251
 
-### 5. () Datangi Shalat Dengan Semangat
+### 5. (v) Datangi Shalat Dengan Semangat
 ___
 Ibnu Abbas -radhiyallahu anhuma- berkata,
 
@@ -66,9 +66,9 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/8891
 
-- [ ] 7-1-22
+- [ ] 7-1-22 mario-la-pergola-myy2_CazPR8-unsplash
 
-### 6. () Angan-Angan Mereka Yang Telah Berada di Kubur
+### 6. (v) Angan-Angan Mereka Yang Telah Berada di Kubur
 ___
 Imam Ibnu Rajab -rahimahullah- berkata,
 
@@ -81,9 +81,9 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9138
 
-- [ ] 10-1-22
+- [ ] 10-1-22 pexels-vishnu-r-nair-1105666
 
-### 7. () Membuat Gembira Saudara (Agustus '20 / judul asli Kegembiraan Saudaramu)
+### 7. (v) Membuat Gembira Saudara Seiman (Agustus '20 / judul asli Kegembiraan Saudaramu)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Seutama-utama amal shalih ialah hendaknya engkau memasukkan kegembiraan kepada saudaramu yang beriman"
@@ -92,9 +92,9 @@ HR. Ibnu Abid Dunya, dihasankan Syaikh Al-Albani dalam Shahiih Al Jaami'ush Shag
 Dinukil dari buku berjudul Adab Bergaul Agar Dicintai Allah Kemudian Dicintai Manusia hal 17
 yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 
-- [ ] 11-1-22 / repost  31-08-20
+- [ ] 11-1-22 / repost  31-08-20 pexels-nastyasensei-2575830
 
-### 8. () Terus Menyebarkan Ilmu
+### 8. (v) Terus Menyebarkan Ilmu
 
 Syaikh Muhammad bin Sholih Al Utsaimin -rahimahullah- berkata,
 
@@ -105,7 +105,7 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9266
 
-- [ ] 12-1-22
+- [ ] 12-1-22 pexels-miguel-á-padriñán-194094
 
 ### 9. () Takut Akan Tercabutnya Hidayah
 ___
@@ -118,7 +118,7 @@ Dinukil dari facebook beliau -hafizhahullah-
 
 Sumber : https://www.facebook.com/boris.tanesia/posts/10214452877536543
 
-- [ ] 13-1-22
+- [ ] 13-1-22 pexels
 
 ### 10. () Andai Ia Meninggalkan Bau (Agustus '20)
 ___
@@ -132,7 +132,7 @@ Dinukil dari Rumaysho dalam artikel "Bisakah Jadi Lebih Baik"
 Sumber :
 https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
-- [ ] 14-1-22 / repost 04-08-20
+- [ ] 14-1-22 / repost 04-08-20 pexels-elti-meshau-333850
 
 ### 11. () Warisan Para Nabi (Agustus '20)
 ___
@@ -145,11 +145,20 @@ Dinukil dari Rumaysho.com dalam artikel "Lalai Untuk Belajar Islam"
 
 Sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-- [ ] 17-1-22  / repost 10-8-20
+- [ ] 17-1-22  / repost 10-8-20 pexels-karolina-grabowska-4207791
 
-### 12. ()
+### 12. () Mengapa Tidak Merasakan Nikmatnya Ibadah?
 ___
-- [ ] 18-1-22
+Yahya bin Mu'adz -rahimahullah- berkata,
+
+"Sakitnya badan karena penyakit dan sakitnya hati karena dosa. Sebagaimana badan tidak merasakan nikmatnya makan ketika sakit, maka demikian pula hati tidak merasakan manisnya ibadah ketika jatuh ke dalam dosa-dosa."
+
+Dzammul Hawa karya Ibnul Jauzi 1/68.
+Dinukil dari kanal telegram Wawasan Ilmu
+
+Sumber : https://t.me/wawasan_muslim/12074
+
+- [ ] 18-1-22 pexels-nothing-ahead-4640971
 
 ### 13. ()
 ___
