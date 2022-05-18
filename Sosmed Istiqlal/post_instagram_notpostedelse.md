@@ -65,38 +65,17 @@ Dinukil dari Rumaysho.com dalam artikel berjudul "Bulughul Maram Akhlak Menjadi 
 
 read more : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 
-### 7. Tawakkal Kepada Allah (Agustus '20)
-
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-"Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang."
-
-HR. Ahmad, Tirmidzi, An-Nasai, Ibnu Majah, Ibnu Hibban dalam kitab sahihnya, dan Al-Hakim. Tirmidzi mengatakan bahwa hadits ini hasan sahih
-Dinukil dari Rumaysho dalam artikel "Kunci Rezeki Itu Tawakkal Kepada Allah (Hadits Jami'ul 'Ulum wal Hikam #49"
-
-sumber : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
-
-- [ ] x-x-x / repost 12-08-20
-
-### 8. Sebab Terhalangnya Ibadah
-
-Ibnu Mas'ud -Radhiallahu 'anhu- pernah ditanya,
-"Mengapa Kami Tidak Mampu Melakukan Shalat Malam?".
-Beliau menjawab,
-"Dosa-Dosa kalian telah menghalangi kalian"
-
-Lathaiful Ma'arif, Hal.46. 
-Dinukil dari Muslim.or.id dalam artikel "Untukmu yang malas beribadah" dengan sedikit penyesuaian
-
-Sumber : https://muslim.or.id/70768-untukmu-yang-sedang-malas-beribadah.html
-### 9. Berputar Arah (September '20) CARI LINK
-
-Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
-Rindu masa lalu dan tidak menghancurkan jejaknya. apapun yang tersisa dari masa jahiliyahmu hancurkan dan relakan, itulah taubat hijrah yang sesungguhnya
+### 7. 
+### 8. 
+### 9. Kawan Hijrah
+Disebutkan bahwa di antara penyebab terjadinya Intikas (berbalik keadaan) adalah
+Rindu masa lalu dan tidak menghancurkan jejaknya.
+Apa pun yang tersisa dari masa jahiliyyahmu hancurkan dan relakan, itulah taubat hijrah yang sesungguhnya
 
 Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
 dengan sedikit penyesuaian
 
-read more : -
+read more : https://www.facebook.com/photo?fbid=3229195297148085&set=a.696709553730018
 
 - [] x-x-x / repost 1-9-20
 ### 10. Semangat Menyebarkan Ilmu
@@ -129,16 +108,7 @@ Dzail Thabaqat Al Hanabilah 1/111.
 Dinukil dari kanal telegram Wawasan Ilmu
 
 Sumber : https://t.me/wawasan_muslim/12028
-### 13. Terus Beribadah Kepada Allah Sampai Ajal Menjemput
-___
-Syaikh Ibnu Utsaimin -rahimahullah- berkata,
-
-"Amal itu tidak berakhir dengan habisnya musim ketaatan, akan tetapi amal berakhir dengan habisnya ajal."
-
-Liqa'ul babil Maftuh no. 51.
-Dinukil dari kanal telegram Wawasan Ilmu
-
-Sumber : https://t.me/wawasan_muslim/12051
+### 13. 
 ### 14. 
 ### 15. 
 ### 16. 

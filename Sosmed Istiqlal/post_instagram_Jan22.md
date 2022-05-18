@@ -13,7 +13,7 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9272
 
-- [] 3-1-22 rolf-blicher-godfrey-Pqhzts9gpEc-unsplash
+- [x] 3-1-22 rolf-blicher-godfrey-Pqhzts9gpEc-unsplash
 
 ### 2. (v) Harapan atau Angan ? (September '20)
 ___
@@ -26,7 +26,7 @@ Dinukil dari Muslimafiyah.com dalam artikel "Untuk Apa Kamu Hidup"
 
 Sumber : https://muslim.or.id/58455-untuk-apa-kamu-hidup.html
 
-- [] 4-1-22  / repost 11-9-20 pexels-daria-shevtsova-3794732
+- [x] 4-1-22  / repost 11-9-20 pexels-daria-shevtsova-3794732
 
 ### 3. (v) Berharaplah Diterima (Okt '20)
 ___
@@ -40,7 +40,7 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah-
 sumber :
 https://www.facebook.com/musamulyadi/posts/3421645881236358
 
-- [ ] 5-1-22 / repost 21-10-20 pexels-rahul-pandit-1212487
+- [x] 5-1-22 / repost 21-10-20 pexels-rahul-pandit-1212487
 
 ### 4. (v) Fitnah Wanita
 ___
@@ -53,7 +53,7 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah dengan se
 
 read more : https://www.facebook.com/musamulyadi/posts/4671457482921852
 
-- [ ] 6-1-22 pexels-evie-shaffer-2395251
+- [x] 6-1-22 pexels-evie-shaffer-2395251
 
 ### 5. (v) Datangi Shalat Dengan Semangat
 ___
@@ -66,7 +66,7 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/8891
 
-- [ ] 7-1-22 mario-la-pergola-myy2_CazPR8-unsplash
+- [x] 7-1-22 mario-la-pergola-myy2_CazPR8-unsplash
 
 ### 6. (v) Angan-Angan Mereka Yang Telah Berada di Kubur
 ___
@@ -81,7 +81,7 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9138
 
-- [ ] 10-1-22 pexels-vishnu-r-nair-1105666
+- [x] 10-1-22 pexels-vishnu-r-nair-1105666
 
 ### 7. (v) Membuat Gembira Saudara Seiman (Agustus '20 / judul asli Kegembiraan Saudaramu)
 ___
@@ -92,10 +92,10 @@ HR. Ibnu Abid Dunya, dihasankan Syaikh Al-Albani dalam Shahiih Al Jaami'ush Shag
 Dinukil dari buku berjudul Adab Bergaul Agar Dicintai Allah Kemudian Dicintai Manusia hal 17
 yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 
-- [ ] 11-1-22 / repost  31-08-20 pexels-nastyasensei-2575830
+- [x] 11-1-22 / repost  31-08-20 pexels-nastyasensei-2575830
 
 ### 8. (v) Terus Menyebarkan Ilmu
-
+___
 Syaikh Muhammad bin Sholih Al Utsaimin -rahimahullah- berkata,
 
 "Pesanku kepada diriku dan kepada kalian adalah hendaknya kita bersemangat menyebarkan ilmu ke tengah-tengah manusia dan tidak meremehkan sedikit pun daripadanya. Jika engkau mengajarkan kepada seorang satu materi saja, kemudian dia mengamalkannya lalu dia pun menyampaikan kepada yang lain dan seterusnya, maka setiap pahala yang diperoleh karena mengamalkan apa yang engkau sampaikan, engkau akan memperoleh juga pahalanya."
@@ -105,9 +105,9 @@ Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9266
 
-- [ ] 12-1-22 pexels-miguel-á-padriñán-194094
+- [x] 12-1-22 pexels-miguel-á-padriñán-194094
 
-### 9. () Takut Akan Tercabutnya Hidayah
+### 9. (v) Takut Akan Tercabutnya Hidayah
 ___
 Sebagian orang ada yang merasa rindu dengan awal-awal dulu ketika ia mendapatkan hidayah.
 Namun sayang, betapa sedikit usahanya sekarang untuk mempertahankan hidayah.
@@ -118,9 +118,9 @@ Dinukil dari facebook beliau -hafizhahullah-
 
 Sumber : https://www.facebook.com/boris.tanesia/posts/10214452877536543
 
-- [ ] 13-1-22 pexels
+- [x] 13-1-22 pexels
 
-### 10. () Andai Ia Meninggalkan Bau (Agustus '20)
+### 10. (v) Andai Ia Meninggalkan Bau (Agustus '20)
 ___
 Muhammad bin Wasi’ -rahimahullah- berkata,
 
@@ -132,9 +132,9 @@ Dinukil dari Rumaysho dalam artikel "Bisakah Jadi Lebih Baik"
 Sumber :
 https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
-- [ ] 14-1-22 / repost 04-08-20 pexels-elti-meshau-333850
+- [x] 14-1-22 / repost 04-08-20 pexels-elti-meshau-333850
 
-### 11. () Warisan Para Nabi (Agustus '20)
+### 11. (v) Warisan Para Nabi (Agustus '20)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -145,9 +145,9 @@ Dinukil dari Rumaysho.com dalam artikel "Lalai Untuk Belajar Islam"
 
 Sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-- [ ] 17-1-22  / repost 10-8-20 pexels-karolina-grabowska-4207791
+- [x] 17-1-22  / repost 10-8-20 pexels-karolina-grabowska-4207791
 
-### 12. () Mengapa Tidak Merasakan Nikmatnya Ibadah?
+### 12. (v) Mengapa Tidak Merasakan Nikmatnya Ibadah?
 ___
 Yahya bin Mu'adz -rahimahullah- berkata,
 
@@ -158,40 +158,120 @@ Dinukil dari kanal telegram Wawasan Ilmu
 
 Sumber : https://t.me/wawasan_muslim/12074
 
-- [ ] 18-1-22 pexels-nothing-ahead-4640971
+- [x] 18-1-22 pexels-nothing-ahead-4640971
 
-### 13. ()
+### 13. () Terus Beribadah Kepada Allah Sampai Ajal Menjemput
+___
+Syaikh Ibnu Utsaimin -rahimahullah- berkata,
+
+"Amal itu tidak berakhir dengan habisnya musim ketaatan, akan tetapi amal berakhir dengan habisnya ajal."
+
+Liqa'ul babil Maftuh no. 51.
+Dinukil dari kanal telegram Wawasan Ilmu
+
+Sumber : https://t.me/wawasan_muslim/12051
 ___
 - [ ] 19-1-22
 
-### 14. ()
+### 14. () Ilmu Sebelum Amal (Agustus '20)
 ___
-- [ ] 20-1-22
+'Umar bin 'Abdul 'Aziz -rahimahullah- berkata,
+“Barangsiapa yang beribadah kepada Allah tanpa ilmu, maka dia akan membuat banyak kerusakan daripada mendatangkan kebaikan.”
 
-### 15. ()
-___
-- [ ] 21-1-22
+Al Amru bil Ma’ruf, hal. 15
+Dinukil dari laman Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Islam"
 
-### 16. ()
-___
-- [ ] 24-1-22
+Sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-### 17. ()
-___
-- [ ] 25-1-22
+- [ ] 20-1-22 // repost 11-08-20
 
-### 18. ()
+### 15. () Tawakkal Kepada Allah (Agustus '20)
 ___
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.”
+
+HR. Ahmad, Tirmidzi, An-Nasai, Ibnu Majah, Ibnu Hibban dalam kitab sahihnya, dan Al-Hakim. Tirmidzi mengatakan bahwa hadits ini hasan sahih.
+Dinukil dari laman Rumaysho dalam artikel yang berjudul "Kunci Rezeki Itu Tawakkal Kepada Allah (Hadits Jami'ul 'Ulum wal Hikam #49"
+
+Sumber : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
+
+- [ ] 21-1-22 // repost 12-08-20
+
+### 16. () Sebab - Sebab Kebahagiaan (Agustus '20)
+___
+Kebahagiaan timbul dari kuatnya tauhid seseorang kepada Allah, besarnya ketergantungan hatinya pada Rabbnya,
+dia yakin bahwa kebahagiaannya Allah yang jamin
+
+Faidah catatan kajian dengan judul "7 Tips Bahagia di Zaman Now" oleh Ustadz Dr Firanda Andirja, Lc. MA -Hafizhahullah-
+
+Tonton selengkapnya : https://www.youtube.com/watch?v=NW59PUoiWOo
+
+- [ ] 24-1-22 // repost 14-08-20
+
+### 17. () Adab Menghadiri Shalat Jum'at (Agustus '20)
+___
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+“Tidaklah seorang laki-laki mandi pada hari Jum’at, lalu bersuci semaksimal mungkin, memakai wewangian miliknya atau minyak wangi keluarganya, lalu keluar rumah menuju masjid, dia tidak memisahkan dua orang pada tempat duduknya, lalu dia shalat sebanyak yang dia mampu dan diam mendengarkan khutbah imam, kecuali dia akan diampuni dosa-dosanya yang ada antara Jum’at itu dan Jum’at yang lainnya.”
+
+HR. Bukhari no. 883.
+Dinukil dari Muslim.or.id dalam artikel berjudul "Memperbanyak Sholat Sunnah Sebelum Datangnya Khatib Jumat".
+
+Sumber : https://muslim.or.id/58161-memperbanyak-shalat-sunnah-sebelum-datangnya-khatib-jumat.html
+
+- [ ] 25-1-22 // repost 21-08-20
+
+### 18. () Sebab Ditutupnya Pintu Taufik Dari Seseorang
+
+Syaqiq bin Ibrahim -rahimahullah- berkata,
+Pintu Taufik ditutup dari seseorang karena 6 hal:
+1. Mereka sibuk dengan nikmat Allah tetapi lupa mensyukurinya.
+2. Mereka senang dengan ilmu tetapi tidak mau mengamalkannya.
+3. Mereka segera berbuat dosa tetapi tidak segera bertobat.
+4. Mereka tertipu berteman dengan orang-orang saleh tetapi tidak mengikuti jejak langkah mereka.
+5. Dunia membelakangi mereka, tetapi mereka malah mengejarnya.
+6. Akhirat mendatangi mereka tetapi mereka malah berpaling daripadanya.
+
+Al Fawaid karya Ibnul Qayyim hal. 258.
+Dinukil dari kanal telegram Wawasan Ilmu 
+
+Sumber : https://t.me/wawasan_muslim/12113
+
 - [ ] 26-1-22
 
-### 19. ()
-___
+### 19. () Takwa dan Tawadhu
+
+Ibnu Umar -radhiyallahu anhuma- berkata, 
+"Takwa itu adalah ketika engkau tidak merasa bahwa dirimu lebih baik daripada orang lain."
+
+Tafsir Al Baghawi 1/60
+Dinukil dari kanal telegram Wawasan Ilmu 
+
+Sumber : https://t.me/wawasan_muslim/12153
+
 - [ ] 27-1-22
 
-### 20. ()
+### 20. () Sebab Terhalangnya Ibadah
 ___
+Ibnu Mas'ud -Radhiallahu 'anhu- pernah ditanya,
+"Mengapa Kami Tidak Mampu Melakukan Shalat Malam?".
+Beliau menjawab,
+"Dosa-Dosa kalian telah menghalangi kalian"
+
+Lathaiful Ma'arif, Hal.46. 
+Dinukil dari Muslim.or.id dalam artikel "Untukmu yang malas beribadah" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/70768-untukmu-yang-sedang-malas-beribadah.html
+
 - [ ] 28-1-22
 
-### 21. ()
+### 21. () Tawakkal Kepada Allah (Agustus '20)
 ___
-- [ ] 31-1-22
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+"Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang."
+
+HR. Ahmad, Tirmidzi, An-Nasai, Ibnu Majah, Ibnu Hibban dalam kitab sahihnya, dan Al-Hakim. Tirmidzi mengatakan bahwa hadits ini hasan sahih
+Dinukil dari Rumaysho dalam artikel "Kunci Rezeki Itu Tawakkal Kepada Allah (Hadits Jami'ul 'Ulum wal Hikam #49"
+
+sumber : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
+
+- [ ] 31-1-22 //  repost 12-08-20

@@ -329,10 +329,8 @@ yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 
 ---
 
-### 18. Berputar Arah
-
+### 18. Berputar Arah (September '20)
 ---
-
 Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
 Rindu masa lalu dan tidak menghancurkan jejaknya
 
@@ -565,7 +563,7 @@ read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 ---
 
-### 9. Ilmu Sebelum Amal
+### 9. Ilmu Sebelum Amal (Agustus '20)
 
 ---
 
@@ -584,7 +582,7 @@ read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 ---
 
-### 10. Tawakkal Kepada Allah
+### 10. Tawakkal Kepada Allah (Agustus '20)
 
 ---
 
