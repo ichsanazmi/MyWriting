@@ -43,7 +43,15 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi ya
 
 read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
 
-### 4. 
+### 4. Untitled
+Dikatakan kepada Bisyr Al-Hafi, suatu kaum, mereka beribadah dan bersungguh-sungguh melakukan amalan ibadah di bulan Ramadhan. Akan tetapi, ketika Ramadhan berakhir mereka pun meninggalkan amalan ibadah tersebut. 
+Lantas beliau -rahimahullah- berkata ,
+"Sejelek-jelek kaum adalah mereka yang hanya mengenal Allah Ta'ala di bulan Ramadhan."
+
+Miftahul Afkar li ta`ahhub li-daril qarar 2/23
+Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
+
+Sumber : http://www.salamdakwah.com/artikel/2798-sejelek-jelek-kaum-mengenal-allah-hanya-di-bulan-ramadhan
 
 ### 5. Tak Sesuai Dengan Lisan
 
@@ -65,7 +73,15 @@ Dinukil dari Rumaysho.com dalam artikel berjudul "Bulughul Maram Akhlak Menjadi 
 
 read more : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 
-### 7. 
+### 7. Cinta Dunia
+___
+Malik bin Dinar -rahimahullah- berkata,
+"Sesungguhnya apabila badan sakit maka tidak akan mempan padanya makanan, minuman, tidur, dan rehat. Seperti itulah hati, apabila terpaut cinta dunia maka nasehat tidak akan mempan."
+
+Azzuhdul Kabīr 1/135 karya Imam Albaihaqiy 
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
+
+Sumber : https://s.id/16Ama
 ### 8. 
 ### 9. Kawan Hijrah
 Disebutkan bahwa di antara penyebab terjadinya Intikas (berbalik keadaan) adalah
@@ -108,6 +124,7 @@ Dzail Thabaqat Al Hanabilah 1/111.
 Dinukil dari kanal telegram Wawasan Ilmu
 
 Sumber : https://t.me/wawasan_muslim/12028
+
 ### 13. Semakin Menjauh Atau mendekat?
 Ibnul Qoyyim Al Jauziyah -rahimahullah- berkata,
 Dari hal yang ajaib adalah anda mengenaliNya namun tidak mencintaiNya…
@@ -125,8 +142,57 @@ Al Fawaid Ibnul Qoyim Rahimahullah Hal. 62.
 Dinukil dari laman IlmuAsSyarie yang dikelola Ustadz Muhammad Halid Syarie,Lc dengan sedikit penyesuaian
 
 sumber : https://ilmuassyarie.com/semakin-menjauh-atau-mendekat/
-### 14. 
-### 15. 
+
+### 14. Andai Mereka Tahu
+___
+Jika saya tinggalkan dunia hitam ini lalu saya mau kemana? Jika saya keluar dari bidang haram ini lalu saya mau kerja dimana? Jika saya tinggalkan geng saya dengan segala maksiatnya, memangnya ada yang mau berteman dengan saya?
+
+Andai mereka tahu bahwa Pencipta dan Pemilik kehidupan ini telah berfirman:
+"Barangsiapa berhijrah di jalan Allah, niscaya mereka mendapati di muka bumi ini tempat hijrah yang luas dan kelapangan yang banyak..."
+An Nisaa: 100
+
+Ternyata...
+Ada kehidupan lain yang penuh dengan kehangatan siap menyambut kita.
+Banyak bidang dan lapangan pekerjaan yang menunggu kita.
+Banyak teman shalih/shalihah yang mau berpijak bersama.
+
+Hanya saja kita belum tahu dan mengenal mereka.
+
+Saudaraku..
+ALLAH memastikan bahwa dibalik hijrah ada banyak tempat yang indah, ada banyak kelapangan, rizki, ketenangan serta kebahagaian.
+
+Maka jangan ragu untuk berhijrah dari dosa.
+
+Yang perlu anda lakukan adalah terus melangkah, lalu bersabar dan bertahan, niscaya pertolongan ALLAH dan kelapangan itu pasti menyapa anda.
+Ustadz Muhammad Nuzul Dzikri, Lc -hafizhahullah-
+
+Tafsir Ath Thabari dan Al Qurthubi QS. An Nisa ayat 100
+Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
+
+Sumber : http://www.salamdakwah.com/artikel/4375-andai-mereka-tahu
+
+### 15. Jangan lalai dalam menuntu ilmu agama
+
+Ada sebuah hadits yang perlu kita renungi bersama, karena hal ini menyangkut nama baik kita di mata ALLAH ta'ala.
+Nabi -shallallahu 'alaihi wasallam- bersabda,
+"Sesungguhnya ALLAH ta'ala membenci setiap orang yang menguasai ilmu dunia namun bodoh tentang ilmu akhirat." 
+Dishahihkan Syeikh Albani dalam Shahih Jami' Shagir
+
+Saudaraku, apalah artinya pendidikan tinggi atau prestasi akademis yang kita raih serta gelar yang melekat di belakang nama kita jika kita hanya menjadi makhluk yang dibenci oleh ALLAH ta'ala.
+
+Coba kita renungkan: berapa tahun waktu yang kita habiskan untuk mempelajari ilmu dunia? Lalu kita bandingkan berapa hari dalam satu tahun kita langkahkan kaki kita ke sebuah majelis ilmu?!
+
+Marilah kita luangkan waktu untuk mengkaji firman ALLAH ta'ala dan hadits-hadits Nabi -shallallahu 'alaihi wa sallam-, kita berusaha menguasai ilmu agama sebagaimana selama ini selama belasan tahun kita pelajari ilmu dunia.
+
+Ingatlah, pintar dalam ilmu dunia dan kosong dari ilmu akhirat adalah sifat dasar orang-orang kafir yang telah dicela oleh ALLAH dalam QS. Ar Rum ayat 7:
+"Mereka hanya mengetahui yang lahir saja dari kehidupan dunia; sedang mereka tentang kehidupan akhirat adalah lalai."
+
+Ustadz Muhammad Nuzul Dzikri, Lc. -hafizhahullah-
+
+Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
+
+Sumber : http://www.salamdakwah.com/artikel/30-jangan-lalai-dalam-menuntut-ilmu-agama
+
 ### 16. 
 ### 17. 
 ### 18. 

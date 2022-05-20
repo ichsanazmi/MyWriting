@@ -170,8 +170,8 @@ Liqa'ul babil Maftuh no. 51.
 Dinukil dari kanal telegram Wawasan Ilmu
 
 Sumber : https://t.me/wawasan_muslim/12051
-___
-- [ ] 19-1-22
+
+- [ ] 19-1-22 pexels-daniel-frank-688830
 
 ### 14. () Ilmu Sebelum Amal (Agustus '20)
 ___
@@ -183,7 +183,7 @@ Dinukil dari laman Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Isla
 
 Sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-- [ ] 20-1-22 // repost 11-08-20
+- [ ] 20-1-22 // repost 11-08-20 pexels-bakr-magrabi-3203659
 
 ### 15. () Tawakkal Kepada Allah (Agustus '20)
 ___
@@ -195,7 +195,7 @@ Dinukil dari laman Rumaysho dalam artikel yang berjudul "Kunci Rezeki Itu Tawakk
 
 Sumber : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
 
-- [ ] 21-1-22 // repost 12-08-20
+- [ ] 21-1-22 // repost 12-08-20 pexels-tim-mossholder-959911
 
 ### 16. () Sebab - Sebab Kebahagiaan (Agustus '20)
 ___
@@ -206,7 +206,7 @@ Faidah catatan kajian dengan judul "7 Tips Bahagia di Zaman Now" oleh Ustadz Dr 
 
 Tonton selengkapnya : https://www.youtube.com/watch?v=NW59PUoiWOo
 
-- [ ] 24-1-22 // repost 14-08-20
+- [ ] 24-1-22 // repost 14-08-20 pexels-sem-steenbergen-3053486
 
 ### 17. () Adab Menghadiri Shalat Jum'at (Agustus '20)
 ___
@@ -218,10 +218,10 @@ Dinukil dari Muslim.or.id dalam artikel berjudul "Memperbanyak Sholat Sunnah Seb
 
 Sumber : https://muslim.or.id/58161-memperbanyak-shalat-sunnah-sebelum-datangnya-khatib-jumat.html
 
-- [ ] 25-1-22 // repost 21-08-20
+- [ ] 25-1-22 // repost 21-08-20 pexels-meruyert-gonullu-6033982
 
 ### 18. () Sebab Ditutupnya Pintu Taufik Dari Seseorang
-
+___
 Syaqiq bin Ibrahim -rahimahullah- berkata,
 Pintu Taufik ditutup dari seseorang karena 6 hal:
 1. Mereka sibuk dengan nikmat Allah tetapi lupa mensyukurinya.
@@ -236,7 +236,7 @@ Dinukil dari kanal telegram Wawasan Ilmu
 
 Sumber : https://t.me/wawasan_muslim/12113
 
-- [ ] 26-1-22
+- [ ] 26-1-22 pexels-george-becker-792032
 
 ### 19. () Takwa dan Tawadhu
 
@@ -248,7 +248,7 @@ Dinukil dari kanal telegram Wawasan Ilmu
 
 Sumber : https://t.me/wawasan_muslim/12153
 
-- [ ] 27-1-22
+- [ ] 27-1-22 pexels-villager-boy-1933560
 
 ### 20. () Sebab Terhalangnya Ibadah
 ___
@@ -262,16 +262,15 @@ Dinukil dari Muslim.or.id dalam artikel "Untukmu yang malas beribadah" dengan se
 
 Sumber : https://muslim.or.id/70768-untukmu-yang-sedang-malas-beribadah.html
 
-- [ ] 28-1-22
+- [ ] 28-1-22 pexels-pixabay-163772
 
-### 21. () Tawakkal Kepada Allah (Agustus '20)
-___
-Rasulullah -shallallahu 'alaihi wasallam- bersabda,
-"Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang."
+### 21. () Tanpa Judul
 
-HR. Ahmad, Tirmidzi, An-Nasai, Ibnu Majah, Ibnu Hibban dalam kitab sahihnya, dan Al-Hakim. Tirmidzi mengatakan bahwa hadits ini hasan sahih
-Dinukil dari Rumaysho dalam artikel "Kunci Rezeki Itu Tawakkal Kepada Allah (Hadits Jami'ul 'Ulum wal Hikam #49"
+Ya Rabb sebelum aku yakin bahwa kematian ku adalah istirahat, kuatkan punggung ku untuk terus berbuat taat
+Ustadz Achmad Handika -rahimahullah-
 
-sumber : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jamiul-ulum-wal-hikam-49.html
+Dinukil dari status facebook beliau -rahimahullah-. judul dari admin
 
-- [ ] 31-1-22 //  repost 12-08-20
+Sumber : https://s.id/16Anq
+
+- [ ] 31-1-22 pexels-darwis-alwan-1089855
