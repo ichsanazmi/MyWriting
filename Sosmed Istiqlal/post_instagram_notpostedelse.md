@@ -43,7 +43,15 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi ya
 
 read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
 
-### 4. 
+### 4. Untitled
+___
+Sufyan bin Uyainah -rahimahullah- mengatakan,
+"Jangan seperti budak yang buruk, tidak datang kecuali setelah dipanggil. Datanglah ke masjid sebelum adzan". Ada yang mengatakan, "Diantara bentuk menghormati sholat adalah datang iqomah dikumandangkan" 
+
+Hilyatul Auliya 7/285.
+Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah- dengan sedikit penyesuaian
+
+Sumber : https://s.id/16HDw
 
 ### 5. Tak Sesuai Dengan Lisan
 
@@ -54,7 +62,17 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 6. 
+### 6. Balas Dendam
+___
+Syaikhul Islam ibnu Taimiyah -rohimahullah- berkata,
+“Tidak ada seorangpun yang balas dendam untuk dirinya kecuali akan menimbulkan kehinaan pada dirinya. Bila ia memaafkan maka Allah memuliakannya. Dan ini yang dikabarkan oleh Nabi -shollallahu ‘alaihi wasallam-: “Tidaklah Allah menambahkan untuk hambanya yang memaafkan kecuali kemuliaan.”
+
+Kemuliaan yang dihasilkan dari memaafkan lebih dicintai oleh Allah dan lebih bermanfaat dari kemuliaan yang dihasilkan dari membalas dendam.”
+
+Jami’ Masaail 1/170.
+Dinukil dari status facebook Ustadz Badrusalam -hafizhahullah- dengan sedikit penyesuaian
+
+Sumber : https://s.id/16HE6
 ### 7. 
 ### 8. 
 ### 9. 
