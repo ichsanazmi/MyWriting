@@ -47,7 +47,7 @@ Syaikhul Islam Ibnu Taimiyah -rahimahullah- berkata,
 "Apabila ujian semakin besar, maka bagi seorang mukmin yang saleh menjadi sebab tingginya derajat dan besarnya pahala."
 
 Al Istiqamah 2/260.
-Dinukil dari kanal telegram Wawasan Ilmu
+Dinukil dari kanal telegram Wawasan Muslim
 
 Sumber : https://t.me/wawasan_muslim/12006
 
@@ -81,7 +81,7 @@ Syaikh Ibnu Baz -rahimahullah- berkata,
 "Engkau wajib semangat menyebarkan ilmu dengan sungguh-sungguh dan sekuat tenaga, jangan sampai mereka yang berada di atas kebatilan lebih semangat dalam menyampaikan kebatilan mereka, dan hendaknya engkau juga bersemangat untuk memberikan manfaat kepada kaum muslimin terkait dengan agama dan dunia mereka."
 
 Majmu Fatawa 6/76.
-Dinukil dari kanal telegram Wawasan Ilmu
+Dinukil dari kanal telegram Wawasan Muslim
 
 Sumber : https://t.me/wawasan_muslim/12002
 
@@ -94,7 +94,7 @@ Ibnu Hubairah -rahimahullah- berkata,
 "Termasuk tipu daya setan adalah membuat jauh hamba-hamba Allah dari mentadaburi Al-Quran, karena diketahui bahwa petunjuk akan datang ketika seseorang mentadaburi Al-Quran."
 
 Dzail Thabaqat Al Hanabilah 1/111.
-Dinukil dari kanal telegram Wawasan Ilmu
+Dinukil dari kanal telegram Wawasan Muslim
 
 Sumber : https://t.me/wawasan_muslim/12028
 

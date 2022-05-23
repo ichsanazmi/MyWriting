@@ -2,20 +2,20 @@
 
 ___
 
-### 1. (v) Memenuhi Kebutuhan Seorang Muslim
+### 1. Memenuhi Kebutuhan Seorang Muslim
 ___
 Rasulullah -shalallahu alaihi wa sallam- bersabda,
 
 "Barangsiapa yang berjalan bersama saudaranya yang muslim untuk memenuhi kebutuhannya sampai terpenuhi untuknya, maka Allah akan meneguhkan kakinya pada hari ketika kaki-kaki tergelincir."
 
 As Silsilah Ash Shahihah. 
-Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
+Dinukil dari kanal telegram Wawasan Muslim dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9272
 
 - [x] 3-1-22 rolf-blicher-godfrey-Pqhzts9gpEc-unsplash
 
-### 2. (v) Harapan atau Angan ? (September '20)
+### 2. Harapan atau Angan ? (September '20)
 ___
 Syaikh Abdul Aziz ar-Rajihi menjelaskan,
 
@@ -28,7 +28,7 @@ Sumber : https://muslim.or.id/58455-untuk-apa-kamu-hidup.html
 
 - [x] 4-1-22  / repost 11-9-20 pexels-daria-shevtsova-3794732
 
-### 3. (v) Berharaplah Diterima (Okt '20)
+### 3. Berharaplah Diterima (Okt '20)
 ___
 Ibnu 'Aun -rahimahullah- berkata,
 
@@ -42,7 +42,7 @@ https://www.facebook.com/musamulyadi/posts/3421645881236358
 
 - [x] 5-1-22 / repost 21-10-20 pexels-rahul-pandit-1212487
 
-### 4. (v) Fitnah Wanita
+### 4. Fitnah Wanita
 ___
 Sa'id bin Al-Musayyib -rahimahullah- berkata,
 
@@ -55,20 +55,20 @@ read more : https://www.facebook.com/musamulyadi/posts/4671457482921852
 
 - [x] 6-1-22 pexels-evie-shaffer-2395251
 
-### 5. (v) Datangi Shalat Dengan Semangat
+### 5. Datangi Shalat Dengan Semangat
 ___
 Ibnu Abbas -radhiyallahu anhuma- berkata,
 
 "Dimakruhkan seseorang pergi mendatangi salat dalam keadaan malas. Oleh karena itu, hendaknya ia mendatangi dalam keadaan wajah yang ceria, besar harapan, dan sangat gembira, karena dia akan bermunajat dengan Allah, sedangkan Allah di hadapannya, Dia akan mengampuninya dan mengabulkannya ketika dia berdoa. Ia pun membaca firman Allah Ta'ala, "Dan apabila mereka (orang-orang munafik) berdiri untuk salat maka mereka berdiri dalam keadaan malas." (Qs. An Nisaa: 142)
 
 Diriwayatkan oleh Imam At Taimi dalam At Targhib wat Tarhib.
-Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
+Dinukil dari kanal telegram Wawasan Muslim dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/8891
 
 - [x] 7-1-22 mario-la-pergola-myy2_CazPR8-unsplash
 
-### 6. (v) Angan-Angan Mereka Yang Telah Berada di Kubur
+### 6. Angan-Angan Mereka Yang Telah Berada di Kubur
 ___
 Imam Ibnu Rajab -rahimahullah- berkata,
 
@@ -77,13 +77,13 @@ Imam Ibnu Rajab -rahimahullah- berkata,
 Sebagian kaum salaf berkata, “Kalian berada dalam angan-angan manusia yang banyak.” Maksudnya bahwa orang-orang yang telah meninggal dunia berangan-angan hidup sesaat agar dapat bertobat dan bersungguh-sungguh dalam ketaatan, namun tidak ada kesempatan hal itu bagi mereka.” 
 
 Lathaíful Ma’arif hal. 422. 
-Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
+Dinukil dari kanal telegram Wawasan Muslim dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9138
 
 - [x] 10-1-22 pexels-vishnu-r-nair-1105666
 
-### 7. (v) Membuat Gembira Saudara Seiman (Agustus '20 / judul asli Kegembiraan Saudaramu)
+### 7. Membuat Gembira Saudara Seiman (Agustus '20 / judul asli Kegembiraan Saudaramu)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Seutama-utama amal shalih ialah hendaknya engkau memasukkan kegembiraan kepada saudaramu yang beriman"
@@ -94,20 +94,20 @@ yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 
 - [x] 11-1-22 / repost  31-08-20 pexels-nastyasensei-2575830
 
-### 8. (v) Terus Menyebarkan Ilmu
+### 8. Terus Menyebarkan Ilmu
 ___
 Syaikh Muhammad bin Sholih Al Utsaimin -rahimahullah- berkata,
 
 "Pesanku kepada diriku dan kepada kalian adalah hendaknya kita bersemangat menyebarkan ilmu ke tengah-tengah manusia dan tidak meremehkan sedikit pun daripadanya. Jika engkau mengajarkan kepada seorang satu materi saja, kemudian dia mengamalkannya lalu dia pun menyampaikan kepada yang lain dan seterusnya, maka setiap pahala yang diperoleh karena mengamalkan apa yang engkau sampaikan, engkau akan memperoleh juga pahalanya."
 
 Liqa'ul Babil Maftuh 14/86. 
-Dinukil dari kanal telegram Wawasan Ilmu dengan sedikit penyesuaian
+Dinukil dari kanal telegram Wawasan Muslim dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/9266
 
 - [x] 12-1-22 pexels-miguel-á-padriñán-194094
 
-### 9. (v) Takut Akan Tercabutnya Hidayah
+### 9. Takut Akan Tercabutnya Hidayah
 ___
 Sebagian orang ada yang merasa rindu dengan awal-awal dulu ketika ia mendapatkan hidayah.
 Namun sayang, betapa sedikit usahanya sekarang untuk mempertahankan hidayah.
@@ -120,7 +120,7 @@ Sumber : https://www.facebook.com/boris.tanesia/posts/10214452877536543
 
 - [x] 13-1-22 pexels
 
-### 10. (v) Andai Ia Meninggalkan Bau (Agustus '20)
+### 10. Andai Ia Meninggalkan Bau (Agustus '20)
 ___
 Muhammad bin Wasi’ -rahimahullah- berkata,
 
@@ -134,7 +134,7 @@ https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 
 - [x] 14-1-22 / repost 04-08-20 pexels-elti-meshau-333850
 
-### 11. (v) Warisan Para Nabi (Agustus '20)
+### 11. Warisan Para Nabi (Agustus '20)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
@@ -147,33 +147,33 @@ Sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 - [x] 17-1-22  / repost 10-8-20 pexels-karolina-grabowska-4207791
 
-### 12. (v) Mengapa Tidak Merasakan Nikmatnya Ibadah?
+### 12. Mengapa Tidak Merasakan Nikmatnya Ibadah?
 ___
 Yahya bin Mu'adz -rahimahullah- berkata,
 
 "Sakitnya badan karena penyakit dan sakitnya hati karena dosa. Sebagaimana badan tidak merasakan nikmatnya makan ketika sakit, maka demikian pula hati tidak merasakan manisnya ibadah ketika jatuh ke dalam dosa-dosa."
 
 Dzammul Hawa karya Ibnul Jauzi 1/68.
-Dinukil dari kanal telegram Wawasan Ilmu
+Dinukil dari kanal telegram Wawasan Muslim
 
 Sumber : https://t.me/wawasan_muslim/12074
 
 - [x] 18-1-22 pexels-nothing-ahead-4640971
 
-### 13. () Terus Beribadah Kepada Allah Sampai Ajal Menjemput
+### 13. Terus Beribadah Kepada Allah Sampai Ajal Menjemput
 ___
 Syaikh Ibnu Utsaimin -rahimahullah- berkata,
 
 "Amal itu tidak berakhir dengan habisnya musim ketaatan, akan tetapi amal berakhir dengan habisnya ajal."
 
 Liqa'ul babil Maftuh no. 51.
-Dinukil dari kanal telegram Wawasan Ilmu
+Dinukil dari kanal telegram Wawasan Muslim
 
 Sumber : https://t.me/wawasan_muslim/12051
 
-- [ ] 19-1-22 pexels-daniel-frank-688830
+- [x] 19-1-22 pexels-daniel-frank-688830
 
-### 14. () Ilmu Sebelum Amal (Agustus '20)
+### 14. Ilmu Sebelum Amal (Agustus '20)
 ___
 'Umar bin 'Abdul 'Aziz -rahimahullah- berkata,
 “Barangsiapa yang beribadah kepada Allah tanpa ilmu, maka dia akan membuat banyak kerusakan daripada mendatangkan kebaikan.”
@@ -183,9 +183,9 @@ Dinukil dari laman Rumaysho.com dalam artikel berjudul "Lalai Untuk Belajar Isla
 
 Sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
-- [ ] 20-1-22 // repost 11-08-20 pexels-bakr-magrabi-3203659
+- [x] 20-1-22 // repost 11-08-20 pexels-bakr-magrabi-3203659
 
-### 15. () Tawakkal Kepada Allah (Agustus '20)
+### 15. Tawakkal Kepada Allah (Agustus '20)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.”
@@ -197,7 +197,7 @@ Sumber : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jam
 
 - [ ] 21-1-22 // repost 12-08-20 pexels-tim-mossholder-959911
 
-### 16. () Sebab - Sebab Kebahagiaan (Agustus '20)
+### 16. Sebab - Sebab Kebahagiaan (Agustus '20)
 ___
 Kebahagiaan timbul dari kuatnya tauhid seseorang kepada Allah, besarnya ketergantungan hatinya pada Rabbnya,
 dia yakin bahwa kebahagiaannya Allah yang jamin
@@ -206,9 +206,9 @@ Faidah catatan kajian dengan judul "7 Tips Bahagia di Zaman Now" oleh Ustadz Dr 
 
 Tonton selengkapnya : https://www.youtube.com/watch?v=NW59PUoiWOo
 
-- [ ] 24-1-22 // repost 14-08-20 pexels-sem-steenbergen-3053486
+- [x] 24-1-22 // repost 14-08-20 pexels-sem-steenbergen-3053486
 
-### 17. () Adab Menghadiri Shalat Jum'at (Agustus '20)
+### 17. Adab Menghadiri Shalat Jum'at (Agustus '20)
 ___
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 “Tidaklah seorang laki-laki mandi pada hari Jum’at, lalu bersuci semaksimal mungkin, memakai wewangian miliknya atau minyak wangi keluarganya, lalu keluar rumah menuju masjid, dia tidak memisahkan dua orang pada tempat duduknya, lalu dia shalat sebanyak yang dia mampu dan diam mendengarkan khutbah imam, kecuali dia akan diampuni dosa-dosanya yang ada antara Jum’at itu dan Jum’at yang lainnya.”
@@ -218,9 +218,9 @@ Dinukil dari Muslim.or.id dalam artikel berjudul "Memperbanyak Sholat Sunnah Seb
 
 Sumber : https://muslim.or.id/58161-memperbanyak-shalat-sunnah-sebelum-datangnya-khatib-jumat.html
 
-- [ ] 25-1-22 // repost 21-08-20 pexels-meruyert-gonullu-6033982
+- [x] 25-1-22 // repost 21-08-20 pexels-meruyert-gonullu-6033982
 
-### 18. () Sebab Ditutupnya Pintu Taufik Dari Seseorang
+### 18. Sebab Ditutupnya Pintu Taufik Dari Seseorang
 ___
 Syaqiq bin Ibrahim -rahimahullah- berkata,
 Pintu Taufik ditutup dari seseorang karena 6 hal:
@@ -232,25 +232,25 @@ Pintu Taufik ditutup dari seseorang karena 6 hal:
 6. Akhirat mendatangi mereka tetapi mereka malah berpaling daripadanya.
 
 Al Fawaid karya Ibnul Qayyim hal. 258.
-Dinukil dari kanal telegram Wawasan Ilmu 
+Dinukil dari kanal telegram Wawasan Muslim 
 
 Sumber : https://t.me/wawasan_muslim/12113
 
-- [ ] 26-1-22 pexels-george-becker-792032
+- [x] 26-1-22 pexels-george-becker-792032
 
-### 19. () Takwa dan Tawadhu
-
+### 19. Takwa dan Tawadhu
+___
 Ibnu Umar -radhiyallahu anhuma- berkata, 
 "Takwa itu adalah ketika engkau tidak merasa bahwa dirimu lebih baik daripada orang lain."
 
 Tafsir Al Baghawi 1/60
-Dinukil dari kanal telegram Wawasan Ilmu 
+Dinukil dari kanal telegram Wawasan Muslim 
 
 Sumber : https://t.me/wawasan_muslim/12153
 
-- [ ] 27-1-22 pexels-villager-boy-1933560
+- [x] 27-1-22 pexels-sebastian-voortman-411207
 
-### 20. () Sebab Terhalangnya Ibadah
+### 20. Sebab Terhalangnya Ibadah
 ___
 Ibnu Mas'ud -Radhiallahu 'anhu- pernah ditanya,
 "Mengapa Kami Tidak Mampu Melakukan Shalat Malam?".
@@ -262,15 +262,15 @@ Dinukil dari Muslim.or.id dalam artikel "Untukmu yang malas beribadah" dengan se
 
 Sumber : https://muslim.or.id/70768-untukmu-yang-sedang-malas-beribadah.html
 
-- [ ] 28-1-22 pexels-pixabay-163772
+- [x] 28-1-22 pexels-pixabay-163772
 
-### 21. () Tanpa Judul
+### 21. Tanpa Judul
 
 Ya Rabb sebelum aku yakin bahwa kematian ku adalah istirahat, kuatkan punggung ku untuk terus berbuat taat
 Ustadz Achmad Handika -rahimahullah-
 
-Dinukil dari status facebook beliau -rahimahullah-. judul dari admin
+Dinukil dari status facebook beliau -rahimahullah-
 
 Sumber : https://s.id/16Anq
 
-- [ ] 31-1-22 pexels-darwis-alwan-1089855
+- [x] 31-1-22 pexels-darwis-alwan-1089855
