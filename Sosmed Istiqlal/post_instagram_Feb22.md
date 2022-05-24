@@ -181,7 +181,7 @@ Sumber: https://muslim.or.id/2484-bagimu-pemuda-malas-nan-enggan-bekerja.html
 ___
 - [ ] 16-2-22
 
-### 12. ()
+### 12. () 
 ___
 - [ ] 17-2-22
 
