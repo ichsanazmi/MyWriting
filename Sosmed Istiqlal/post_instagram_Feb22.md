@@ -13,7 +13,7 @@ Dinukil dari Rumaysho.com dalam artikel berjudul "Bulughul Maram Akhlak Menjadi 
 
 Sumber : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 
-- [] 1-2-22 // repost repost 6-10-20
+- [] 1-2-22 // repost repost 6-10-20 pexels-cottonbro-5967048
 
 ### 2. () Cinta Dunia
 ___
@@ -23,11 +23,11 @@ Malik bin Dinar -rahimahullah- berkata,
 Azzuhdul Kabīr 1/135 karya Imam Albaihaqiy 
 Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan sedikit penyesuaian
 
-Sumber : https://s.id/16Ama
+Sumber : https://s.id/16Ama pexels-patrik-felker-6220559
 
 - [] 2-2-22
 
-### 3. () Kawan Hijrah (September '20)
+### 3. () Tanpa Judul (September '20)
 
 Disebutkan bahwa di antara penyebab terjadinya Intikas (berbalik keadaan) adalah
 Rindu masa lalu dan tidak menghancurkan jejaknya.
@@ -36,9 +36,9 @@ Apa pun yang tersisa dari masa jahiliyyahmu hancurkan dan relakan, itulah taubat
 Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
 dengan sedikit penyesuaian
 
-read more : https://www.facebook.com/photo?fbid=3229195297148085&set=a.696709553730018
+Sumber : https://www.facebook.com/photo?fbid=3229195297148085&set=a.696709553730018
 
-- [ ] 3-2-22 / repost 1-9-20
+- [ ] 3-2-22 / repost 1-9-20 pexels-cottonbro-4069291
 
 ### 4. () Pahala Besar Di Balik Musibah
 ___
@@ -51,12 +51,12 @@ Dinukil dari kanal telegram Wawasan Muslim
 
 Sumber : https://t.me/wawasan_muslim/12006
 
-- [ ] 7-2-22
+- [ ] 7-2-22 pexels-burst-373914
 
 ### 5. () Semakin Menjauh Atau mendekat?
 
 Ibnul Qoyyim Al Jauziyah -rahimahullah- berkata,
-Dari hal yang ajaib adalah anda mengenaliNya namun tidak mencintaiNya…
+"Dari hal yang ajaib adalah anda mengenaliNya namun tidak mencintaiNya…
 Anda mendengar panggilanNya namun respon anda selalu terlambat…
 Anda mengetahui jumlah keuntungan yang akan didapatkan jika bermuamalah denganNya namun anda lebih memilih bermuamalah dengan selainNya…
 Dan andapun mengetahui ukuran kemarahannya namun anda berani menentangNya…
@@ -65,14 +65,14 @@ Hatimu telah merasakan ganasnya sakit dari maksiat kepadaNya, namun tidak juga k
 Hatimu terasa sempit kala sibuk membicarakan selainNya namun tidaklah kamu ingin untuk beralih kepada pembicaraan yang dapat melegakkan hati dengan mengingat dan bermunajat kepadaNya…
 Hatimu padahal terazab saat engkau gantungkan hatimu kepada selainNya, namun kamu tidak lari menyambut nikmat dengan kembali kepadaNya…
 Dan yang paling aneh adalah saat anda mengetahui bahwa anda tak bisa lepas dan sangat membutuhkanNya, namun justru anda berpaling seraya mengambil jalan yang menjauhkan anda
-dariNya…
+dariNya…"
 
 Al Fawaid Ibnul Qoyim Rahimahullah Hal. 62.
 Dinukil dari laman IlmuAsSyarie yang dikelola Ustadz Muhammad Halid Syarie,Lc dengan sedikit penyesuaian
 
 sumber : https://ilmuassyarie.com/semakin-menjauh-atau-mendekat/
 
-- [ ] 8-2-22
+- [ ] 8-2-22 pexels-daria-shevtsova-3793308
 
 ### 6. () Semangat Menyebarkan Ilmu
 ___
@@ -85,7 +85,7 @@ Dinukil dari kanal telegram Wawasan Muslim
 
 Sumber : https://t.me/wawasan_muslim/12002
 
-- [ ] 9-2-22
+- [ ] 9-2-22 pexels-pixabay-372748
 
 ### 7. () Tadabbur Al Qur'an kunci hidayah
 ___
@@ -98,7 +98,7 @@ Dinukil dari kanal telegram Wawasan Muslim
 
 Sumber : https://t.me/wawasan_muslim/12028
 
-- [ ] 10-2-22
+- [ ] 10-2-22 pexels-ahmet-polat-4463896
 
 ### 8. () Andai Mereka Tahu
 ___
@@ -129,9 +129,9 @@ Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
 
 Sumber : http://www.salamdakwah.com/artikel/4375-andai-mereka-tahu
 
-- [ ] 11-2-22
+- [ ] 11-2-22 pexels-pixabay-531321
 
-### 9. () Jangan lalai dalam menuntu ilmu agama
+### 9. () Jangan lalai dalam menuntut ilmu agama
 ___
 Ada sebuah hadits yang perlu kita renungi bersama, karena hal ini menyangkut nama baik kita di mata ALLAH ta'ala.
 Nabi -shallallahu 'alaihi wasallam- bersabda,
@@ -153,7 +153,7 @@ Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
 
 Sumber : http://www.salamdakwah.com/artikel/30-jangan-lalai-dalam-menuntut-ilmu-agama
 ___
-- [ ] 14-2-22
+- [ ] 14-2-22 watch-4638673
 
 ### 10. () Untitled
 ___
