@@ -1,4 +1,4 @@
-# Post Instagram Februari 22
+## Post Instagram Februari 22
 
 ___
 
@@ -166,18 +166,20 @@ Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
 
 Sumber : http://www.salamdakwah.com/artikel/2798-sejelek-jelek-kaum-mengenal-allah-hanya-di-bulan-ramadhan
 ___
-- [ ] 15-2-22
+- [ ] 15-2-22 pexels-kévin-dorg-2881260
 
-### 11. () untitled
-Al Baihaqi dalam kitabnya, Syu’abul Iman, membawakan sebuah riwayat dari Umar radhiyallahu ‘anhu:
+### 11. () Balas Dendam
+___
+Syaikhul Islam ibnu Taimiyah -rohimahullah- berkata,
 
-يا معشر القراء (أي العباد) ارفعوا رؤوسكم، ما أوضح الطريق، فاستبقوا الخيرات، ولا تكونوا كلاً على المسلمين
+“Tidak ada seorangpun yang balas dendam untuk dirinya kecuali akan menimbulkan kehinaan pada dirinya. Bila ia memaafkan maka Allah memuliakannya. Dan ini yang dikabarkan oleh Nabi -shollallahu ‘alaihi wasallam-: “Tidaklah Allah menambahkan untuk hambanya yang memaafkan kecuali kemuliaan.”
 
-“Wahai para pembaca Qur’an (yaitu ahli ibadah), angkatlah kepada kalian, sehingga teranglah jalan. Lalu berlombalah dalam kebaikan. Dan janganlah menjadi beban bagi kaum muslimin”
+Kemuliaan yang dihasilkan dari memaafkan lebih dicintai oleh Allah dan lebih bermanfaat dari kemuliaan yang dihasilkan dari membalas dendam.”
 
+Jami’ Masaail 1/170.
+Dinukil dari status facebook Ustadz Badrusalam -hafizhahullah- dengan sedikit penyesuaian
 
-Sumber: https://muslim.or.id/2484-bagimu-pemuda-malas-nan-enggan-bekerja.html
-
+Sumber : https://s.id/16HE6
 ___
 - [ ] 16-2-22
 
