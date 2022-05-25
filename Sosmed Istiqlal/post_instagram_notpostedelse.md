@@ -62,18 +62,24 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 6. Balas Dendam
+### 6. 
+
+### 7. Menangis Ketika Tertinggal Shalat Jama'ah (Judul asli Tertinggal Shalat Jama'ah // September '20)
 ___
-Syaikhul Islam ibnu Taimiyah -rohimahullah- berkata,
-“Tidak ada seorangpun yang balas dendam untuk dirinya kecuali akan menimbulkan kehinaan pada dirinya. Bila ia memaafkan maka Allah memuliakannya. Dan ini yang dikabarkan oleh Nabi -shollallahu ‘alaihi wasallam-: “Tidaklah Allah menambahkan untuk hambanya yang memaafkan kecuali kemuliaan.”
+Muhammad ibn Al Mubarak -rahimahullah- berkata,
 
-Kemuliaan yang dihasilkan dari memaafkan lebih dicintai oleh Allah dan lebih bermanfaat dari kemuliaan yang dihasilkan dari membalas dendam.”
+"Said bin Abdul Aziz (Ulama Besar Damaskus, Sezaman dengan Imam Al-Auza'i) ketika tertinggal dari shalat berjamaah, maka ia menangis."
 
-Jami’ Masaail 1/170.
-Dinukil dari status facebook Ustadz Badrusalam -hafizhahullah- dengan sedikit penyesuaian
+Tadzkiratul Huffazh 1/219
+Dinukil dari kanal Telegram Wawasan Ilmu
+yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
+dengan sedikit tambahan faidah dari web tulisanterkini.com
 
-Sumber : https://s.id/16HE6
-### 7. 
+read more :
+- https://t.me/wawasan_muslim/6420
+- https://tulisanterkini.com/artikel/keislaman/ahlaq/128-said-bin-abdul-aziz-.html
+
+- [x] 25-9-20
 ### 8. 
 ### 9. 
 ### 10. 
