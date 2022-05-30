@@ -2,7 +2,7 @@
 
 ___
 
-### 1. () Penunjuk Kebaikan (Judul asli Pionir Kebaikan/ oktober '20)
+### 1. (v) Penunjuk Kebaikan (Judul asli Pionir Kebaikan/ oktober '20)
 ___
 Rasulullah -shallallahu ’alaihi wa sallam- bersabda,
 
@@ -15,7 +15,7 @@ Sumber : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaika
 
 - [] 1-2-22 // repost repost 6-10-20 pexels-cottonbro-5967048
 
-### 2. () Cinta Dunia
+### 2. (v) Cinta Dunia
 ___
 Malik bin Dinar -rahimahullah- berkata,
 "Sesungguhnya apabila badan sakit maka tidak akan mempan padanya makanan, minuman, tidur, dan rehat. Seperti itulah hati, apabila terpaut cinta dunia maka nasehat tidak akan mempan."
@@ -27,33 +27,33 @@ Sumber : https://s.id/16Ama pexels-patrik-felker-6220559
 
 - [] 2-2-22
 
-### 3. () Tanpa Judul (September '20)
+### 3. (v) Tanpa Judul (September '20)
 
-Disebutkan bahwa di antara penyebab terjadinya Intikas (berbalik keadaan) adalah
+"Disebutkan bahwa di antara penyebab terjadinya Intikas (berbalik keadaan) adalah
 Rindu masa lalu dan tidak menghancurkan jejaknya.
-Apa pun yang tersisa dari masa jahiliyyahmu hancurkan dan relakan, itulah taubat hijrah yang sesungguhnya
+Apa pun yang tersisa dari masa jahiliyyahmu hancurkan dan relakan, itulah taubat hijrah yang sesungguhnya.."
 
 Dinukil dari status facebook yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA -Hafizhahullah-
-dengan sedikit penyesuaian
+dengan sedikit pengeditan
 
 Sumber : https://www.facebook.com/photo?fbid=3229195297148085&set=a.696709553730018
 
 - [ ] 3-2-22 / repost 1-9-20 pexels-cottonbro-4069291
 
-### 4. () Pahala Besar Di Balik Musibah
+### 4. (v) Pahala Besar Di Balik Musibah
 ___
 Syaikhul Islam Ibnu Taimiyah -rahimahullah- berkata,
 
 "Apabila ujian semakin besar, maka bagi seorang mukmin yang saleh menjadi sebab tingginya derajat dan besarnya pahala."
 
 Al Istiqamah 2/260.
-Dinukil dari kanal telegram Wawasan Muslim
+Dinukil dari kanal telegram Wawasan Muslim dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/12006
 
 - [ ] 7-2-22 pexels-burst-373914
 
-### 5. () Semakin Menjauh Atau mendekat?
+### 5. (v) Semakin Menjauh Atau mendekat?
 
 Ibnul Qoyyim Al Jauziyah -rahimahullah- berkata,
 "Dari hal yang ajaib adalah anda mengenaliNya namun tidak mencintaiNya…
@@ -74,7 +74,7 @@ sumber : https://ilmuassyarie.com/semakin-menjauh-atau-mendekat/
 
 - [ ] 8-2-22 pexels-daria-shevtsova-3793308
 
-### 6. () Semangat Menyebarkan Ilmu
+### 6. (v) Semangat Menyebarkan Ilmu
 ___
 Syaikh Ibnu Baz -rahimahullah- berkata,
 
@@ -87,7 +87,7 @@ Sumber : https://t.me/wawasan_muslim/12002
 
 - [ ] 9-2-22 pexels-pixabay-372748
 
-### 7. () Tadabbur Al Qur'an kunci hidayah
+### 7. () Tadabbur Al Qur'an Kunci Hidayah
 ___
 Ibnu Hubairah -rahimahullah- berkata,
 
@@ -170,7 +170,7 @@ ___
 
 ### 11. () Balas Dendam
 ___
-Syaikhul Islam ibnu Taimiyah -rohimahullah- berkata,
+Syaikhul Islam ibnu Taimiyah -rahimahullah- berkata,
 
 “Tidak ada seorangpun yang balas dendam untuk dirinya kecuali akan menimbulkan kehinaan pada dirinya. Bila ia memaafkan maka Allah memuliakannya. Dan ini yang dikabarkan oleh Nabi -shollallahu ‘alaihi wasallam-: “Tidaklah Allah menambahkan untuk hambanya yang memaafkan kecuali kemuliaan.”
 
@@ -181,19 +181,50 @@ Dinukil dari status facebook Ustadz Badrusalam -hafizhahullah- dengan sedikit pe
 
 Sumber : https://s.id/16HE6
 ___
-- [ ] 16-2-22
+- [ ] 16-2-22 han-chenxu-YdAqiUkUoWA-unsplash
 
-### 12. () 
+### 12. () Perbanyak Berdoa
 ___
-- [ ] 17-2-22
+Syaikh Ibnu Sa'diy -rahimahullah- berkata,
 
-### 13. ()
-___
-- [ ] 18-2-22
+"Barang siapa yang diberi taufik untuk banyak berdoa, maka hendaknya dia bergembira dengan dekatnya dikabulkan doa."
 
-### 14. ()
+Al Fawakih Asy Syahiyyah hal. 36.
+Dinukil dari kanal Wawasan Muslim dengan sedikit penyesuaian
+
+sumber : https://t.me/wawasan_muslim/12195
 ___
-- [ ] 21-2-22
+- [ ] 17-2-22 chris-liu-R0mWlPiK1hw-unsplash
+
+### 13. () Bergembiralah wahai orang yang bertaubat!
+___
+Yahya bin Mu'adz -rahimahullah- berkata,
+
+"Orang yang bertaubat memiliki kebanggaan yang tidak bisa disaingi, yaitu kegembiraan Allah terhadap taubatnya."
+
+Hilyatul Auliya 10/59
+Dinukil dari kanal Wawasan Muslim dengan sedikit penyesuaian
+
+sumber : https://t.me/wawasan_muslim/12159
+___
+- [ ] 18-2-22 nathan-dumlao-OHzkfrv9Ycw-unsplash
+
+### 14. () Menangis Ketika Tertinggal Shalat Jama'ah (Judul asli Tertinggal Shalat Jama'ah // September '20)
+___
+Muhammad ibn Al Mubarak -rahimahullah- berkata,
+
+"Said bin Abdul Aziz (Ulama Besar Damaskus, Sezaman dengan Imam Al-Auza'i) ketika tertinggal dari shalat berjamaah, maka ia menangis."
+
+Tadzkiratul Huffazh 1/219
+Dinukil dari kanal Telegram Wawasan Ilmu
+yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
+dengan sedikit tambahan faidah dari web tulisanterkini.com
+
+read more :
+- https://t.me/wawasan_muslim/6420
+- https://tulisanterkini.com/artikel/keislaman/ahlaq/128-said-bin-abdul-aziz-.html
+
+- [ ] 21-2-22 // repost 25-9-20 zara-walker-2JqzgXA8W2E-unsplash
 
 ### 15. ()
 ___

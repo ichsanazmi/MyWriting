@@ -63,23 +63,7 @@ Ustadz Musyaffa' ad-Dariny
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
 ### 6. 
-
-### 7. Menangis Ketika Tertinggal Shalat Jama'ah (Judul asli Tertinggal Shalat Jama'ah // September '20)
-___
-Muhammad ibn Al Mubarak -rahimahullah- berkata,
-
-"Said bin Abdul Aziz (Ulama Besar Damaskus, Sezaman dengan Imam Al-Auza'i) ketika tertinggal dari shalat berjamaah, maka ia menangis."
-
-Tadzkiratul Huffazh 1/219
-Dinukil dari kanal Telegram Wawasan Ilmu
-yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
-dengan sedikit tambahan faidah dari web tulisanterkini.com
-
-read more :
-- https://t.me/wawasan_muslim/6420
-- https://tulisanterkini.com/artikel/keislaman/ahlaq/128-said-bin-abdul-aziz-.html
-
-- [x] 25-9-20
+### 7. 
 ### 8. 
 ### 9. 
 ### 10. 
