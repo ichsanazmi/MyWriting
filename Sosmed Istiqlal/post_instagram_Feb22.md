@@ -87,7 +87,7 @@ Sumber : https://t.me/wawasan_muslim/12002
 
 - [ ] 9-2-22 pexels-pixabay-372748
 
-### 7. () Tadabbur Al Qur'an Kunci Hidayah
+### 7. (v) Tadabbur Al Qur'an Kunci Hidayah
 ___
 Ibnu Hubairah -rahimahullah- berkata,
 
@@ -100,7 +100,7 @@ Sumber : https://t.me/wawasan_muslim/12028
 
 - [ ] 10-2-22 pexels-ahmet-polat-4463896
 
-### 8. () Andai Mereka Tahu
+### 8. (v) Andai Mereka Tahu
 ___
 Jika saya tinggalkan dunia hitam ini lalu saya mau kemana? Jika saya keluar dari bidang haram ini lalu saya mau kerja dimana? Jika saya tinggalkan geng saya dengan segala maksiatnya, memangnya ada yang mau berteman dengan saya?
 
@@ -116,11 +116,11 @@ Banyak teman shalih/shalihah yang mau berpijak bersama.
 Hanya saja kita belum tahu dan mengenal mereka.
 
 Saudaraku..
-ALLAH memastikan bahwa dibalik hijrah ada banyak tempat yang indah, ada banyak kelapangan, rizki, ketenangan serta kebahagaian.
+Allah memastikan bahwa dibalik hijrah ada banyak tempat yang indah, ada banyak kelapangan, rizki, ketenangan serta kebahagaian.
 
 Maka jangan ragu untuk berhijrah dari dosa.
 
-Yang perlu anda lakukan adalah terus melangkah, lalu bersabar dan bertahan, niscaya pertolongan ALLAH dan kelapangan itu pasti menyapa anda.
+Yang perlu anda lakukan adalah terus melangkah, lalu bersabar dan bertahan, niscaya pertolongan Allah dan kelapangan itu pasti menyapa anda.
 
 Ustadz Muhammad Nuzul Dzikri, Lc -hafizhahullah-
 
@@ -131,20 +131,20 @@ Sumber : http://www.salamdakwah.com/artikel/4375-andai-mereka-tahu
 
 - [ ] 11-2-22 pexels-pixabay-531321
 
-### 9. () Jangan lalai dalam menuntut ilmu agama
+### 9. (v) Jangan Lalai Dalam Menuntut Ilmu Agama
 ___
-Ada sebuah hadits yang perlu kita renungi bersama, karena hal ini menyangkut nama baik kita di mata ALLAH ta'ala.
+Ada sebuah hadits yang perlu kita renungi bersama, karena hal ini menyangkut nama baik kita di mata Allah ta'ala.
 Nabi -shallallahu 'alaihi wasallam- bersabda,
-"Sesungguhnya ALLAH ta'ala membenci setiap orang yang menguasai ilmu dunia namun bodoh tentang ilmu akhirat." 
+"Sesungguhnya Allah ta'ala membenci setiap orang yang menguasai ilmu dunia namun bodoh tentang ilmu akhirat." 
 Dishahihkan Syeikh Albani dalam Shahih Jami' Shagir
 
-Saudaraku, apalah artinya pendidikan tinggi atau prestasi akademis yang kita raih serta gelar yang melekat di belakang nama kita jika kita hanya menjadi makhluk yang dibenci oleh ALLAH ta'ala.
+Saudaraku, apalah artinya pendidikan tinggi atau prestasi akademis yang kita raih serta gelar yang melekat di belakang nama kita jika kita hanya menjadi makhluk yang dibenci oleh Allah ta'ala.
 
 Coba kita renungkan: berapa tahun waktu yang kita habiskan untuk mempelajari ilmu dunia? Lalu kita bandingkan berapa hari dalam satu tahun kita langkahkan kaki kita ke sebuah majelis ilmu?!
 
-Marilah kita luangkan waktu untuk mengkaji firman ALLAH ta'ala dan hadits-hadits Nabi -shallallahu 'alaihi wa sallam-, kita berusaha menguasai ilmu agama sebagaimana selama ini selama belasan tahun kita pelajari ilmu dunia.
+Marilah kita luangkan waktu untuk mengkaji firman Allah ta'ala dan hadits-hadits Nabi -shallallahu 'alaihi wa sallam-, kita berusaha menguasai ilmu agama sebagaimana selama ini selama belasan tahun kita pelajari ilmu dunia.
 
-Ingatlah, pintar dalam ilmu dunia dan kosong dari ilmu akhirat adalah sifat dasar orang-orang kafir yang telah dicela oleh ALLAH dalam QS. Ar Rum ayat 7:
+Ingatlah, pintar dalam ilmu dunia dan kosong dari ilmu akhirat adalah sifat dasar orang-orang kafir yang telah dicela oleh Allah dalam QS. Ar Rum ayat 7:
 "Mereka hanya mengetahui yang lahir saja dari kehidupan dunia; sedang mereka tentang kehidupan akhirat adalah lalai."
 
 Ustadz Muhammad Nuzul Dzikri, Lc. -hafizhahullah-
@@ -155,7 +155,7 @@ Sumber : http://www.salamdakwah.com/artikel/30-jangan-lalai-dalam-menuntut-ilmu-
 ___
 - [ ] 14-2-22 watch-4638673
 
-### 10. () Untitled
+### 10. (v) Tetap Bersemangat Sebagaimana Saat Ramadhan
 ___
 Dikatakan kepada Bisyr Al-Hafi, suatu kaum, mereka beribadah dan bersungguh-sungguh melakukan amalan ibadah di bulan Ramadhan. Akan tetapi, ketika Ramadhan berakhir mereka pun meninggalkan amalan ibadah tersebut. 
 Lantas beliau -rahimahullah- berkata ,
@@ -165,10 +165,10 @@ Miftahul Afkar li ta`ahhub li-daril qarar 2/23
 Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
 
 Sumber : http://www.salamdakwah.com/artikel/2798-sejelek-jelek-kaum-mengenal-allah-hanya-di-bulan-ramadhan
-___
+
 - [ ] 15-2-22 pexels-kévin-dorg-2881260
 
-### 11. () Balas Dendam
+### 11. (v) Maaf, Sebab Kemuliaan
 ___
 Syaikhul Islam ibnu Taimiyah -rahimahullah- berkata,
 
