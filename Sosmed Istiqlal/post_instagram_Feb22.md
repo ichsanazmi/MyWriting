@@ -1,5 +1,7 @@
 ## Post Instagram Februari 22
-
+```
+“ Kutip ˮ
+```
 ___
 
 ### 1. (v) Penunjuk Kebaikan (Judul asli Pionir Kebaikan/ oktober '20)
@@ -183,7 +185,7 @@ Sumber : https://s.id/16HE6
 ___
 - [ ] 16-2-22 han-chenxu-YdAqiUkUoWA-unsplash
 
-### 12. () Perbanyak Berdoa
+### 12. (v) Gembira Atas Nikmat Berdoa
 ___
 Syaikh Ibnu Sa'diy -rahimahullah- berkata,
 
@@ -196,7 +198,7 @@ sumber : https://t.me/wawasan_muslim/12195
 ___
 - [ ] 17-2-22 chris-liu-R0mWlPiK1hw-unsplash
 
-### 13. () Bergembiralah wahai orang yang bertaubat!
+### 13. (v) Bergembiralah wahai orang yang bertaubat!
 ___
 Yahya bin Mu'adz -rahimahullah- berkata,
 
@@ -209,15 +211,15 @@ sumber : https://t.me/wawasan_muslim/12159
 ___
 - [ ] 18-2-22 nathan-dumlao-OHzkfrv9Ycw-unsplash
 
-### 14. () Menangis Ketika Tertinggal Shalat Jama'ah (Judul asli Tertinggal Shalat Jama'ah // September '20)
+### 14. (v) Menangis Ketika Tertinggal Shalat Jama'ah (Judul asli Tertinggal Shalat Jama'ah // September '20)
 ___
 Muhammad ibn Al Mubarak -rahimahullah- berkata,
 
-"Said bin Abdul Aziz (Ulama Besar Damaskus, Sezaman dengan Imam Al-Auza'i) ketika tertinggal dari shalat berjamaah, maka ia menangis."
+"Said bin Abdul Aziz* ketika tertinggal dari shalat berjamaah, maka ia menangis."
 
 Tadzkiratul Huffazh 1/219
-Dinukil dari kanal Telegram Wawasan Ilmu
-yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
+*Ulama Besar Damaskus, Sezaman dengan Imam Al-Auza'i
+Dinukil dari kanal Telegram Wawasan Muslim 
 dengan sedikit tambahan faidah dari web tulisanterkini.com
 
 read more :
