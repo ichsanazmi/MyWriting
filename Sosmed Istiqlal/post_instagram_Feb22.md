@@ -4,7 +4,7 @@
 ```
 ___
 
-### 1. (v) Penunjuk Kebaikan (Judul asli Pionir Kebaikan/ oktober '20)
+### 1. Penunjuk Kebaikan (Judul asli Pionir Kebaikan/ oktober '20)
 ___
 Rasulullah -shallallahu ’alaihi wa sallam- bersabda,
 
@@ -17,7 +17,7 @@ Sumber : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaika
 
 - [] 1-2-22 // repost repost 6-10-20 pexels-cottonbro-5967048
 
-### 2. (v) Cinta Dunia
+### 2. Cinta Dunia
 ___
 Malik bin Dinar -rahimahullah- berkata,
 "Sesungguhnya apabila badan sakit maka tidak akan mempan padanya makanan, minuman, tidur, dan rehat. Seperti itulah hati, apabila terpaut cinta dunia maka nasehat tidak akan mempan."
@@ -27,9 +27,9 @@ Dinukil dari status facebook Ustadz Musa Mulyadi Luqman -hafizhahullah- dengan s
 
 Sumber : https://s.id/16Ama pexels-patrik-felker-6220559
 
-- [] 2-2-22
+- [x] 2-2-22
 
-### 3. (v) Tanpa Judul (September '20)
+### 3. Tanpa Judul (September '20)
 
 "Disebutkan bahwa di antara penyebab terjadinya Intikas (berbalik keadaan) adalah
 Rindu masa lalu dan tidak menghancurkan jejaknya.
@@ -40,9 +40,9 @@ dengan sedikit pengeditan
 
 Sumber : https://www.facebook.com/photo?fbid=3229195297148085&set=a.696709553730018
 
-- [ ] 3-2-22 / repost 1-9-20 pexels-cottonbro-4069291
+- [x] 3-2-22 / repost 1-9-20 pexels-cottonbro-4069291
 
-### 4. (v) Pahala Besar Di Balik Musibah
+### 4. Pahala Besar Di Balik Musibah
 ___
 Syaikhul Islam Ibnu Taimiyah -rahimahullah- berkata,
 
@@ -53,10 +53,10 @@ Dinukil dari kanal telegram Wawasan Muslim dengan sedikit penyesuaian
 
 Sumber : https://t.me/wawasan_muslim/12006
 
-- [ ] 7-2-22 pexels-burst-373914
+- [x] 7-2-22 pexels-burst-373914
 
-### 5. (v) Semakin Menjauh Atau mendekat?
-
+### 5. Semakin Menjauh Atau mendekat?
+___
 Ibnul Qoyyim Al Jauziyah -rahimahullah- berkata,
 "Dari hal yang ajaib adalah anda mengenaliNya namun tidak mencintaiNya…
 Anda mendengar panggilanNya namun respon anda selalu terlambat…
@@ -74,9 +74,9 @@ Dinukil dari laman IlmuAsSyarie yang dikelola Ustadz Muhammad Halid Syarie,Lc de
 
 sumber : https://ilmuassyarie.com/semakin-menjauh-atau-mendekat/
 
-- [ ] 8-2-22 pexels-daria-shevtsova-3793308
+- [x] 8-2-22 pexels-daria-shevtsova-3793308
 
-### 6. (v) Semangat Menyebarkan Ilmu
+### 6. Semangat Menyebarkan Ilmu
 ___
 Syaikh Ibnu Baz -rahimahullah- berkata,
 
@@ -87,9 +87,9 @@ Dinukil dari kanal telegram Wawasan Muslim
 
 Sumber : https://t.me/wawasan_muslim/12002
 
-- [ ] 9-2-22 pexels-pixabay-372748
+- [x] 9-2-22 pexels-pixabay-372748
 
-### 7. (v) Tadabbur Al Qur'an Kunci Hidayah
+### 7. Tadabbur Al Qur'an Kunci Hidayah
 ___
 Ibnu Hubairah -rahimahullah- berkata,
 
@@ -100,9 +100,9 @@ Dinukil dari kanal telegram Wawasan Muslim
 
 Sumber : https://t.me/wawasan_muslim/12028
 
-- [ ] 10-2-22 pexels-ahmet-polat-4463896
+- [x] 10-2-22 pexels-ahmet-polat-4463896
 
-### 8. (v) Andai Mereka Tahu
+### 8. Andai Mereka Tahu
 ___
 Jika saya tinggalkan dunia hitam ini lalu saya mau kemana? Jika saya keluar dari bidang haram ini lalu saya mau kerja dimana? Jika saya tinggalkan geng saya dengan segala maksiatnya, memangnya ada yang mau berteman dengan saya?
 
@@ -131,9 +131,9 @@ Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
 
 Sumber : http://www.salamdakwah.com/artikel/4375-andai-mereka-tahu
 
-- [ ] 11-2-22 pexels-pixabay-531321
+- [x] 11-2-22 pexels-pixabay-531321
 
-### 9. (v) Jangan Lalai Dalam Menuntut Ilmu Agama
+### 9. Jangan Lalai Dalam Menuntut Ilmu Agama
 ___
 Ada sebuah hadits yang perlu kita renungi bersama, karena hal ini menyangkut nama baik kita di mata Allah ta'ala.
 Nabi -shallallahu 'alaihi wasallam- bersabda,
@@ -155,9 +155,9 @@ Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
 
 Sumber : http://www.salamdakwah.com/artikel/30-jangan-lalai-dalam-menuntut-ilmu-agama
 ___
-- [ ] 14-2-22 watch-4638673
+- [x] 14-2-22 watch-4638673
 
-### 10. (v) Tetap Bersemangat Sebagaimana Saat Ramadhan
+### 10. Tetap Bersemangat Sebagaimana Saat Ramadhan
 ___
 Dikatakan kepada Bisyr Al-Hafi, suatu kaum, mereka beribadah dan bersungguh-sungguh melakukan amalan ibadah di bulan Ramadhan. Akan tetapi, ketika Ramadhan berakhir mereka pun meninggalkan amalan ibadah tersebut. 
 Lantas beliau -rahimahullah- berkata ,
@@ -168,9 +168,9 @@ Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
 
 Sumber : http://www.salamdakwah.com/artikel/2798-sejelek-jelek-kaum-mengenal-allah-hanya-di-bulan-ramadhan
 
-- [ ] 15-2-22 pexels-kévin-dorg-2881260
+- [x] 15-2-22 pexels-kévin-dorg-2881260
 
-### 11. (v) Maaf, Sebab Kemuliaan
+### 11. Maaf, Sebab Kemuliaan
 ___
 Syaikhul Islam ibnu Taimiyah -rahimahullah- berkata,
 
@@ -183,9 +183,9 @@ Dinukil dari status facebook Ustadz Badrusalam -hafizhahullah- dengan sedikit pe
 
 Sumber : https://s.id/16HE6
 ___
-- [ ] 16-2-22 han-chenxu-YdAqiUkUoWA-unsplash
+- [x] 16-2-22 han-chenxu-YdAqiUkUoWA-unsplash
 
-### 12. (v) Gembira Atas Nikmat Berdoa
+### 12. Gembira Atas Nikmat Berdoa
 ___
 Syaikh Ibnu Sa'diy -rahimahullah- berkata,
 
@@ -196,9 +196,9 @@ Dinukil dari kanal Wawasan Muslim dengan sedikit penyesuaian
 
 sumber : https://t.me/wawasan_muslim/12195
 ___
-- [ ] 17-2-22 chris-liu-R0mWlPiK1hw-unsplash
+- [x] 17-2-22 chris-liu-R0mWlPiK1hw-unsplash
 
-### 13. (v) Bergembiralah wahai orang yang bertaubat!
+### 13. Bergembiralah wahai orang yang bertaubat!
 ___
 Yahya bin Mu'adz -rahimahullah- berkata,
 
@@ -209,9 +209,9 @@ Dinukil dari kanal Wawasan Muslim dengan sedikit penyesuaian
 
 sumber : https://t.me/wawasan_muslim/12159
 ___
-- [ ] 18-2-22 nathan-dumlao-OHzkfrv9Ycw-unsplash
+- [x] 18-2-22 nathan-dumlao-OHzkfrv9Ycw-unsplash
 
-### 14. (v) Menangis Ketika Tertinggal Shalat Jama'ah (Judul asli Tertinggal Shalat Jama'ah // September '20)
+### 14. Menangis Ketika Tertinggal Shalat Jama'ah (Judul asli Tertinggal Shalat Jama'ah // September '20)
 ___
 Muhammad ibn Al Mubarak -rahimahullah- berkata,
 
@@ -226,10 +226,18 @@ read more :
 - https://t.me/wawasan_muslim/6420
 - https://tulisanterkini.com/artikel/keislaman/ahlaq/128-said-bin-abdul-aziz-.html
 
-- [ ] 21-2-22 // repost 25-9-20 zara-walker-2JqzgXA8W2E-unsplash
+- [x] 21-2-22 // repost 25-9-20 zara-walker-2JqzgXA8W2E-unsplash
 
-### 15. ()
+### 15. () Untitled
 ___
+Sufyan bin Uyainah -rahimahullah- mengatakan,
+"Jangan seperti budak yang buruk, tidak datang kecuali setelah dipanggil. Datanglah ke masjid sebelum adzan". Ada yang mengatakan, "Diantara bentuk menghormati sholat adalah datang iqomah dikumandangkan" 
+
+Hilyatul Auliya 7/285.
+Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah- dengan sedikit penyesuaian
+
+Sumber : https://s.id/16HDw
+
 - [ ] 22-2-22
 
 ### 16. ()

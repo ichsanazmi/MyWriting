@@ -43,17 +43,7 @@ Dinukil dari laman Rumaysho dalam artikel berjudul "Syarhus Sunnah : Menjauhi ya
 
 read more : https://rumaysho.com/27425-syarhus-sunnah-menjauhi-yang-haram-dan-akhlak-jelek-penutup.html
 
-### 4. Untitled
-___
-Sufyan bin Uyainah -rahimahullah- mengatakan,
-"Jangan seperti budak yang buruk, tidak datang kecuali setelah dipanggil. Datanglah ke masjid sebelum adzan". Ada yang mengatakan, "Diantara bentuk menghormati sholat adalah datang iqomah dikumandangkan" 
-
-Hilyatul Auliya 7/285.
-Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah- dengan sedikit penyesuaian
-
-Sumber : https://s.id/16HDw
-
-### 5. Tak Sesuai Dengan Lisan
+### 4. Tak Sesuai Dengan Lisan
 
 Tiap hari di Al-Fatihah, minta agar dijauhkan dr jalan kaum Yahudi & Nasrani
 Tp lisan yg sama, ikut²an mengatakan selamat hari raya mereka, pantaskah?
@@ -62,6 +52,7 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
+### 5. 
 ### 6. 
 ### 7. 
 ### 8. 
