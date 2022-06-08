@@ -316,7 +316,7 @@ read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 ___
 
-### 6. Ilmu Sebelum Amal (3)
+### 6. Ilmu Sebelum Amal (32)
 
 ___
 
@@ -336,7 +336,7 @@ read more : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 ___
 
-### 7. Tawakkal Kepada Allah (3)
+### 7. Tawakkal Kepada Allah (32)
 
 ___
 
@@ -378,7 +378,7 @@ read more : https://kangaswad.wordpress.com/2020/08/02/melatih-akhlak-mulia/
 
 ___
 
-### 9. Sebab - Sebab Kebahagiaan (2)
+### 9. Sebab - Sebab Kebahagiaan (21)
 
 ___
 
@@ -480,7 +480,7 @@ read more : https://muslim.or.id/23085-11-amalan-bidah-di-bulan-muharram.html
 
 ___
 
-### 14. Adab Menghadiri Shalat Jum'at (2)
+### 14. Adab Menghadiri Shalat Jum'at (21)
 
 ___
 
@@ -622,7 +622,7 @@ ___
 
 ## September 2020 (QC)
 
-### 1. Berputar Arah (2)
+### 1. Berputar Arah (21)
 
 Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
 Rindu masa lalu dan tidak menghancurkan jejaknya
@@ -2325,3 +2325,6 @@ source : https://t.me/MaaHaadzaa/17447
 - [x] 31-12-20
 
 ___
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTEzNDIxNTg5ODFdfQ==
+-->
