@@ -330,7 +330,9 @@ yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 ---
 
 ### 18. Berputar Arah (September '20)
+
 ---
+
 Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
 Rindu masa lalu dan tidak menghancurkan jejaknya
 
@@ -3124,7 +3126,7 @@ read more : https://muslim.or.id/45299-sakit-badan-tidak-merasakan-lezatnya-maka
 
 ### 12. Doa Ketika Dipuji
 
-ﺍَﻟﻠَّﻬُﻢَّ ﻻَ ﺗُﺆَﺍﺧِﺬْﻧِﻲْ ﺑِﻤَﺎ ﻳَﻘُﻮْﻟُﻮْﻥَ، ﻭَﺍﻏْﻔِﺮْﻟِﻲْ ﻣَﺎ ﻻَ ﻳَﻌْﻠَﻤُﻮْﻥَ  ﻭَﺍﺟْﻌَﻠْﻨِﻲْ ﺧَﻴْﺮًﺍ ﻣِﻤَّﺎ ﻳَﻈُﻨُّﻮْﻥَ
+ﺍَﻟﻠَّﻬُﻢَّ ﻻَ ﺗُﺆَﺍﺧِﺬْﻧِﻲْ ﺑِﻤَﺎ ﻳَﻘُﻮْﻟُﻮْﻥَ، ﻭَﺍﻏْﻔِﺮْﻟِﻲْ ﻣَﺎ ﻻَ ﻳَﻌْﻠَﻤُﻮْﻥَ ‏ ﻭَﺍﺟْﻌَﻠْﻨِﻲْ ﺧَﻴْﺮًﺍ ﻣِﻤَّﺎ ﻳَﻈُﻨُّﻮْﻥَ
 
 “Ya Allah, semoga Engkau tidak menghukumku karena apa yang mereka katakan. Ampunilah aku atas apa yang tidak mereka ketahui. Dan jadikanlah aku lebih baik daripada yang mereka perkirakan."
 
@@ -3630,3 +3632,6 @@ Dinukil dari Rumaysho.com dalam artikel "Lalai Untuk Belajar Islam"
 sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 
 - [x] 31-12-21 / repost 11-08-20 utsman-media-BrgwHYI-428-unsplash
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTM1MjU1NTgwMl19
+-->
