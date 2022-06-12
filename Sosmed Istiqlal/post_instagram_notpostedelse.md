@@ -52,9 +52,38 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 5. 
-### 6. 
-### 7. 
+### 5. Untitled
+___
+"Kalau urusan kebaikan maka anggaplah orang lain lebih darimu, dan kalau urusan keburukan maka jangan sama ratakan semua orang itu sama buruknya dengan dirimu"
+Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
+
+Dinukil dari facebook beliau.
+
+Sumber : https://s.id/-18QRr
+
+### 6. Untitled
+___
+Rasulullah -shallallaahu 'alaihi wa sallam- bersabda,
+
+"Orang yang paling lemah adalah orang yang malas untuk bedoa"
+
+Diriwayatkan oleh Abu Ya'laa, Ibnu Hibbaan, Ath-Thabaraaniy, dan lainnya - As-Silsilah Ash-Shahiihah no. 601. 
+Dinukil dari facebook Ustadz Dony Arif Wibowo -hafizhahullah- dengan sedikit penyesuaian.
+
+Sumber : https://s.id/-18QWe
+
+### 7. Bahaya Melihat dan Kagum Dengan Ibadah 
+___
+Sai'd bin Jubair -radhiallahu 'anhu- berkata,
+
+"Seorang hamba mengamalkan kebaikan namun masuk neraka karenanya, dan seorang berbuat keburukan namun masuk surga karenanya."
+Kok bisa begitu !?
+Itu karena orang yang berbuat kebaikan ini selalu melihat amal baiknya dan membanggakannya, sedangkan orang yang berbuat keburukan tadi melihat dosanya lalu Istighfar dan bertaubat.
+
+Majmu' Alfatawa 10/45. 
+Dinukil dari facebook Ustadz Musamulyadi Luqman, BA -hafizhahullah- dengan sedikit penyesuaian
+
+Sumber : https://s.id/-18QXr
 ### 8. 
 ### 9. 
 ### 10. 
