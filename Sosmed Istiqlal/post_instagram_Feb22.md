@@ -228,7 +228,7 @@ read more :
 
 - [x] 21-2-22 // repost 25-9-20 zara-walker-2JqzgXA8W2E-unsplash
 
-### 15. () Untitled
+### 15. Datang Sebelum Adzan
 ___
 Sufyan bin Uyainah -rahimahullah- mengatakan,
 "Jangan seperti budak yang buruk, tidak datang kecuali setelah dipanggil. Datanglah ke masjid sebelum adzan". Ada yang mengatakan, "Diantara bentuk menghormati sholat adalah datang iqomah dikumandangkan" 
@@ -238,14 +238,25 @@ Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah- dengan sedikit
 
 Sumber : https://s.id/16HDw
 
-- [ ] 22-2-22
+- [x] 22-2-22 kheldoun-imad-uT31hwUykQQ-unsplash
 
-### 16. ()
+### 16. Bahaya Melihat dan Kagum Dengan Ibadah 
 ___
-- [ ] 23-2-22
+Sa'id bin Jubair -radhiallahu 'anhu- berkata,
+
+"Seorang hamba mengamalkan kebaikan namun masuk neraka karenanya, dan seorang berbuat keburukan namun masuk surga karenanya."
+Kok bisa begitu !?
+Itu karena orang yang berbuat kebaikan ini selalu melihat amal baiknya dan membanggakannya, sedangkan orang yang berbuat keburukan tadi melihat dosanya lalu Istighfar dan bertaubat.
+
+Majmu' Alfatawa 10/45. 
+Dinukil dari facebook Ustadz Musamulyadi Luqman, BA -hafizhahullah- dengan sedikit penyesuaian
+
+Sumber : https://s.id/-18QXr
+
+- [x] 23-2-22 pexels-gizem-mat-10133872
 
 ### 17. Tidak Ada Qobliyah dan Ba'diyah Ied
-
+___
 Ibnu ‘Abbas -Radhiallahu 'anhu- berkata,
 
 “Rasulullah -shallallahu ‘alaihi wa sallam- pernah keluar pada hari Idul Adha atau Idul Fithri, lalu beliau mengerjakan shalat ‘ied dua raka’at, namun beliau tidak mengerjakan shalat qobliyah maupun ba’diyah ‘ied.”
