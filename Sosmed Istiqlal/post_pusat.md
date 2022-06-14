@@ -1532,7 +1532,7 @@ ___
 
 - [x] 4-11-20 / repost 30-07-20
 
-### 3. Ibadah berupa memberi nafkah
+### 3. Ibadah berupa memberi nafkah (1)
 
 ___
 
@@ -1611,7 +1611,7 @@ ___
 
 - [x] 10-11-20
 
-### 7. Nikmat yang Besar
+### 7. Nikmat yang Besar (1)
 
 ___
 
@@ -1628,10 +1628,8 @@ ___
 
 - [x] 11-11-20
 
-### 8. Maksiat
-
+### 8. Maksiat (1)
 ___
-
 Bilal bin Sa'ad -rahimahullah- berkata :
 "Janganlah engkau melihat kecilnya maksiat tetapi lihatlah kepada siapa engkau bermaksiat.”
 
@@ -1646,7 +1644,7 @@ ___
 
 - [x] 12-11-20
 
-### 9. Jangan Merasa Aman
+### 9. Jangan Merasa Aman (1)
 
 ___
 
@@ -2132,7 +2130,7 @@ Dinukil dari Ustadz Musa Mulyadi Luqman, Lc. via WhatsApp dengan sedikit penyesu
 
 ___
 
-### 13. Tanda Kebahagiaan
+### 13. Tanda Kebahagiaan (1)
 
 ___
 
@@ -2153,7 +2151,7 @@ read more : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
 ___
 
-### 14. Kekayaan Sejati
+### 14. Kekayaan Sejati (1)
 
 ___
 
@@ -2257,8 +2255,7 @@ watch more : https://www.youtube.com/watch?v=NW59PUoiWOo
 
 ___
 
-### 20. Menguasai Ucapan
-
+### 20. Menguasai Ucapan (1)
 ___
 
 ada kalimat bijak mengatakan,
@@ -2295,7 +2292,7 @@ https://www.youtube.com/watch?v=TSi2PaqEGg8
 
 ___
 
-### 22. Jebakan Berupa Nikmat
+### 22. Jebakan Berupa Nikmat (1)
 
 ___
 
