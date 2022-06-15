@@ -231,7 +231,7 @@ read more :
 ### 15. Datang Sebelum Adzan
 ___
 Sufyan bin Uyainah -rahimahullah- mengatakan,
-"Jangan seperti budak yang buruk, tidak datang kecuali setelah dipanggil. Datanglah ke masjid sebelum adzan". Ada yang mengatakan, "Diantara bentuk menghormati sholat adalah datang iqomah dikumandangkan" 
+"Jangan seperti budak yang buruk, tidak datang kecuali setelah dipanggil. Datanglah ke masjid sebelum adzan". Ada yang mengatakan, "Diantara bentuk menghormati sholat adalah datang sebelum iqomah dikumandangkan" 
 
 Hilyatul Auliya 7/285.
 Dinukil dari status facebook Ustadz Aris Munandar -hafizhahullah- dengan sedikit penyesuaian
