@@ -52,98 +52,22 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 5. Untitled
-___
-"Kalau urusan kebaikan maka anggaplah orang lain lebih darimu, dan kalau urusan keburukan maka jangan sama ratakan semua orang itu sama buruknya dengan dirimu"
-Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
+### 5. 
 
-Dinukil dari facebook beliau.
+### 6. 
 
-Sumber : https://s.id/-18QRr
+### 7. 
 
-### 6. Untitled
-___
-Rasulullah -shallallaahu 'alaihi wa sallam- bersabda,
+### 8. 
 
-"Orang yang paling lemah adalah orang yang malas untuk bedoa"
+### 9. 
 
-Diriwayatkan oleh Abu Ya'laa, Ibnu Hibbaan, Ath-Thabaraaniy, dan lainnya - As-Silsilah Ash-Shahiihah no. 601. 
-Dinukil dari facebook Ustadz Dony Arif Wibowo -hafizhahullah- dengan sedikit penyesuaian.
+### 10. 
 
-Sumber : https://s.id/-18QWe
+### 11. 
 
-### 7. Wahai Manusia 
-___
-Al-Hasan Al-Bashri -rahimahullah- berkata,
+### 12. 
 
-"Wahai manusia, sesungguhnya kalian hanyalah kumpulan hari. Tatkala satu hari itu hilang, maka akan hilang pula sebagian darimu."
- 
-Hilyatull Auliya', 2/148.
-Dinukil dari kanal telegram MaaHaadza, dengan sedikit perubahan
-Sumber : https://t.me/MaaHaadzaa/17447
-
-### 8. Jebakan Berupa Nikmat (repost 30-12-20)
-___
-Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
-
-“Bila kamu melihat Allah memberi pada hamba dari (perkara) dunia yang diinginkannya, padahal dia terus berada dalam kemaksiatan kepada-Nya, maka (ketahuilah) bahwa hal itu adalah istidraj (jebakan berupa nikmat yang disegerakan) dari Allah.”
-
-HR. Ahmad 4: 145. Syaikh Syu’aib Al Arnauth mengatakan bahwa hadits ini hasan dilihat dari jalur lain
-Dinukil dari laman Rumaysho dalam artikel "Istidraj Jebakan Berupa Limpahan Rezeki Karena Bermaksiat" dengan sedikit penyesuaian
-
-Sumber :
-https://rumaysho.com/10828-istidraj-jebakan-berupa-limpahan-rezeki-karena-bermaksiat.html
-### 9. Di Kuasai Oleh Ucapan (Judul asli Menguasai Ucapan // repost 28-12-20)
-___
-
-ada kalimat bijak mengatakan,
-"omongan itu sebelum engkau ucapkan, engkau kuasai dia.
-begitu engkau ucapkan, dia menguasaimu."
-
-omongan seblum kita ucapkan kita bisa menguasainya, terserah diucapkan atau tidak dan kepada siapa.
-begitu sudah diucapkan dia bisa menguasai kita.
-Ustadz Abdullah Zaen, Lc. MA 
-
-Faidah catatan kajian dengan judul "Adab dan Akhlak Tips Memperbanyak Diam"
-
-Selengkapnya :
-https://www.youtube.com/watch?v=TSi2PaqEGg8
-### 10. Kekayaan Sejati (repost 18-12-20)
-___
-Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
-"Yang namanya kaya (ghina’), bukanlah dengan banyaknya harta (atau banyaknya kemewahan dunia). Namun yang namanya ghina’ adalah hati yang selalu merasa cukup"
-
-HR. Bukhari dan Muslim
-Dinukil dari laman Muslim.or.id dalam artikel "tanda-tanda kebahagiaan yang sejati"
-
-Sumber : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
-### 11. 3 Tanda Kebahagiaan (Judul asli Tanda Kebahagiaan / Desember '20 )
-___
-Syaikh Muhammad At-Tamimy -rahimahullah- berkata tentang tanda kebahagiaan :
-
-1. Jika diberi kenikmatan, dia bersyukur
-2. Jika diuji dengan ditimpa musibah, dia bersabar
-3. dan jika melakukan dosa, dia beristighfar(bertaubat)
-   Maka tiga hal ini adalah tanda kebahagiaan
-
-Matn Qowaidul Arba'
-Dinukil dari laman Muslim.or.id dalam artikel "tanda-tanda kebahagiaan yang sejati" dengan sedikit penyesuaian
-
-Sumber : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
-repost 17-12-20
-
-### 12. Ibadah berupa memberi nafkah (November '20)
-___
-Syaikh Muhammad bin Shalih al-Utsaimin -rahimahullah- berkata :
-“Sebagian manusia ketika memberikan nafkah kepada keluarganya, ia tidak merasa bahwa ia sedang beribadah kepada Allah dengan nafkah ini. Ketika datang seorang yang miskin lalu ia memberikan satu rial, maka ia merasa sedang beribadah kepada Allah.”
-
-Syarh Riyadhus Shalihin, 4: 389
-Dinukil dari laman Muslim.or.id dalam artikel "Memberi nafkah kepada anak istri juga ibadah yang agung"
-
-Sumber :
-https://muslim.or.id/58957-memberi-nafkah-kepada-anak-istri-juga-ibadah-yang-agung.html
-
-repost 5-11-20
 ### 13. (Judul asli Nikmat yang Besar / Nov '20)
 ___
 Syaikh Sulaiman Ar-Ruhaili -hafizhahullah- berkata,

@@ -15,7 +15,7 @@ Dinukil dari Rumaysho.com dalam artikel berjudul "Bulughul Maram Akhlak Menjadi 
 
 Sumber : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 
-- [] 1-2-22 // repost repost 6-10-20 pexels-cottonbro-5967048
+- [x] 1-2-22 // repost repost 6-10-20 pexels-cottonbro-5967048
 
 ### 2. Cinta Dunia
 ___
@@ -270,7 +270,7 @@ Sumber : https://rumaysho.com/676-panduan-shalat-idul-fithri-dan-idul-adha.html
 
 ___
 
-### 19. Bertakbir Saat Menuju Shalat Ied
+### 18. Bertakbir Saat Menuju Shalat Ied
 
 “Nabi -shallallahu ‘alaihi wa sallam- biasa keluar hendak shalat pada hari raya ‘Idul Fithri, lantas beliau bertakbir sampai di lapangan dan sampai shalat hendak dilaksanakan. Ketika shalat hendak dilaksanakan, beliau berhenti dari bertakbir.”
 
@@ -283,7 +283,7 @@ Sumber : https://rumaysho.com/676-panduan-shalat-idul-fithri-dan-idul-adha.html
 
 ___
 
-### 20. Meminta Pertolongan di Sisa Ramadhan
+### 19. Meminta Pertolongan di Sisa Ramadhan
 
 Bulan yang agung ini akan segera meninggalkan kita. Bulan dimana yang telah mendahulu kita, berangan untuk kembali berjumpa dengannya. Maka mohonlah pertolongan kepadaNya serta teruslah berpacu di yang tersisa. 
 "Dan mintalah pertolongan kepada Allah serta janganlah sekali-kali engkau merasa lemah"
