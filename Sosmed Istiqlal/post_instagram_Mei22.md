@@ -103,37 +103,61 @@ https://muslim.or.id/58957-memberi-nafkah-kepada-anak-istri-juga-ibadah-yang-agu
 
 ___
 
-### 7. 
+### 7. (Judul asli Nikmat yang Besar / Nov '20)
 ___
+Syaikh Sulaiman Ar-Ruhaili -hafizhahullah- berkata,
+“Salah satu nikmat yang terbesar dari Allah kepada anda adalah Allah menjadikan hati anda lembut dan penuh kasih sayang sehingga anda berinteraksi baik dengan orang yang dekat maupun orang yang jauh, baik dengan orang yang baik agamanya maupun dengan orang yang menyimpang, sikap anda tetap sesuai dengan tuntutan syariat walaupun sebenarnya hawa nafsu anda menyelisihinya.ˮ
 
-“ ˮ
+Dinukil dari laman KangAswad dalam artikel "Sikap Lemah Lembut Adalah Nikmat Yang Besar"
 
-- [] 10-5-22 // 
+Sumber :
+https://kangaswad.wordpress.com/2013/12/18/sikap-lemah-lembut-adalah-nikmat-yang-besar/
 
-___
-
-### 8. () 
-___
-
-“ ˮ
-
-- [] 11-5-22 // 
+- [] 10-5-22 // repost 11-11-20
 
 ___
 
-### 9. ()
+### 8. (Judul asli Maksiat / Nov '20)
+___
+Bilal bin Sa'ad -rahimahullah- berkata ,
+"Janganlah engkau melihat kecilnya maksiat tetapi lihatlah kepada siapa engkau bermaksiat.”
+
+Ad-Daa’ wad Dawaa’ hal. 82
+Dinukil dari laman Muslim.or.id dalam artikel "Bukan Besarnya Dosa, Tetapi Kepada Siapa Bermaksiat"
+
+Sumber :
+https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.html
+
+- [] 11-5-22 // repost 12-11-20
+
 ___
 
-“ ˮ
+### 9. Jangan Merasa Aman (Nov '20)
+___
+Ibnu 'Abbas -radhiallahu anhu- berkata,
+“Wahai pelaku dosa, janganlah merasa aman dari jeleknya akibat dosa, karena dosa yang lebih besar bisa jadi mengiringinya/mengikutinya, lebih besar dari dosa yang telah engkau lakukan (sekarang).”
 
-- [] 12-5-22 // 
+Hilyatul Auliya’ no. 1180
+Dinukil dari laman Muslim.or.id dalam artikel "Bukan Besarnya Dosa, Tetapi Kepada Siapa Bermaksiat"
+
+Sumber :
+https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.html
+
+- [] 12-5-22 // repost 13-11-20
 
 ___
 
-### 10. ()
+### 10. () Menangislah
 ___
+Ibnul Jauzi -rahimahullah- berkata,
 
-“ ˮ
+“Wahai orang yg banyak dosa tapi sedikit nangis, menangislah atas tidak menangisnya dirimu. 
+Dahulu orang² biasa menangis padahal mereka bertaqwa, sedang dirimu biasa tertawa padahal banyak dosaˮ
+
+Al-Khawatim 254.
+Dinukil dari status facebook Ustadz Musyaffa' Ad-Dariny -Hafizhahullah- dengan sedikit penyesuaian
+
+Sumber : https://s.id/19OMm
 
 - [] 13-5-22 // 
 

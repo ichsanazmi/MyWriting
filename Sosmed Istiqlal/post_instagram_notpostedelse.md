@@ -68,44 +68,11 @@ read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
 ### 12. 
 
-### 13. (Judul asli Nikmat yang Besar / Nov '20)
-___
-Syaikh Sulaiman Ar-Ruhaili -hafizhahullah- berkata,
-"Salah satu nikmat yang terbesar dari Allah kepada anda adalah Allah menjadikan hati anda lembut dan penuh kasih sayang sehingga anda berinteraksi baik dengan orang yang dekat maupun orang yang jauh, baik dengan orang yang baik agamanya maupun dengan orang yang menyimpang, sikap anda tetap sesuai dengan tuntutan syariat walaupun sebenarnya hawa nafsu anda menyelisihinya."
+### 13. 
 
-Dinukil dari laman KangAswad dalam artikel "Sikap Lemah Lembut Adalah Nikmat Yang Besar"
+### 14. 
 
-Sumber :
-https://kangaswad.wordpress.com/2013/12/18/sikap-lemah-lembut-adalah-nikmat-yang-besar/
-
-repost 11-11-20
-
-### 14. (Judul asli Maksiat / Nov '20)
-___
-Bilal bin Sa'ad -rahimahullah- berkata ,
-"Janganlah engkau melihat kecilnya maksiat tetapi lihatlah kepada siapa engkau bermaksiat.”
-
-Ad-Daa’ wad Dawaa’ hal. 82
-Dinukil dari laman Muslim.or.id dalam artikel "Bukan Besarnya Dosa, Tetapi Kepada Siapa Bermaksiat"
-
-Sumber :
-https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.html
-
-12-11-20
-
-### 15. Jangan Merasa Aman (Nov '20)
-___
-Ibnu 'Abbas -radhiallahu anhu- berkata,
-“Wahai pelaku dosa, janganlah merasa aman dari jeleknya akibat dosa, karena dosa yang lebih besar bisa jadi mengiringinya/mengikutinya, lebih besar dari dosa yang telah engkau lakukan (sekarang).”
-
-Hilyatul Auliya’ no. 1180
-Dinukil dari laman Muslim.or.id dalam artikel "Bukan Besarnya Dosa, Tetapi Kepada Siapa Bermaksiat"
-
-Sumber :
-https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.html
-___
-
-- [x] 13-11-20
+### 15. 
 
 ### 16. 
 

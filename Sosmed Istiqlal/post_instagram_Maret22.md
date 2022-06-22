@@ -38,7 +38,7 @@ Sumber : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-syawwa
 
 - [x] 3-3-22
 
-### 4. () Jangan Pukul Rata
+### 4. Jangan Pukul Rata
 ___
 "Kalau urusan kebaikan maka anggaplah orang lain lebih darimu, dan kalau urusan keburukan maka jangan sama ratakan semua orang itu sama buruknya dengan dirimu"
 Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
@@ -47,7 +47,7 @@ Dinukil dari facebook beliau -hafizhahullah- dengan sedikit penyesuaian.
 
 Sumber : https://s.id/-18QRr
 
-- [ ] 4-3-22 madrosah-sunnah-LUVFin9QNwk-unsplash
+- [x] 4-3-22 madrosah-sunnah-LUVFin9QNwk-unsplash
 
 ### 5. Memperbanyak Do'a Di Ramadhan
 
@@ -90,18 +90,18 @@ read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hi
 
 - [x] 9-3-22
 
-### 8. () Malas Untuk Berdoa
+### 8. Malas Untuk Berdoa
 ___
 Rasulullah -shallallaahu 'alaihi wa sallam- bersabda,
 
-"Orang yang paling lemah adalah orang yang malas untuk bedoa"
+"Orang yang paling lemah adalah orang yang malas untuk berdoa"
 
 Diriwayatkan oleh Abu Ya'laa, Ibnu Hibbaan, Ath-Thabaraaniy, dan lainnya - As-Silsilah Ash-Shahiihah no. 601. 
 Dinukil dari facebook Ustadz Dony Arif Wibowo -hafizhahullah- dengan sedikit penyesuaian.
 
 Sumber : https://s.id/-18QWe
 
-- [ ] 10-3-22 masjid-maba-QhzQfD0ihnI-unsplash
+- [x] 10-3-22 masjid-maba-QhzQfD0ihnI-unsplash
 
 ### 9. Berharap Yang Salah
 
