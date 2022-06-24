@@ -163,3 +163,14 @@ Sumber : https://s.id/19OMm
 
 ___
 
+### 11. () Untitled 
+___
+“Kalau ingin enteng dalam mendidik anak, didik diri kita dulu. Anak-anak kita itu peniru ulung, kalau kita bisa jadi contoh yang baik, anak akan mengikuti insyaAllahˮ
+
+Ustadz Wira Bachrun -Hafizhahullah-
+
+Dinukil dari status facebook beliau dengan sedikit penyesuaian
+
+sumber : https://s.id/-19T87
+
+- [] 16-5-22
