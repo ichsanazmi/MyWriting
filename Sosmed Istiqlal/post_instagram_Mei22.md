@@ -174,3 +174,61 @@ Dinukil dari status facebook beliau dengan sedikit penyesuaian
 sumber : https://s.id/-19T87
 
 - [] 16-5-22
+
+___
+
+### 12 . () Maksimal dalam Beramal di Awal Dzulhijjah
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+“Tidak ada hari dimana suatu amal salih lebih dicintai Allah melebihi amal salih yang dilakukan di sepuluh hari ini (sepuluh hari pertama Dzulhijjah, pen.).”
+
+Para sahabat bertanya, “Wahai Rasulullah, termasuk lebih utama dari jihad fi sabilillah?
+
+Nabi shallallahu ‘alaihi wa sallam menjawab,
+“Termasuk lebih utama dibanding jihad fi sabilillah. Kecuali orang yang keluar dengan jiwa dan hartanya (ke medan jihad), dan tidak ada satupun yang kembali (mati dan hartanya diambil musuh, pen.).”
+
+HR. Ahmad, Bukhari, dan Turmudzi
+Dinukil dari laman Konsultasi Syariah dalam artikel "Inilah Amalan Bulan Dzulhijjah Yang Perlu Anda Ketahui" dengan sedikit penyesuaian
+
+Sumber : https://konsultasisyariah.com/32228-inilah-amalan-bulan-dzulhijjah-yang-perlu-anda-ketahui.html
+
+- [] 17-5-22
+___
+
+### 13. () Puasa 'Arafah (Juli '20)
+___
+Nabi -Shallallahu ‘alaihi wa sallam- bersabda,
+“Puasa Arafah (9 Dzulhijjah) dapat menghapuskan dosa setahun yang lalu dan setahun akan datang....”
+
+HR. Muslim no. 1162.
+Dinukil dari laman Muslim.or.id dalam artikel "Kemuliaan dan Keistimewaan Hari Arafah" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah.html
+
+- [] 18-5-22 / Repost 29-07-20 
+___
+
+### 14. () Untitled (Judul Asli Dijauhkan dari Neraka / Juli '20)
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
+"Tidaklah seorang hamba berpuasa satu hari di jalan Allah kecuali Allah akan menjauhkan wajahnya dari api neraka (dengan puasa itu) sejauh 70 tahun jarak perjalanan"
+
+HR Bukhari Muslim dan Lainnya
+Dinukil dari laman Muslim.or.id dalam artikel "Puasa Sunnah" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/294-puasa-sunnah.html
+
+- [] 19-5-22/ Repost 28-07-20
+___
+
+### 15. () Puasa Senin Kamis (Juli '20)
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
+"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+
+HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
+Dinukil dari laman Muslim.or.id dalam artikel "puasa Senin Kamis" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+
+- [] 20-5-22

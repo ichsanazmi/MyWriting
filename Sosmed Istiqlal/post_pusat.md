@@ -124,7 +124,7 @@ Majmu' Fatawa, 8/454, Dinukil dari status Ustadz Abu Razin Taufiq -Hafizhahullah
 
 ___
 
-### 8. Dijauhkan dari Neraka (1)
+### 8. Dijauhkan dari Neraka (2)
 
 ___
 
@@ -141,7 +141,7 @@ read more : https://muslim.or.id/294-puasa-sunnah.html
 
 ___
 
-### 9. Puasa 'Arafah (1)
+### 9. Puasa 'Arafah (2)
 
 ___
 
@@ -156,11 +156,11 @@ dalam artikel yang ditulis oleh Ustadz Muhammad Abduh Tuasikal, M.Sc -Hafizhahul
 
 read more : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah.html
 
-- [x] 29-07-20
+- [x] 29-07-20 
 
 ___
 
-### 10. Puasa Senin Kamis (1)
+### 10. Puasa Senin Kamis (2)
 
 ___
 

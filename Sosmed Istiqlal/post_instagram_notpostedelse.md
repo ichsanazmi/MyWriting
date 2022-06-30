@@ -52,8 +52,17 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 5. 
+### 5. Untitled
+___
+Di antara strategi ampuh untuk memancing diri agar lebih ringan dan semangat menghadiri shalat jamaah adalah dengan menjawab azan, bermula dari menjawabnya maka insyallah akan muncul rasa untuk mendatanginya.
 
+Barangkali itulah di antara hikmah kita disuruh menjawab azan, dalam Hadits disebutkan
+إذا سمعتم النداء فقولوا مثل ما يقول المؤذن
+"Apabila kalian telah mendengar azan, maka ucapkanlah seperti yang diucapkan orang yang azan." (Muttafaq 'Alaih).
+
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
+
+Sumber : https://s.id/1az8g
 ### 6. 
 
 ### 7. 
