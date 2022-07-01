@@ -88,22 +88,22 @@ Sumber : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
 ___
 
-### 6. () Ibadah berupa memberi nafkah (November '20)
+### 6. (v) Ibadah Berupa Memberi Nafkah (November '20)
 ___
 Syaikh Muhammad bin Shalih al-Utsaimin -rahimahullah- berkata :
-“Sebagian manusia ketika memberikan nafkah kepada keluarganya, ia tidak merasa bahwa ia sedang beribadah kepada Allah dengan nafkah ini. Ketika datang seorang yang miskin lalu ia memberikan satu rial, maka ia merasa sedang beribadah kepada Allah.”
+“Sebagian manusia ketika memberikan nafkah kepada keluarganya, ia tidak merasa bahwa ia sedang beribadah kepada Allah dengan nafkah ini. Ketika datang seorang yang miskin lalu ia memberikan satu riyal, maka ia merasa sedang beribadah kepada Allah.”
 
 Syarh Riyadhus Shalihin, 4: 389
-Dinukil dari laman Muslim.or.id dalam artikel "Memberi nafkah kepada anak istri juga ibadah yang agung"
+Dinukil dari laman Muslim.or.id dalam artikel "Memberi nafkah kepada anak istri juga ibadah yang agung" dengan sedikit penyesuaian
 
 Sumber :
 https://muslim.or.id/58957-memberi-nafkah-kepada-anak-istri-juga-ibadah-yang-agung.html
-
-- [] 9-5-22 // 
+ 
+- [] 9-5-22 / florian-klauer-mk7D-4UCfmg-unsplash
 
 ___
 
-### 7. (Judul asli Nikmat yang Besar / Nov '20)
+### 7. Hati Yang Lembut dan Penuh Kasih Sayang (Judul asli Nikmat yang Besar / Nov '20)
 ___
 Syaikh Sulaiman Ar-Ruhaili -hafizhahullah- berkata,
 “Salah satu nikmat yang terbesar dari Allah kepada anda adalah Allah menjadikan hati anda lembut dan penuh kasih sayang sehingga anda berinteraksi baik dengan orang yang dekat maupun orang yang jauh, baik dengan orang yang baik agamanya maupun dengan orang yang menyimpang, sikap anda tetap sesuai dengan tuntutan syariat walaupun sebenarnya hawa nafsu anda menyelisihinya.ˮ
@@ -113,11 +113,11 @@ Dinukil dari laman KangAswad dalam artikel "Sikap Lemah Lembut Adalah Nikmat Yan
 Sumber :
 https://kangaswad.wordpress.com/2013/12/18/sikap-lemah-lembut-adalah-nikmat-yang-besar/
 
-- [] 10-5-22 // repost 11-11-20
+- [] 10-5-22 // repost 11-11-20 tomoko-uji-v4bkVOl1sTI-unsplash
 
 ___
 
-### 8. (Judul asli Maksiat / Nov '20)
+### 8. Untitled (Judul asli Maksiat / Nov '20)
 ___
 Bilal bin Sa'ad -rahimahullah- berkata ,
 "Janganlah engkau melihat kecilnya maksiat tetapi lihatlah kepada siapa engkau bermaksiat.”
@@ -128,7 +128,7 @@ Dinukil dari laman Muslim.or.id dalam artikel "Bukan Besarnya Dosa, Tetapi Kepad
 Sumber :
 https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.html
 
-- [] 11-5-22 // repost 12-11-20
+- [] 11-5-22 // repost 12-11-20 noah-silliman-gzhyKEo_cbU-unsplash
 
 ___
 
@@ -143,11 +143,11 @@ Dinukil dari laman Muslim.or.id dalam artikel "Bukan Besarnya Dosa, Tetapi Kepad
 Sumber :
 https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.html
 
-- [] 12-5-22 // repost 13-11-20
+- [] 12-5-22 // repost 13-11-20 yevhen-buzuk-R6TMFhxRxeI-unsplash
 
 ___
 
-### 10. () Menangislah
+### 10. (v) Menangislah
 ___
 Ibnul Jauzi -rahimahullah- berkata,
 
@@ -159,11 +159,11 @@ Dinukil dari status facebook Ustadz Musyaffa' Ad-Dariny -Hafizhahullah- dengan s
 
 Sumber : https://s.id/19OMm
 
-- [] 13-5-22 // 
+- [] 13-5-22 // ben-abraham-0ZniuXBivVY-unsplash
 
 ___
 
-### 11. () Untitled 
+### 11. (v) Sang Peniru Ulung 
 ___
 “Kalau ingin enteng dalam mendidik anak, didik diri kita dulu. Anak-anak kita itu peniru ulung, kalau kita bisa jadi contoh yang baik, anak akan mengikuti insyaAllahˮ
 
@@ -173,42 +173,42 @@ Dinukil dari status facebook beliau dengan sedikit penyesuaian
 
 sumber : https://s.id/-19T87
 
-- [] 16-5-22
+- [] 16-5-22 // florian-klauer-LmkaYtMpNS8-unsplash
 
 ___
 
-### 12 . () Maksimal dalam Beramal di Awal Dzulhijjah
+### 12 . Maksimal dalam Beramal di Awal Dzulhijjah
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 “Tidak ada hari dimana suatu amal salih lebih dicintai Allah melebihi amal salih yang dilakukan di sepuluh hari ini (sepuluh hari pertama Dzulhijjah, pen.).”
 
-Para sahabat bertanya, “Wahai Rasulullah, termasuk lebih utama dari jihad fi sabilillah?
+Para sahabat bertanya, “Wahai Rasulullah, termasuk lebih utama dari jihad fi sabilillah?”
 
-Nabi shallallahu ‘alaihi wa sallam menjawab,
+Nabi -shallallahu ‘alaihi wa sallam- menjawab,
 “Termasuk lebih utama dibanding jihad fi sabilillah. Kecuali orang yang keluar dengan jiwa dan hartanya (ke medan jihad), dan tidak ada satupun yang kembali (mati dan hartanya diambil musuh, pen.).”
 
-HR. Ahmad, Bukhari, dan Turmudzi
+HR. Ahmad, Bukhari, dan Tirmidzi
 Dinukil dari laman Konsultasi Syariah dalam artikel "Inilah Amalan Bulan Dzulhijjah Yang Perlu Anda Ketahui" dengan sedikit penyesuaian
 
 Sumber : https://konsultasisyariah.com/32228-inilah-amalan-bulan-dzulhijjah-yang-perlu-anda-ketahui.html
 
-- [] 17-5-22
+- [x] 17-5-22 / madrosah-sunnah-YwVo6oTtgYE-unsplash
 ___
 
-### 13. () Puasa 'Arafah (Juli '20)
+### 13. Puasa 'Arafah (Juli '20)
 ___
 Nabi -Shallallahu ‘alaihi wa sallam- bersabda,
-“Puasa Arafah (9 Dzulhijjah) dapat menghapuskan dosa setahun yang lalu dan setahun akan datang....”
+“Puasa Arafah (9 Dzulhijjah) dapat menghapuskan dosa setahun yang lalu dan setahun akan datang..”
 
 HR. Muslim no. 1162.
 Dinukil dari laman Muslim.or.id dalam artikel "Kemuliaan dan Keistimewaan Hari Arafah" dengan sedikit penyesuaian
 
 Sumber : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah.html
 
-- [] 18-5-22 / Repost 29-07-20 
+- [x] 18-5-22 / Repost 29-07-20 masjid-pogung-dalangan-pUxPMYP2ykI-unsplash
 ___
 
-### 14. () Untitled (Judul Asli Dijauhkan dari Neraka / Juli '20)
+### 14. (v) Dijauhkan dari Neraka Sejauh Jarak 70 tahun (Judul Asli Dijauhkan dari Neraka / Juli '20)
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Tidaklah seorang hamba berpuasa satu hari di jalan Allah kecuali Allah akan menjauhkan wajahnya dari api neraka (dengan puasa itu) sejauh 70 tahun jarak perjalanan"
@@ -218,17 +218,17 @@ Dinukil dari laman Muslim.or.id dalam artikel "Puasa Sunnah" dengan sedikit peny
 
 Sumber : https://muslim.or.id/294-puasa-sunnah.html
 
-- [] 19-5-22/ Repost 28-07-20
+- [] 19-5-22 / Repost 28-07-20 wolfgang-hasselmann-pVr6wvUneMk-unsplash
 ___
 
-### 15. () Puasa Senin Kamis (Juli '20)
+### 15. Puasa Senin Kamis (Juli '20)
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
 
 HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
-Dinukil dari laman Muslim.or.id dalam artikel "puasa Senin Kamis" dengan sedikit penyesuaian
+Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
 
 Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
 
-- [] 20-5-22
+- [x] 20-5-22 // charlesdeluvio-VkmDIP2KOmM-unsplash
