@@ -4,22 +4,22 @@
 ```
 ___
 
-### 1. () Wahai Manusia 
+### 1. (v) Hanyalah Kumpulan Hari 
 ___
 Al-Hasan Al-Bashri -rahimahullah- berkata,
 
 “Wahai manusia, sesungguhnya kalian hanyalah kumpulan hari. Tatkala satu hari itu hilang, maka akan hilang pula sebagian darimu.ˮ
  
-Hilyatull Auliya', 2/148.
+Hilyatul Auliya', 2/148.
 Dinukil dari kanal telegram MaaHaadza, dengan sedikit perubahan
 
 Sumber : https://t.me/MaaHaadzaa/17447
 
-- [] 2-5-22 // 
+- [] 2-5-22 // nine-koepfer-ox6O8llxXWU-unsplash
 
 ___
 
-### 2. () Jebakan Berupa Nikmat (Des '20)
+### 2. (v) Jebakan Berupa Nikmat (Des '20)
 ___
 Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
 
@@ -31,11 +31,11 @@ Dinukil dari laman Rumaysho dalam artikel "Istidraj Jebakan Berupa Limpahan Reze
 Sumber :
 https://rumaysho.com/10828-istidraj-jebakan-berupa-limpahan-rezeki-karena-bermaksiat.html
 
-- [] 3-5-22 // 
+- [] 3-5-22 // majestic-lukas-LR_fmlnWGTs-unsplash
 
 ___
 
-### 3. () Di Kuasai Oleh Ucapan (Judul asli Menguasai Ucapan // Des '20)
+### 3. (v) Di Kuasai Oleh Ucapan (Judul asli Menguasai Ucapan // Des '20)
 ___
 
 ada kalimat bijak mengatakan,
@@ -51,11 +51,11 @@ Faidah catatan kajian dengan judul "Adab dan Akhlak Tips Memperbanyak Diam"
 Selengkapnya :
 https://www.youtube.com/watch?v=TSi2PaqEGg8
 
-- [] 4-5-22 // 
+- [] 4-5-22 // niu-niu-5HzOtV-FSlw-unsplash
 
 ___
 
-### 4. () Kekayaan Sejati (Des '20)
+### 4. (v) Kekayaan Sejati (Des '20)
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -66,25 +66,25 @@ Dinukil dari laman Muslim.or.id dalam artikel "tanda-tanda kebahagiaan yang seja
 
 Sumber : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
-- [] 5-5-22 // 
+- [] 5-5-22 // osman-rana-Oi1fJwi35oI-unsplash
 
 ___
 
-### 5. () 3 Tanda Kebahagiaan (Judul asli Tanda Kebahagiaan / Desember '20 )
+### 5. (v) 3 Tanda Kebahagiaan (Judul asli Tanda Kebahagiaan / Desember '20 )
 ___
 Syaikh Muhammad At-Tamimy -rahimahullah- berkata tentang tanda kebahagiaan :
 
 1. Jika diberi kenikmatan, dia bersyukur
 2. Jika diuji dengan ditimpa musibah, dia bersabar
 3. dan jika melakukan dosa, dia beristighfar(bertaubat)
-   Maka tiga hal ini adalah tanda kebahagiaan
+Maka tiga hal ini adalah tanda kebahagiaan
 
 Matn Qowaidul Arba'
 Dinukil dari laman Muslim.or.id dalam artikel "tanda-tanda kebahagiaan yang sejati" dengan sedikit penyesuaian
 
 Sumber : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
-- [] 6-5-22 // 
+- [] 6-5-22 // thanos-pal-lPZZXH9sjZU-unsplash
 
 ___
 
@@ -103,12 +103,12 @@ https://muslim.or.id/58957-memberi-nafkah-kepada-anak-istri-juga-ibadah-yang-agu
 
 ___
 
-### 7. Hati Yang Lembut dan Penuh Kasih Sayang (Judul asli Nikmat yang Besar / Nov '20)
+### 7. (v) Hati Yang Lembut dan Penuh Kasih Sayang (Judul asli Nikmat yang Besar / Nov '20)
 ___
 Syaikh Sulaiman Ar-Ruhaili -hafizhahullah- berkata,
 “Salah satu nikmat yang terbesar dari Allah kepada anda adalah Allah menjadikan hati anda lembut dan penuh kasih sayang sehingga anda berinteraksi baik dengan orang yang dekat maupun orang yang jauh, baik dengan orang yang baik agamanya maupun dengan orang yang menyimpang, sikap anda tetap sesuai dengan tuntutan syariat walaupun sebenarnya hawa nafsu anda menyelisihinya.ˮ
 
-Dinukil dari laman KangAswad dalam artikel "Sikap Lemah Lembut Adalah Nikmat Yang Besar"
+Dinukil dari laman KangAswad dalam artikel "Sikap Lemah Lembut Adalah Nikmat Yang Besar" dengan sedikit penyesuaian
 
 Sumber :
 https://kangaswad.wordpress.com/2013/12/18/sikap-lemah-lembut-adalah-nikmat-yang-besar/
@@ -117,7 +117,7 @@ https://kangaswad.wordpress.com/2013/12/18/sikap-lemah-lembut-adalah-nikmat-yang
 
 ___
 
-### 8. Untitled (Judul asli Maksiat / Nov '20)
+### 8. (v) Pengingat Tatkala Ingin Bermaksiat (Judul asli Maksiat / Nov '20)
 ___
 Bilal bin Sa'ad -rahimahullah- berkata ,
 "Janganlah engkau melihat kecilnya maksiat tetapi lihatlah kepada siapa engkau bermaksiat.”
@@ -132,7 +132,7 @@ https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.ht
 
 ___
 
-### 9. Jangan Merasa Aman (Nov '20)
+### 9. (v) Jangan Merasa Aman (Nov '20)
 ___
 Ibnu 'Abbas -radhiallahu anhu- berkata,
 “Wahai pelaku dosa, janganlah merasa aman dari jeleknya akibat dosa, karena dosa yang lebih besar bisa jadi mengiringinya/mengikutinya, lebih besar dari dosa yang telah engkau lakukan (sekarang).”
