@@ -4,7 +4,7 @@
 ```
 ___
 
-### 1. (v) Hanyalah Kumpulan Hari 
+### 1. Hanyalah Kumpulan Hari 
 ___
 Al-Hasan Al-Bashri -rahimahullah- berkata,
 
@@ -15,11 +15,11 @@ Dinukil dari kanal telegram MaaHaadza, dengan sedikit perubahan
 
 Sumber : https://t.me/MaaHaadzaa/17447
 
-- [] 2-5-22 // nine-koepfer-ox6O8llxXWU-unsplash
+- [x] 2-5-22 // nine-koepfer-ox6O8llxXWU-unsplash
 
 ___
 
-### 2. (v) Jebakan Berupa Nikmat (Des '20)
+### 2. Jebakan Berupa Nikmat (Des '20)
 ___
 Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
 
@@ -31,11 +31,11 @@ Dinukil dari laman Rumaysho dalam artikel "Istidraj Jebakan Berupa Limpahan Reze
 Sumber :
 https://rumaysho.com/10828-istidraj-jebakan-berupa-limpahan-rezeki-karena-bermaksiat.html
 
-- [] 3-5-22 // majestic-lukas-LR_fmlnWGTs-unsplash
+- [x] 3-5-22 // majestic-lukas-LR_fmlnWGTs-unsplash
 
 ___
 
-### 3. (v) Di Kuasai Oleh Ucapan (Judul asli Menguasai Ucapan // Des '20)
+### 3. Di Kuasai Oleh Ucapan (Judul asli Menguasai Ucapan // Des '20)
 ___
 
 ada kalimat bijak mengatakan,
@@ -51,11 +51,11 @@ Faidah catatan kajian dengan judul "Adab dan Akhlak Tips Memperbanyak Diam"
 Selengkapnya :
 https://www.youtube.com/watch?v=TSi2PaqEGg8
 
-- [] 4-5-22 // niu-niu-5HzOtV-FSlw-unsplash
+- [x] 4-5-22 // niu-niu-5HzOtV-FSlw-unsplash
 
 ___
 
-### 4. (v) Kekayaan Sejati (Des '20)
+### 4. Kekayaan Sejati (Des '20)
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -66,11 +66,11 @@ Dinukil dari laman Muslim.or.id dalam artikel "tanda-tanda kebahagiaan yang seja
 
 Sumber : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
-- [] 5-5-22 // osman-rana-Oi1fJwi35oI-unsplash
+- [x] 5-5-22 // osman-rana-Oi1fJwi35oI-unsplash
 
 ___
 
-### 5. (v) 3 Tanda Kebahagiaan (Judul asli Tanda Kebahagiaan / Desember '20 )
+### 5. 3 Tanda Kebahagiaan (Judul asli Tanda Kebahagiaan / Desember '20 )
 ___
 Syaikh Muhammad At-Tamimy -rahimahullah- berkata tentang tanda kebahagiaan :
 
@@ -84,11 +84,11 @@ Dinukil dari laman Muslim.or.id dalam artikel "tanda-tanda kebahagiaan yang seja
 
 Sumber : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 
-- [] 6-5-22 // thanos-pal-lPZZXH9sjZU-unsplash
+- [x] 6-5-22 // thanos-pal-lPZZXH9sjZU-unsplash
 
 ___
 
-### 6. (v) Ibadah Berupa Memberi Nafkah (November '20)
+### 6. Ibadah Berupa Memberi Nafkah (November '20)
 ___
 Syaikh Muhammad bin Shalih al-Utsaimin -rahimahullah- berkata :
 “Sebagian manusia ketika memberikan nafkah kepada keluarganya, ia tidak merasa bahwa ia sedang beribadah kepada Allah dengan nafkah ini. Ketika datang seorang yang miskin lalu ia memberikan satu riyal, maka ia merasa sedang beribadah kepada Allah.”
@@ -99,11 +99,11 @@ Dinukil dari laman Muslim.or.id dalam artikel "Memberi nafkah kepada anak istri 
 Sumber :
 https://muslim.or.id/58957-memberi-nafkah-kepada-anak-istri-juga-ibadah-yang-agung.html
  
-- [] 9-5-22 / florian-klauer-mk7D-4UCfmg-unsplash
+- [x] 9-5-22 / florian-klauer-mk7D-4UCfmg-unsplash
 
 ___
 
-### 7. (v) Hati Yang Lembut dan Penuh Kasih Sayang (Judul asli Nikmat yang Besar / Nov '20)
+### 7. Hati Yang Lembut dan Penuh Kasih Sayang (Judul asli Nikmat yang Besar / Nov '20)
 ___
 Syaikh Sulaiman Ar-Ruhaili -hafizhahullah- berkata,
 “Salah satu nikmat yang terbesar dari Allah kepada anda adalah Allah menjadikan hati anda lembut dan penuh kasih sayang sehingga anda berinteraksi baik dengan orang yang dekat maupun orang yang jauh, baik dengan orang yang baik agamanya maupun dengan orang yang menyimpang, sikap anda tetap sesuai dengan tuntutan syariat walaupun sebenarnya hawa nafsu anda menyelisihinya.ˮ
@@ -113,11 +113,11 @@ Dinukil dari laman KangAswad dalam artikel "Sikap Lemah Lembut Adalah Nikmat Yan
 Sumber :
 https://kangaswad.wordpress.com/2013/12/18/sikap-lemah-lembut-adalah-nikmat-yang-besar/
 
-- [] 10-5-22 // repost 11-11-20 tomoko-uji-v4bkVOl1sTI-unsplash
+- [x] 10-5-22 // repost 11-11-20 tomoko-uji-v4bkVOl1sTI-unsplash
 
 ___
 
-### 8. (v) Pengingat Tatkala Ingin Bermaksiat (Judul asli Maksiat / Nov '20)
+### 8. Pengingat Tatkala Ingin Bermaksiat (Judul asli Maksiat / Nov '20)
 ___
 Bilal bin Sa'ad -rahimahullah- berkata ,
 "Janganlah engkau melihat kecilnya maksiat tetapi lihatlah kepada siapa engkau bermaksiat.”
@@ -128,11 +128,11 @@ Dinukil dari laman Muslim.or.id dalam artikel "Bukan Besarnya Dosa, Tetapi Kepad
 Sumber :
 https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.html
 
-- [] 11-5-22 // repost 12-11-20 noah-silliman-gzhyKEo_cbU-unsplash
+- [x] 11-5-22 // repost 12-11-20 noah-silliman-gzhyKEo_cbU-unsplash
 
 ___
 
-### 9. (v) Jangan Merasa Aman (Nov '20)
+### 9. Jangan Merasa Aman (Nov '20)
 ___
 Ibnu 'Abbas -radhiallahu anhu- berkata,
 “Wahai pelaku dosa, janganlah merasa aman dari jeleknya akibat dosa, karena dosa yang lebih besar bisa jadi mengiringinya/mengikutinya, lebih besar dari dosa yang telah engkau lakukan (sekarang).”
@@ -143,11 +143,11 @@ Dinukil dari laman Muslim.or.id dalam artikel "Bukan Besarnya Dosa, Tetapi Kepad
 Sumber :
 https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.html
 
-- [] 12-5-22 // repost 13-11-20 yevhen-buzuk-R6TMFhxRxeI-unsplash
+- [x] 12-5-22 // repost 13-11-20 yevhen-buzuk-R6TMFhxRxeI-unsplash
 
 ___
 
-### 10. (v) Menangislah
+### 10. Menangislah
 ___
 Ibnul Jauzi -rahimahullah- berkata,
 
@@ -159,11 +159,11 @@ Dinukil dari status facebook Ustadz Musyaffa' Ad-Dariny -Hafizhahullah- dengan s
 
 Sumber : https://s.id/19OMm
 
-- [] 13-5-22 // ben-abraham-0ZniuXBivVY-unsplash
+- [x] 13-5-22 // ben-abraham-0ZniuXBivVY-unsplash
 
 ___
 
-### 11. (v) Sang Peniru Ulung 
+### 11. Sang Peniru Ulung 
 ___
 “Kalau ingin enteng dalam mendidik anak, didik diri kita dulu. Anak-anak kita itu peniru ulung, kalau kita bisa jadi contoh yang baik, anak akan mengikuti insyaAllahˮ
 
@@ -173,7 +173,7 @@ Dinukil dari status facebook beliau dengan sedikit penyesuaian
 
 sumber : https://s.id/-19T87
 
-- [] 16-5-22 // florian-klauer-LmkaYtMpNS8-unsplash
+- [x] 16-5-22 // florian-klauer-LmkaYtMpNS8-unsplash
 
 ___
 
@@ -208,7 +208,7 @@ Sumber : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah.html
 - [x] 18-5-22 / Repost 29-07-20 masjid-pogung-dalangan-pUxPMYP2ykI-unsplash
 ___
 
-### 14. (v) Dijauhkan dari Neraka Sejauh Jarak 70 tahun (Judul Asli Dijauhkan dari Neraka / Juli '20)
+### 14. Dijauhkan dari Neraka Sejauh Jarak 70 tahun (Judul Asli Dijauhkan dari Neraka / Juli '20)
 ___
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Tidaklah seorang hamba berpuasa satu hari di jalan Allah kecuali Allah akan menjauhkan wajahnya dari api neraka (dengan puasa itu) sejauh 70 tahun jarak perjalanan"
@@ -218,7 +218,7 @@ Dinukil dari laman Muslim.or.id dalam artikel "Puasa Sunnah" dengan sedikit peny
 
 Sumber : https://muslim.or.id/294-puasa-sunnah.html
 
-- [] 19-5-22 / Repost 28-07-20 wolfgang-hasselmann-pVr6wvUneMk-unsplash
+- [x] 19-5-22 / Repost 28-07-20 wolfgang-hasselmann-pVr6wvUneMk-unsplash
 ___
 
 ### 15. Puasa Senin Kamis (Juli '20)
