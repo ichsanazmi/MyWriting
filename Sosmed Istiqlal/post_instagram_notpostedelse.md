@@ -52,30 +52,95 @@ Ustadz Musyaffa' ad-Dariny
 
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
-### 5. Untitled
+### 5. Jangan Berhenti Bertaubat!
 ___
-Di antara strategi ampuh untuk memancing diri agar lebih ringan dan semangat menghadiri shalat jamaah adalah dengan menjawab azan, bermula dari menjawabnya maka insyallah akan muncul rasa untuk mendatanginya.
+Imam Nawawi -rahimahullah- berkata,
 
-Barangkali itulah di antara hikmah kita disuruh menjawab azan, dalam Hadits disebutkan
-إذا سمعتم النداء فقولوا مثل ما يقول المؤذن
-"Apabila kalian telah mendengar azan, maka ucapkanlah seperti yang diucapkan orang yang azan." (Muttafaq 'Alaih).
+"Walaupun dosa berulang sampai 100 atau 1000 kali atau bahkan lebih dari itu, jika ia bertobat pada setiap kalinya, maka akan diterima tobatnya dan berguguranlah dosanya."
 
-Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
+Syarh Shahih Muslim 17/75.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
-Sumber : https://s.id/1az8g
-### 6. 
+Sumber : https://t.me/wawasan_muslim/12418
 
-### 7. 
+### 6. Orang-orang yang lebih dulu ke surga
+___
+Syaikh As Sa'di -rahimahullah- berkata,
 
-### 8. 
+"Barang siapa yang bersegera kepada kebaikan di dunia ini, maka dialah orang yang bersegera menuju surga di akhirat."
 
-### 9. 
+Taisirul Karimir Rahman.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
-### 10. 
+Sumber : https://t.me/wawasan_muslim/12454
 
-### 11. 
+### 7. Waqafat (Renungan)
 
-### 12. 
+Amalmu akan dicatat, ucapanmu akan dihisab, engkau juga akan dituntut, sedangkan dirimu masih memiliki dosa-dosa yang engkau belum sempat bertaubat daripadanya, padahal matahari kehidupan sudah bersiap-siap tenggelam, maka jika engkau tidak sadar juga, berarti alangkah kerasnya hatimu!
+
+Dari Channel Jawahir Min Aqwalis Salaf. 
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
+
+Sumber : https://t.me/wawasan_muslim/12513
+
+### 8. Hakikat Taubat Nashuh
+
+Syaikh As Sa'diy -rahimahullah- berkata,
+
+"Barang siapa yang menyesal terhadap kekeliruannya di masa lalu, berhenti saat itu dari kesalahannya, dan berniat keras untuk tidak mengulanginya di masa mendatang, maka dia telah melakukan syarat taubat, dan Allah akan menerima taubat dari hamba-hambanya dan memaafkan kesalahan."
+
+Al Fawakih Asy Syahiyyah 1/191.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
+
+Sumber : https://t.me/wawasan_muslim/12544
+
+### 9. Bahaya Meninggalkan Shalat
+
+Imam Ibnul Qayyim -rahimahullah- berkata,
+
+"Kaum muslimin tidak berbeda pendapat, bahwa meninggalkan salat fardhu dengan sengaja merupakan dosa yang sangat besar dan bahkan sebagai dosa besar yang sangat besar, bahkan dosanya di sisi Allah lebih besar daripada dosa membunuh manusia, merampas harta, berzina, mencuri, dan meminum minuman keras, dan bahwa pelakunya siap menerima hukuman Allah dan kemurkaan-Nya serta kehinaan dari-Nya di dunia dan di akhirat."
+
+Kitabush Shalah, 31.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
+
+Sumber : https://t.me/wawasan_muslim/12563
+
+### 10. Ibnul Qayyim rahimahullah berkata,
+
+"Barang siapa yang ingin menempati taman-taman surga di dunia, maka singgahilah majlis-majlis ilmu, karena ia termasuk taman-taman surga."
+
+Al Wabilush Shayyib hal. 145.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
+
+Sumber : https://t.me/wawasan_muslim/12582
+
+### 11. Untitled 
+___
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+
+الْحَمْدُ لِلَّهِ الَّذِى عَافَانِى مِمَّا ابْتَلاَكَ بِهِ وَفَضَّلَنِى عَلَى كَثِيرٍ مِمَّنْ خَلَقَ تَفْضِيلاً 
+
+“Siapa saja yang melihat yang lain tertimpa musibah, lalu ia mengucapkan,
+‘Alhamdulillahilladzi ‘aafaani mimmab talaaka bihi, wa faddhalanii ‘ala katsiirim mimman khalaqa tafdhilaa’
+Artinya: Segala puji bagi Allah yang telah menyelamatkan aku dari musibah yang menimpamu dan benar-benar memuliakanku dari makhluk lainnya.
+
+Kalau kalimat itu diucapkan, maka ia akan diselamatkan dari musibah tersebut, musibah apa pun itu semasa ia hidup.”
+
+HR. Tirmidzi, no. 3431, Ibnu Majah, no. 3892. Al-Hafizh Abu Thahir mengatakan bahwa hadits ini dha’if dan penguatnya, syawahidnya juga dha’if. Syaikh Al-Albani mengatakan bahwa hadits ini hasan)
+Dinukil dari Rumaysho dalam artikel "Doa Ketika Melihat Yang Lain Tertimpa Musibah atau Penyakit" dengan sedikit penyesuaian
+
+Sumber : https://rumaysho.com/14975-doa-ketika-melihat-yang-lain-tertimpa-musibah-atau-penyakit.html
+
+### 12. Untitled
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+
+“Apabila seseorang mandi pada hari Jum’at, dan bersuci semampunya, lalu memakai minyak dan harum-haruman dari rumahnya kemudian ia keluar rumah, lantas ia tidak memisahkan di antara dua orang, kemudian ia mengerjakan shalat yang diwajibkan, dan ketika imam berkhutbah, ia pun diam, maka ia akan mendapatkan ampunan antara Jum’at yang satu dan Jum’at lainnya.”
+
+HR. Bukhari no. 883.
+Dinukil dari Rumaysho dalam artikel "Hukum Berbicara Ketika Khutbah Jumat" dengan sedikit penyesuaian
+
+Sumber : https://rumaysho.com/2090-hukum-berbicara-ketika-khutbah-jumat.html
 
 ### 13. 
 

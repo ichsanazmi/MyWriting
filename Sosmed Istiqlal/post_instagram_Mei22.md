@@ -232,3 +232,103 @@ Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit
 Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
 
 - [x] 20-5-22 // charlesdeluvio-VkmDIP2KOmM-unsplash
+
+___
+
+### 16. Untitled
+___
+Di antara strategi ampuh untuk memancing diri agar lebih ringan dan semangat menghadiri shalat jamaah adalah dengan menjawab azan, bermula dari menjawabnya maka insyallah akan muncul rasa untuk mendatanginya.
+
+Barangkali itulah di antara hikmah kita disuruh menjawab azan, dalam Hadits disebutkan
+إذا سمعتم النداء فقولوا مثل ما يقول المؤذن
+"Apabila kalian telah mendengar azan, maka ucapkanlah seperti yang diucapkan orang yang azan." (Muttafaq 'Alaih).
+
+Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
+
+Sumber : https://s.id/1az8g
+
+- [] 23-5-22 // 
+
+___
+
+### 17. 
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
+"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+
+HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
+Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+
+- [] 24-5-22 // 
+
+___
+
+### 18. 
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
+"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+
+HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
+Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+
+- [] 25-5-22 // 
+
+___
+
+### 19. 
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
+"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+
+HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
+Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+
+- [] 26-5-22 // 
+
+___
+
+### 20. 
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
+"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+
+HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
+Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+
+- [] 27-5-22 // 
+
+___
+
+### 21. 
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
+"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+
+HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
+Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+
+- [] 30-5-22 // 
+
+___
+
+### 22. 
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
+"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+
+HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
+Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+
+- [] 31-5-22 // 
