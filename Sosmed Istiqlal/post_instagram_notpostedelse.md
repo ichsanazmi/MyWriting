@@ -142,13 +142,60 @@ Dinukil dari Rumaysho dalam artikel "Hukum Berbicara Ketika Khutbah Jumat" denga
 
 Sumber : https://rumaysho.com/2090-hukum-berbicara-ketika-khutbah-jumat.html
 
-### 13. 
+### 13. Untitled 
+___
+Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
+“Setiap manusia pasti banyak berbuat salah, dan sebaik-baik orang yang berbuat salah adalah orang yang sering bertaubat” 
 
-### 14. 
+HR. Tirmidzi no.2687. At Tirmidzi berkata: “Hadits ini gharib”. 
+Di-hasan-kan Al Albani dalam Al Jami Ash Shaghir, 291/18.
+Dinukil dari Muslim.or.id dalam artikel berjudul "Sudah Taubat Lalu Bermaksiat Lagi Apakah Diterima Taubatnya" 
 
-### 15. 
+Sumber : https://muslim.or.id/39299-sudah-taubat-lalu-bermaksiat-lagi-apakah-diterima-taubatnya.html
 
-### 16. 
+### 14. Untitled
+___
+Nabi -shallallahu ‘alaihi wasallam- bersabda,
+“Doa Dzun-Nun ketika ia berdoa di dalam perut ikan paus (adalah), 
+لا إِلَهَ إِلا أَنْتَ سُبْحَانَكَ إِني كُنْتُ مِنَ الظالِمِينَ 
+
+Artinya : Tiada Ilah (sesembahan) yang berhak disembah melainkan Engkau, Maha Suci Engkau, sesungguhnya aku termasuk orang-orang yang zalim.’ (QS. Al-Anbiya: 87). 
+
+Tidaklah seorang muslim berdoa dengannya dalam keadaan apapun, melainkan Allah akan ijabah (kabulkan) untuknya” 
+
+HR. At-Tirmidzi no. 3505, disahihkan oleh Syekh Al-Albani dalam Shahih At-Tirmidzi.
+Dinukil dari Muslim.or.id dalam artikel berjudul "Cara Mengobati Hati Yang Sempit dan Depresi" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/67832-cara-mengobati-hati-yang-sempit-dan-depresi.html
+
+### 15. Untitled
+___
+Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
+“Tidak ada seorang pun yang sedang dilanda kegundahan dan kesedihan, lalu mengucapkan doa ini,
+
+اللهُمَّ إِنِّي عَبْدُكَ، وَابْنُ عَبْدِكَ، ابْنُ أَمَتِكَ، نَاصِيَتِي بِيَدِكَ، مَاضٍ فِيَّ حُكْمُكَ، عَدْلٌ فِيَّ قَضَاؤُكَ، أَسْأَلُكَ بِكُلِّ اسْمٍ هُوَ لَكَ، سَمَّيْتَ بِهِ نَفْسَكَ، أَوْ أَنْزَلْتَهُ فِي كِتَابِكَ، أَوْ عَلَّمْتَهُ أَحَدًا مِنْ خَلْقِكَ، أَوِ اسْتَأْثَرْتَ بِهِ فِي عِلْمِ الْغَيْبِ عِنْدَكَ، أَنْ تَجْعَلَ الْقُرْآنَ رَبِيعَ قَلْبِي، وَنُورَ صَدْرِي، وَجِلَاءَ حُزْنِي، وَذَهَابَ هَمِّي
+
+Ya Allah, sesungguhnya diri ini adalah hamba-Mu, anak dari hamba laki-laki Mu, dan anak dari hamba perempuan-Mu, ubun-ubunku berada dalam genggaman-Mu, hukum-Mu telah berjalan, dan keputusan-Mu merupakan keputusan yang adil. Aku memohon dengan seluruh nama-nama-Mu, yang Engkau namai diri-Mu, atau nama yang Engkau turunkan dalam kitab-Mu, atau telah Engkau ajarkan kepada seseorang dari hamba-Mu, atau nama yang masih Engkau simpan disisi-Mu, jadikan Al-Qur’an sebagi penentram jiwaku, cahaya hatiku, pelenyap duka dan lara ku.
+
+Tidaklah seseorang mengucapkan doa tersebut, melainkan Allāh akan hilangkan kesedihannya, dan akan jadikan kebahagiaan untuknya.”
+
+HR. Ahmad, Shahih
+Dinukil dari Muslim.or.id dalam artikel "Kiat-kiat Agar Doa Dikabulkan Bag. 7" dengan sedikit penyesuaian
+
+Sumber : https://muslim.or.id/68045-kiat-kiat-agar-doa-dikabulkan-bag-7.html
+
+### 16. Untitled
+___
+Nabi pernah mengajarkan doa kepada Abu Bakr radhiyallahu ‘anhu,
+
+اللَّهُمَّ إِنِّى ظَلَمْتُ نَفْسِى ظُلْمًا كَثِيرًا وَلاَ يَغْفِرُ الذُّنُوبَ إِلاَّ أَنْتَ ، فَاغْفِرْ لِى مَغْفِرَةً مِنْ عِنْدِكَ ، وَارْحَمْنِى إِنَّكَ أَنْتَ الْغَفُورُ الرَّحِيمُ
+
+“Ya Allah, sungguh aku telah menzalimi diriku sendiri dengan kezaliman yang banyak, sedangkan tidak ada yang dapat mengampuni dosa-dosa kecuali Engkau. Oleh karena itu, ampunilah aku dengan suatu pengampunan dari sisi-Mu dan rahmatilah aku. Sesungguhnya Engkau Maha Pengampun lagi Maha Penyayang”
+
+HR. Bukhari dan Muslim.
+Dinukil dari Muslim.or.id dalam artikel "Kiat-kiat Agar Doa Dikabulkan Bag. 7" dengan sedikit penyesuaian
+
+Sumber: https://muslim.or.id/68045-kiat-kiat-agar-doa-dikabulkan-bag-7.html
 
 ### 17. 
 ### 18. 
