@@ -198,7 +198,25 @@ Dinukil dari Muslim.or.id dalam artikel "Kiat-kiat Agar Doa Dikabulkan Bag. 7" d
 Sumber: https://muslim.or.id/68045-kiat-kiat-agar-doa-dikabulkan-bag-7.html
 
 ### 17. 
+___
+Hasan Al-Bashri -rahimahullah- berkata,
+“Wahai manusia, sesungguhnya kalian hanyalah kumpulan hari. Tatkala satu hari itu hilang, maka akan hilang pula sebagian darimu.”
+
+Hilyatul Auliya 2/148, Darul Kutub al-Arabi.
+Faidah catatan kajian "tR Talks Ep73. Time Management"
+
+Sumber : https://www.youtube.com/watch?v=k185nPZYOR0
+
 ### 18. 
+___
+Hasan Al-Bashri -rahimahullah- berkata,
+“Tiada yang pernah ku sesali selain keadaan ketika matahari tenggelam, ajalku berkurang (usia bertambah), namun amalanku tidak bertambah”
+
+Miftahul Afkar dan Mausu'ah Khutab al-Mimbar.
+Faidah catatan kajian "tR Talks Ep73. Time Management"
+
+Sumber : https://www.youtube.com/watch?v=k185nPZYOR0
+
 ### 19. 
 ### 20.
 ### 21.
