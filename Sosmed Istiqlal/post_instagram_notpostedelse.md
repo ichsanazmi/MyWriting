@@ -217,7 +217,13 @@ Faidah catatan kajian "tR Talks Ep73. Time Management"
 
 Sumber : https://www.youtube.com/watch?v=k185nPZYOR0
 
-### 19. 
+### 19. Untitled
+___
+“Pertolongan tuh bukan dari kepiawaian antum, engga, dari Allah. Sekecil apapun dari Allah. siapa kita kalau bukan karena Allah.”
+Ustadz Muhammad Halid Syar’ie -hafizhahullah-
+
+Faidah kajian berjudul "Pertolongan itu dekat - Ustadz Muhammad Halid Syar’ie"
+Sumber : https://www.youtube.com/watch?v=h0ggebFyRBY
 ### 20.
 ### 21.
 ### 22.
