@@ -235,100 +235,104 @@ Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
 
 ___
 
-### 16. Untitled
+### 16. Bahaya Meninggalkan Shalat
 ___
-Di antara strategi ampuh untuk memancing diri agar lebih ringan dan semangat menghadiri shalat jamaah adalah dengan menjawab azan, bermula dari menjawabnya maka insyallah akan muncul rasa untuk mendatanginya.
+Imam Ibnul Qayyim -rahimahullah- berkata,
 
-Barangkali itulah di antara hikmah kita disuruh menjawab azan, dalam Hadits disebutkan
-إذا سمعتم النداء فقولوا مثل ما يقول المؤذن
-"Apabila kalian telah mendengar azan, maka ucapkanlah seperti yang diucapkan orang yang azan." (Muttafaq 'Alaih).
+"Kaum muslimin tidak berbeda pendapat, bahwa meninggalkan salat fardhu dengan sengaja merupakan dosa yang sangat besar dan bahkan sebagai dosa besar yang sangat besar, bahkan dosanya di sisi Allah lebih besar daripada dosa membunuh manusia, merampas harta, berzina, mencuri, dan meminum minuman keras, dan bahwa pelakunya siap menerima hukuman Allah dan kemurkaan-Nya serta kehinaan dari-Nya di dunia dan di akhirat."
 
-Dinukil dari status facebook Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
+Kitabush Shalah, 31.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
-Sumber : https://s.id/1az8g
+Sumber : https://t.me/wawasan_muslim/12563
 
 - [] 23-5-22 // 
 
 ___
 
-### 17. 
+### 17. Untitled
 ___
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
-"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+Ibnul Qayyim rahimahullah berkata,
 
-HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
-Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+"Barang siapa yang ingin menempati taman-taman surga di dunia, maka singgahilah majlis-majlis ilmu, karena ia termasuk taman-taman surga."
 
-Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+Al Wabilush Shayyib hal. 145.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
+
+Sumber : https://t.me/wawasan_muslim/12582
 
 - [] 24-5-22 // 
 
 ___
 
-### 18. 
+### 18. Untitled 
 ___
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
-"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
-HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
-Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+الْحَمْدُ لِلَّهِ الَّذِى عَافَانِى مِمَّا ابْتَلاَكَ بِهِ وَفَضَّلَنِى عَلَى كَثِيرٍ مِمَّنْ خَلَقَ تَفْضِيلاً 
 
-Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+“Siapa saja yang melihat yang lain tertimpa musibah, lalu ia mengucapkan,
+‘Alhamdulillahilladzi ‘aafaani mimmab talaaka bihi, wa faddhalanii ‘ala katsiirim mimman khalaqa tafdhilaa’
+Artinya: Segala puji bagi Allah yang telah menyelamatkan aku dari musibah yang menimpamu dan benar-benar memuliakanku dari makhluk lainnya.
+
+Kalau kalimat itu diucapkan, maka ia akan diselamatkan dari musibah tersebut, musibah apa pun itu semasa ia hidup.”
+
+HR. Tirmidzi, no. 3431, Ibnu Majah, no. 3892. Al-Hafizh Abu Thahir mengatakan bahwa hadits ini dha’if dan penguatnya, syawahidnya juga dha’if. Syaikh Al-Albani mengatakan bahwa hadits ini hasan)
+Dinukil dari Rumaysho dalam artikel "Doa Ketika Melihat Yang Lain Tertimpa Musibah atau Penyakit" dengan sedikit penyesuaian
+
+Sumber : https://rumaysho.com/14975-doa-ketika-melihat-yang-lain-tertimpa-musibah-atau-penyakit.html
 
 - [] 25-5-22 // 
 
 ___
 
-### 19. 
+### 19. Untitled
 ___
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
-"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+Hasan Al-Bashri -rahimahullah- berkata,
+“Tiada yang pernah ku sesali selain keadaan ketika matahari tenggelam, ajalku berkurang (usia bertambah), namun amalanku tidak bertambah”
 
-HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
-Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+Miftahul Afkar dan Mausu'ah Khutab al-Mimbar.
+Faidah catatan kajian "tR Talks Ep73. Time Management"
 
-Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+Sumber : https://www.youtube.com/watch?v=k185nPZYOR0
 
 - [] 26-5-22 // 
 
 ___
 
-### 20. 
+### 20. Untitled
 ___
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
-"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+“Pertolongan tuh bukan dari kepiawaian antum, engga, dari Allah. Sekecil apapun, (itu) dari Allah. siapa kita kalau bukan karena Allah.”
+Ustadz Muhammad Halid Syar’ie -hafizhahullah-
 
-HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
-Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
-
-Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+Faidah kajian berjudul "Pertolongan itu dekat - Ustadz Muhammad Halid Syar’ie" dengan sedikit penyesuaian
+Sumber : https://www.youtube.com/watch?v=h0ggebFyRBY
 
 - [] 27-5-22 // 
 
 ___
 
-### 21. 
+### 21. Orang-orang yang lebih dulu ke surga
 ___
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
-"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+Syaikh As Sa'di -rahimahullah- berkata,
 
-HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
-Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+"Barang siapa yang bersegera kepada kebaikan di dunia ini, maka dialah orang yang bersegera menuju surga di akhirat."
 
-Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+Taisirul Karimir Rahman.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
+
+Sumber : https://t.me/wawasan_muslim/12454
 
 - [] 30-5-22 // 
 
 ___
 
-### 22. 
+### 22. Bersyukur Dahulu (Sep '20)
 ___
-Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
-"Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
+Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu : “Bersyukur dulu baru bisa bahagia, Bukan menunggu bahagia dulu baru bersyukur”
 
-HR Tirmidzi No. 747 dinilai hasan gharib oleh At-Tirmidzi.
-Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit penyesuaian
+Dinukil dari Muslimafiyah.com dalam artikel berjudul "Penjelasan Makna Doa dan Dzikir Sehari-Hari (1)" dengan sedikit penyesuaian
 
-Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
+Sumber : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
 
-- [] 31-5-22 // 
+- [] 31-5-22 // repost 9-9-20

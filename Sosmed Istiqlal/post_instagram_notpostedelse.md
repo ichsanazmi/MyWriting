@@ -63,16 +63,17 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
 Sumber : https://t.me/wawasan_muslim/12418
 
-### 6. Orang-orang yang lebih dulu ke surga
+### 6. Nikmat Berupa Masa Muda (Sep '20)
 ___
-Syaikh As Sa'di -rahimahullah- berkata,
+Jangan sampai kita berprinsip, taubat di masa tua saja. Sekarang mumpung masih muda, kita nikmati dunia, foya-foya, dan bersenang-senang. Saat sudah tua, baru sadar akhirat, sadar belajar agama. Jangan sampai prinsip ini merasuki kita. Akankah kita persembahkan untuk Allah lemah-lemah kita?! Masa kuat saat muda, kita persembahkan untuk hawa nafsu?! Apakah kita berikan untuk Allah hanya sisa-sisa?! Di mana sikap pengagungan kepada Allah Tuhan Pencipta kita?!
 
-"Barang siapa yang bersegera kepada kebaikan di dunia ini, maka dialah orang yang bersegera menuju surga di akhirat."
+Maka mensyukuri masa muda, adalah dengan mengorbankannya untuk ibadah dan belajar tentang agama Allah Ta’ala.
 
-Taisirul Karimir Rahman.
-Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
+Dinukil dari Muslim.or.id dalam artikel "Agar Aku Sukses Menuntut Ilmu Bag-7..." dengan sedikit penyesuaian
 
-Sumber : https://t.me/wawasan_muslim/12454
+Sumber : https://muslim.or.id/54491-agar-aku-sukses-menuntut-ilmu-bag-7-optimalkan-masa-muda-untuk-belajar.html
+
+- [] x-x-x // repost 15-9-20
 
 ### 7. Waqafat (Renungan)
 
@@ -84,7 +85,7 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 Sumber : https://t.me/wawasan_muslim/12513
 
 ### 8. Hakikat Taubat Nashuh
-
+___
 Syaikh As Sa'diy -rahimahullah- berkata,
 
 "Barang siapa yang menyesal terhadap kekeliruannya di masa lalu, berhenti saat itu dari kesalahannya, dan berniat keras untuk tidak mengulanginya di masa mendatang, maka dia telah melakukan syarat taubat, dan Allah akan menerima taubat dari hamba-hambanya dan memaafkan kesalahan."
@@ -94,42 +95,35 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
 Sumber : https://t.me/wawasan_muslim/12544
 
-### 9. Bahaya Meninggalkan Shalat
-
-Imam Ibnul Qayyim -rahimahullah- berkata,
-
-"Kaum muslimin tidak berbeda pendapat, bahwa meninggalkan salat fardhu dengan sengaja merupakan dosa yang sangat besar dan bahkan sebagai dosa besar yang sangat besar, bahkan dosanya di sisi Allah lebih besar daripada dosa membunuh manusia, merampas harta, berzina, mencuri, dan meminum minuman keras, dan bahwa pelakunya siap menerima hukuman Allah dan kemurkaan-Nya serta kehinaan dari-Nya di dunia dan di akhirat."
-
-Kitabush Shalah, 31.
-Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
-
-Sumber : https://t.me/wawasan_muslim/12563
-
-### 10. Ibnul Qayyim rahimahullah berkata,
-
-"Barang siapa yang ingin menempati taman-taman surga di dunia, maka singgahilah majlis-majlis ilmu, karena ia termasuk taman-taman surga."
-
-Al Wabilush Shayyib hal. 145.
-Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
-
-Sumber : https://t.me/wawasan_muslim/12582
-
-### 11. Untitled 
+### 9. Langkah Kaki yang menghapus Dosa (Sep '20)
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
-الْحَمْدُ لِلَّهِ الَّذِى عَافَانِى مِمَّا ابْتَلاَكَ بِهِ وَفَضَّلَنِى عَلَى كَثِيرٍ مِمَّنْ خَلَقَ تَفْضِيلاً 
+“Maukah kalian aku tunjukkan kepada suatu amal yang dapat menghapus kesalahan (dosa) dan meninggikan derajat?” Para sahabat menjawab, ”Ya, wahai Rasulullah.” Rasulullah bersabda, ”(Yaitu) menyempurnakan wudhu dalam kondisi sulit, banyaknya langkah menuju masjid, menunggu shalat setelah mendirikan shalat. Itulah ar-ribath (kebaikan yang banyak).”
 
-“Siapa saja yang melihat yang lain tertimpa musibah, lalu ia mengucapkan,
-‘Alhamdulillahilladzi ‘aafaani mimmab talaaka bihi, wa faddhalanii ‘ala katsiirim mimman khalaqa tafdhilaa’
-Artinya: Segala puji bagi Allah yang telah menyelamatkan aku dari musibah yang menimpamu dan benar-benar memuliakanku dari makhluk lainnya.
+HR. Muslim no. 251
+Dinukil dari Muslim.or.id dalam artikel  "Keutamaan Berjalan Menuju Masjid" dengan sedikit penyesuaian
 
-Kalau kalimat itu diucapkan, maka ia akan diselamatkan dari musibah tersebut, musibah apa pun itu semasa ia hidup.”
+Sumber :
+https://muslim.or.id/54513-keutamaan-berjalan-menuju-masjid.html
 
-HR. Tirmidzi, no. 3431, Ibnu Majah, no. 3892. Al-Hafizh Abu Thahir mengatakan bahwa hadits ini dha’if dan penguatnya, syawahidnya juga dha’if. Syaikh Al-Albani mengatakan bahwa hadits ini hasan)
-Dinukil dari Rumaysho dalam artikel "Doa Ketika Melihat Yang Lain Tertimpa Musibah atau Penyakit" dengan sedikit penyesuaian
+- [] x-x-x // 16-9-20
 
-Sumber : https://rumaysho.com/14975-doa-ketika-melihat-yang-lain-tertimpa-musibah-atau-penyakit.html
+### 10. Berdusta Walau Bercanda (Sep '20)
+___
+Rasulullah -Shallallahu ‘alaihi wa sallam- bersabda,
+
+“Celakalah bagi yang berbicara lantas berdusta hanya karena ingin membuat suatu kaum tertawa. Celakalah dia, celakalah dia.”
+
+HR. Abu Daud no. 4990 dan Tirmidzi no. 3315. Al Hafizh Abu Thohir mengatakan bahwa sanad hadits ini hasan
+Dinukil dari Rumaysho.com dalam artikel "Berbohong dalam Candaan" dengan sedikit penyesuaian
+
+read more :
+https://rumaysho.com/10672-berbohong-dalam-candaan.html
+
+- [] x-x-x // repost 29-9-20
+
+### 11. 
 
 ### 12. Untitled
 ___
@@ -198,32 +192,10 @@ Dinukil dari Muslim.or.id dalam artikel "Kiat-kiat Agar Doa Dikabulkan Bag. 7" d
 Sumber: https://muslim.or.id/68045-kiat-kiat-agar-doa-dikabulkan-bag-7.html
 
 ### 17. 
-___
-Hasan Al-Bashri -rahimahullah- berkata,
-“Wahai manusia, sesungguhnya kalian hanyalah kumpulan hari. Tatkala satu hari itu hilang, maka akan hilang pula sebagian darimu.”
-
-Hilyatul Auliya 2/148, Darul Kutub al-Arabi.
-Faidah catatan kajian "tR Talks Ep73. Time Management"
-
-Sumber : https://www.youtube.com/watch?v=k185nPZYOR0
 
 ### 18. 
-___
-Hasan Al-Bashri -rahimahullah- berkata,
-“Tiada yang pernah ku sesali selain keadaan ketika matahari tenggelam, ajalku berkurang (usia bertambah), namun amalanku tidak bertambah”
 
-Miftahul Afkar dan Mausu'ah Khutab al-Mimbar.
-Faidah catatan kajian "tR Talks Ep73. Time Management"
-
-Sumber : https://www.youtube.com/watch?v=k185nPZYOR0
-
-### 19. Untitled
-___
-“Pertolongan tuh bukan dari kepiawaian antum, engga, dari Allah. Sekecil apapun dari Allah. siapa kita kalau bukan karena Allah.”
-Ustadz Muhammad Halid Syar’ie -hafizhahullah-
-
-Faidah kajian berjudul "Pertolongan itu dekat - Ustadz Muhammad Halid Syar’ie"
-Sumber : https://www.youtube.com/watch?v=h0ggebFyRBY
+### 19. 
 ### 20.
 ### 21.
 ### 22.

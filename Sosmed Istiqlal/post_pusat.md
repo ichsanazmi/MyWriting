@@ -729,7 +729,7 @@ read more : https://hadits.in/muslim/4816
 
 ___
 
-### 7. Bersyukur Dahulu (1)
+### 7. Bersyukur Dahulu (2)
 
 Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu :
 “Bersyukur dulu baru bisa bahagia
@@ -814,7 +814,7 @@ read more : https://ustadzaris.com/amanah-berupa-wanita
 
 ___
 
-### 11. Nikmat Berupa Masa Muda (1)
+### 11. Nikmat Berupa Masa Muda (2)
 
 Jangan sampai kita berprinsip, taubat di masa tua saja. Sekarang mumpung masih muda, kita nikmati dunia, foya-foya, dan bersenang-senang. Saat sudah tua, baru sadar akhirat, sadar belajar agama. Jangan sampai prinsip ini merasuki kita. Akankah kita persembahkan untuk Allah lemah-lemah kita?! Masa kuat saat muda, kita persembahkan untuk hawa nafsu?! Apakah kita berikan untuk Allah hanya sisa-sisa?! Di mana sikap pengagungan kepada Allah Tuhan Pencipta kita?!
 
@@ -829,7 +829,7 @@ read more : https://muslim.or.id/54491-agar-aku-sukses-menuntut-ilmu-bag-7-optim
 
 ___
 
-### 12. Langkah Kaki yang menghapus Dosa (1)
+### 12. Langkah Kaki yang menghapus Dosa (2)
 
 Dari Abu Hurairah radhiyallahu ‘anhu, Rasulullah shallallahu ‘alaihi wa sallam bersabda,
 
@@ -871,7 +871,7 @@ Semoga Allah memberikan kemudahan disetiap mengerjakan soal-soal, aamiin
 
 ___
 
-### 14. Wadah Yang Disebut dengan Hati (1)
+### 14. Wadah Yang Disebut dengan Hati (2)
 
 Para pedagang dari ahli dunia mereka tidak akan menaruh harta mereka di tempat sampah, lalu apakah kalian mengira Allah akan menaruh ilmu yang mulia ini di hati yang tidak saleh!?
 
@@ -917,10 +917,10 @@ ___
 
 Syaikhul Islam Ibnu Taimiyyah -rahimahullah- berkata,
 
-"Termasuk ibadah yang besar adalah memenuhi kebutuhan orang yang fakir, menunaikan hajat, membela orang yang terzalimi, menolong orang yang menderita, dan beramar ma'ruf
+"Termasuk ibadah yang besar adalah memenuhi kebutuhan orang yang fakir, menunaikan hajat, membela orang yang terzalimi, menolong orang yang menderita, dan beramar ma'ruf"
 
 Majmu Fatawa 28/243
-Dinukil dari kanal Telegram Wawasan Ilmu
+Dinukil dari kanal Telegram Wawasan Muslim
 yang ditulis oleh Ustadz Marwan Hadidi, M.Pd -Hafizhahullah-
 
 read more :
@@ -990,7 +990,7 @@ https://muslim.or.id/17851-puasa-tiga-hari-setiap-bulan-dan-puasa-ayyamul-bidh.h
 
 ___
 
-### 21. Berdusta Walau Bercanda (1)
+### 21. Berdusta Walau Bercanda (2)
 
 ___
 
