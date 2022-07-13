@@ -246,11 +246,11 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
 Sumber : https://t.me/wawasan_muslim/12563
 
-- [] 23-5-22 // 
+- [] 23-5-22 // masjid-pogung-dalangan-sDLkSliGDgU-unsplash
 
 ___
 
-### 17. Untitled
+### 17. Taman-Taman Surga di Dunia
 ___
 Ibnul Qayyim rahimahullah berkata,
 
@@ -261,11 +261,11 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
 Sumber : https://t.me/wawasan_muslim/12582
 
-- [] 24-5-22 // 
+- [] 24-5-22 // masjid-maba-rLOvfbd9r7U-unsplash
 
 ___
 
-### 18. Untitled 
+### 18. Sikap Saat Melihat Orang Terkena Musibah
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -282,11 +282,11 @@ Dinukil dari Rumaysho dalam artikel "Doa Ketika Melihat Yang Lain Tertimpa Musib
 
 Sumber : https://rumaysho.com/14975-doa-ketika-melihat-yang-lain-tertimpa-musibah-atau-penyakit.html
 
-- [] 25-5-22 // 
+- [] 25-5-22 // josh-seff-9Q5VqURZ7C4-unsplash
 
 ___
 
-### 19. Untitled
+### 19. Tidak Bertambah Amalan
 ___
 Hasan Al-Bashri -rahimahullah- berkata,
 “Tiada yang pernah ku sesali selain keadaan ketika matahari tenggelam, ajalku berkurang (usia bertambah), namun amalanku tidak bertambah”
@@ -296,11 +296,11 @@ Faidah catatan kajian "tR Talks Ep73. Time Management"
 
 Sumber : https://www.youtube.com/watch?v=k185nPZYOR0
 
-- [] 26-5-22 // 
+- [] 26-5-22 // ajeet-mestry-UBhpOIHnazM-unsplash
 
 ___
 
-### 20. Untitled
+### 20. Pertolongan Allah
 ___
 “Pertolongan tuh bukan dari kepiawaian antum, engga, dari Allah. Sekecil apapun, (itu) dari Allah. siapa kita kalau bukan karena Allah.”
 Ustadz Muhammad Halid Syar’ie -hafizhahullah-
@@ -308,14 +308,13 @@ Ustadz Muhammad Halid Syar’ie -hafizhahullah-
 Faidah kajian berjudul "Pertolongan itu dekat - Ustadz Muhammad Halid Syar’ie" dengan sedikit penyesuaian
 Sumber : https://www.youtube.com/watch?v=h0ggebFyRBY
 
-- [] 27-5-22 // 
+- [] 27-5-22 // georgie-cobbs-bKjHgo_Lbpo-unsplash
 
 ___
 
 ### 21. Orang-orang yang lebih dulu ke surga
 ___
 Syaikh As Sa'di -rahimahullah- berkata,
-
 "Barang siapa yang bersegera kepada kebaikan di dunia ini, maka dialah orang yang bersegera menuju surga di akhirat."
 
 Taisirul Karimir Rahman.
@@ -323,7 +322,7 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
 Sumber : https://t.me/wawasan_muslim/12454
 
-- [] 30-5-22 // 
+- [] 30-5-22 // guille-pozzi-jD34AmVhESc-unsplash
 
 ___
 
@@ -335,4 +334,4 @@ Dinukil dari Muslimafiyah.com dalam artikel berjudul "Penjelasan Makna Doa dan D
 
 Sumber : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
 
-- [] 31-5-22 // repost 9-9-20
+- [] 31-5-22 // repost 9-9-20 igor-karimov-1XxoscGrovE-unsplash

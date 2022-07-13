@@ -123,7 +123,15 @@ https://rumaysho.com/10672-berbohong-dalam-candaan.html
 
 - [] x-x-x // repost 29-9-20
 
-### 11. 
+### 11. Untitled 
+___
+Syaikh 'Utsaimin -rahimahullah- berkata,
+“Seorang insan janganlah merasa ujub dengan amal kebaikannya. Betapapun banyak amal salihnya tapi itu sedikit dibandingkan hak Allah atasmu.”
+
+Syarh Riyadhus Shalihin.
+Dinukil dari Tweet Ustadz Badrussalam -hafizhahullah- dengan sedikit penyesuaian.
+
+Sumber : https://s.id/1bQI3
 
 ### 12. Untitled
 ___
@@ -191,12 +199,44 @@ Dinukil dari Muslim.or.id dalam artikel "Kiat-kiat Agar Doa Dikabulkan Bag. 7" d
 
 Sumber: https://muslim.or.id/68045-kiat-kiat-agar-doa-dikabulkan-bag-7.html
 
-### 17. 
+### 17. Untitled
+___
+Ibnul Jauzi -rahimahullah- berkata,
+“Bila kamu ada keinginan kepada kebaikan, maka bergegaslah agar tidak kalah oleh hawa nafsumu. Dan jika kamu ada keinginan kepada keburukan maka tunda tundalah agar kamu dapat mengalahkan hawa nafsumu.”
 
-### 18. 
+At-Tabshirah 16/2.
+Dinukil dari tweet Ustadz Badrussalam -hafizhahullah- dengan sedikit penyesuaian.
 
-### 19. 
-### 20.
+Sumber : https://s.id/1bQQ8
+
+### 18. Untitled
+___
+Ibnu Rojab -rahimahullah- berkata,
+“Seorang hamba apabila istikhoroh kepada Allah hendaklah ia ridha dengan pilihan Allah untuknya. Baik sesuai atau tidak sesuai dengan keinginannya. Karena ia tidak tahu mana yang terbaik. Dan Allah adil dalam pilihan-Nya.”
+
+Majmu' Rasail.
+Dinukil dari tweet Ustadz Badrussalam -hafizhahullah- dengan sedikit penyesuaian.
+
+Sumber : https://s.id/1bRam
+
+### 19. Untitled
+___
+Ibnu Taimiyah -rahimahullah- berkata,
+“Setiap orang yang berkeinginan untuk berbuat dosa lalu ia membencinya dan berusaha menghilangkan pikiran buruk tsb, akan bertambah kebaikan dan ketakwaannya.”
+
+Majmu' Fatawa.
+Dinukil dari tweet Ustadz Badrussalam -hafizhahullah- dengan sedikit penyesuaian.
+
+Sumber : https://s.id/1bRaT
+
+### 20. Untitled
+___
+Hilang harta, hilang kawan, hilang pasangan, semua bisa dicari gantinya. Hilang hidayah, hilang segala-galanya. Jagalah hidayah, jangan sampai lepas.
+Ustadz Wira Bachrun -Hafizhahullah-
+
+Dinukil dari status Ustadz Wira Bachrun -Hafizhahullah- dengan sedikit penyesuaian.
+
+Sumber : https://s.id/1bRp7
 ### 21.
 ### 22.
 ### 23.
