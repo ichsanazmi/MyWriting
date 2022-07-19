@@ -246,7 +246,7 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
 Sumber : https://t.me/wawasan_muslim/12563
 
-- [] 23-5-22 // masjid-pogung-dalangan-sDLkSliGDgU-unsplash
+- [x] 23-5-22 // masjid-pogung-dalangan-sDLkSliGDgU-unsplash
 
 ___
 
@@ -261,11 +261,11 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
 Sumber : https://t.me/wawasan_muslim/12582
 
-- [] 24-5-22 // masjid-maba-rLOvfbd9r7U-unsplash
+- [X] 24-5-22 // masjid-maba-rLOvfbd9r7U-unsplash
 
 ___
 
-### 18. Sikap Saat Melihat Orang Terkena Musibah
+### 18. Tatkala Melihat Orang Terkena Musibah
 ___
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
@@ -282,7 +282,7 @@ Dinukil dari Rumaysho dalam artikel "Doa Ketika Melihat Yang Lain Tertimpa Musib
 
 Sumber : https://rumaysho.com/14975-doa-ketika-melihat-yang-lain-tertimpa-musibah-atau-penyakit.html
 
-- [] 25-5-22 // josh-seff-9Q5VqURZ7C4-unsplash
+- [X] 25-5-22 // josh-seff-9Q5VqURZ7C4-unsplash
 
 ___
 
@@ -296,7 +296,7 @@ Faidah catatan kajian "tR Talks Ep73. Time Management"
 
 Sumber : https://www.youtube.com/watch?v=k185nPZYOR0
 
-- [] 26-5-22 // ajeet-mestry-UBhpOIHnazM-unsplash
+- [x] 26-5-22 // ajeet-mestry-UBhpOIHnazM-unsplash
 
 ___
 
@@ -306,9 +306,10 @@ ___
 Ustadz Muhammad Halid Syar’ie -hafizhahullah-
 
 Faidah kajian berjudul "Pertolongan itu dekat - Ustadz Muhammad Halid Syar’ie" dengan sedikit penyesuaian
+
 Sumber : https://www.youtube.com/watch?v=h0ggebFyRBY
 
-- [] 27-5-22 // georgie-cobbs-bKjHgo_Lbpo-unsplash
+- [x] 27-5-22 // georgie-cobbs-bKjHgo_Lbpo-unsplash
 
 ___
 
@@ -322,7 +323,7 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
 Sumber : https://t.me/wawasan_muslim/12454
 
-- [] 30-5-22 // guille-pozzi-jD34AmVhESc-unsplash
+- [x] 30-5-22 // guille-pozzi-jD34AmVhESc-unsplash
 
 ___
 
@@ -334,4 +335,4 @@ Dinukil dari Muslimafiyah.com dalam artikel berjudul "Penjelasan Makna Doa dan D
 
 Sumber : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
 
-- [] 31-5-22 // repost 9-9-20 igor-karimov-1XxoscGrovE-unsplash
+- [x] 31-5-22 // repost 9-9-20 igor-karimov-1XxoscGrovE-unsplash

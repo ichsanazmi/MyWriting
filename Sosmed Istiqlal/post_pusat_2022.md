@@ -1108,3 +1108,106 @@ Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit
 Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
 
 - [x] 20-5-22 // charlesdeluvio-VkmDIP2KOmM-unsplash
+___
+
+### 16. Bahaya Meninggalkan Shalat
+___
+Imam Ibnul Qayyim -rahimahullah- berkata,
+
+"Kaum muslimin tidak berbeda pendapat, bahwa meninggalkan salat fardhu dengan sengaja merupakan dosa yang sangat besar dan bahkan sebagai dosa besar yang sangat besar, bahkan dosanya di sisi Allah lebih besar daripada dosa membunuh manusia, merampas harta, berzina, mencuri, dan meminum minuman keras, dan bahwa pelakunya siap menerima hukuman Allah dan kemurkaan-Nya serta kehinaan dari-Nya di dunia dan di akhirat."
+
+Kitabush Shalah, 31.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
+
+Sumber : https://t.me/wawasan_muslim/12563
+
+- [x] 23-5-22 // masjid-pogung-dalangan-sDLkSliGDgU-unsplash
+
+___
+
+### 17. Taman-Taman Surga di Dunia
+___
+Ibnul Qayyim rahimahullah berkata,
+
+"Barang siapa yang ingin menempati taman-taman surga di dunia, maka singgahilah majlis-majlis ilmu, karena ia termasuk taman-taman surga."
+
+Al Wabilush Shayyib hal. 145.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
+
+Sumber : https://t.me/wawasan_muslim/12582
+
+- [X] 24-5-22 // masjid-maba-rLOvfbd9r7U-unsplash
+
+___
+
+### 18. Tatkala Melihat Orang Terkena Musibah
+___
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+
+الْحَمْدُ لِلَّهِ الَّذِى عَافَانِى مِمَّا ابْتَلاَكَ بِهِ وَفَضَّلَنِى عَلَى كَثِيرٍ مِمَّنْ خَلَقَ تَفْضِيلاً 
+
+“Siapa saja yang melihat yang lain tertimpa musibah, lalu ia mengucapkan,
+‘Alhamdulillahilladzi ‘aafaani mimmab talaaka bihi, wa faddhalanii ‘ala katsiirim mimman khalaqa tafdhilaa’
+Artinya: Segala puji bagi Allah yang telah menyelamatkan aku dari musibah yang menimpamu dan benar-benar memuliakanku dari makhluk lainnya.
+
+Kalau kalimat itu diucapkan, maka ia akan diselamatkan dari musibah tersebut, musibah apa pun itu semasa ia hidup.”
+
+HR. Tirmidzi, no. 3431, Ibnu Majah, no. 3892. Al-Hafizh Abu Thahir mengatakan bahwa hadits ini dha’if dan penguatnya, syawahidnya juga dha’if. Syaikh Al-Albani mengatakan bahwa hadits ini hasan)
+Dinukil dari Rumaysho dalam artikel "Doa Ketika Melihat Yang Lain Tertimpa Musibah atau Penyakit" dengan sedikit penyesuaian
+
+Sumber : https://rumaysho.com/14975-doa-ketika-melihat-yang-lain-tertimpa-musibah-atau-penyakit.html
+
+- [X] 25-5-22 // josh-seff-9Q5VqURZ7C4-unsplash
+
+___
+
+### 19. Tidak Bertambah Amalan
+___
+Hasan Al-Bashri -rahimahullah- berkata,
+“Tiada yang pernah ku sesali selain keadaan ketika matahari tenggelam, ajalku berkurang (usia bertambah), namun amalanku tidak bertambah”
+
+Miftahul Afkar dan Mausu'ah Khutab al-Mimbar.
+Faidah catatan kajian "tR Talks Ep73. Time Management"
+
+Sumber : https://www.youtube.com/watch?v=k185nPZYOR0
+
+- [x] 26-5-22 // ajeet-mestry-UBhpOIHnazM-unsplash
+
+___
+
+### 20. Pertolongan Allah
+___
+“Pertolongan tuh bukan dari kepiawaian antum, engga, dari Allah. Sekecil apapun, (itu) dari Allah. siapa kita kalau bukan karena Allah.”
+Ustadz Muhammad Halid Syar’ie -hafizhahullah-
+
+Faidah kajian berjudul "Pertolongan itu dekat - Ustadz Muhammad Halid Syar’ie" dengan sedikit penyesuaian
+
+Sumber : https://www.youtube.com/watch?v=h0ggebFyRBY
+
+- [x] 27-5-22 // georgie-cobbs-bKjHgo_Lbpo-unsplash
+
+___
+
+### 21. Orang-orang yang lebih dulu ke surga
+___
+Syaikh As Sa'di -rahimahullah- berkata,
+"Barang siapa yang bersegera kepada kebaikan di dunia ini, maka dialah orang yang bersegera menuju surga di akhirat."
+
+Taisirul Karimir Rahman.
+Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
+
+Sumber : https://t.me/wawasan_muslim/12454
+
+- [x] 30-5-22 // guille-pozzi-jD34AmVhESc-unsplash
+
+___
+
+### 22. Bersyukur Dahulu (Sep '20)
+___
+Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu : “Bersyukur dulu baru bisa bahagia, Bukan menunggu bahagia dulu baru bersyukur”
+
+Dinukil dari Muslimafiyah.com dalam artikel berjudul "Penjelasan Makna Doa dan Dzikir Sehari-Hari (1)" dengan sedikit penyesuaian
+
+Sumber : https://muslimafiyah.com/penjelasan-makna-doa-dan-dzikir-sehari-hari-1.html
+
+- [x] 31-5-22 // repost 9-9-20 igor-karimov-1XxoscGrovE-unsplash

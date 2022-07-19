@@ -1011,7 +1011,7 @@ https://rumaysho.com/10672-berbohong-dalam-candaan.html
 
 ___
 
-### 22. Terkabulnya Doa (1)
+### 22. Terkabulnya Doa (2)
 
 ___
 
@@ -1053,7 +1053,7 @@ ___
 
 - [x] 2-10-20
 
-### 2. Sebuah Perjalanan (1)
+### 2. Sebuah Perjalanan (2)
 
 ___
 
@@ -1093,7 +1093,7 @@ ___
 
 - [x] 6-10-20
 
-### 4. Doa Berlindung Dari Keburukan (1)
+### 4. Doa Berlindung Dari Keburukan (2)
 
 ___
 
