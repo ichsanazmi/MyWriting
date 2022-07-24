@@ -273,8 +273,41 @@ dengan sedikit penyesuaian
 Sumber :
 https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaikan.html
 
-- [x] 7-10-20
+- [] 24-6-22 // repost 7-10-20
 
 ___
 
-### 19. 
+### 19. Yakin Akan Rezeki (Okt '20)
+
+___
+
+Rasulullah -shallallahu 'alaihi wasallam- bersabda,
+
+“Wahai manusia bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, karena tidaklah suatu jiwa akan mati hingga terpenuhi rezekinya, walau lambat rezeki tersebut sampai kepadanya, maka bertakwalah kepada Allah dan pilihlah cara yang baik dalam mencari rezeki, ambillah rezeki yang halal dan tinggalkanlah rezeki yang haram”
+
+HR. Ibnu Majah, dan Syaikh Al-Albani menshahihkannya
+Dinukil dari Muslim.or.id dalam artikel berjudul "Mengapa ada yang mati kelaparan padahal rezeki sudah dijamin" dengan sedikit penyesuaian
+
+Sumber :
+https://muslim.or.id/25097-mengapa-ada-yang-mati-kelaparan-padahal-rezeki-sudah-dijamin.html
+
+- [] 27-6-22 // repost 8-10-20
+
+___
+
+### 20. Merasa Cukup (Okt '20)
+___
+
+Seseorang akan  terus merasa kurang dan miskin apabila tidak merasa qana’ah dan selalu melihat orang lain yang berada di atasnya dalam urusan dunia.
+padahal Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+
+“Lihatlah orang yang berada di bawahmu (dalam masalah harta dan dunia) dan janganlah engkau lihat orang yang berada di atasmu. Dengan demikian, hal itu akan membuatmu tidak meremehkan nikmat Allah padamu.”
+
+HR. Bukhari Muslim
+Dinukil dari Muslim.or.id dalam artikel berjudul "Setan Menakut-nakuti dengan Kemiskinan"
+dengan sedikit penyesuaian
+
+Sumber :
+https://muslim.or.id/50745-setan-menakut-nakuti-dengan-kemiskinan.html
+
+- [] 28-6-22 // repost 9-10-20

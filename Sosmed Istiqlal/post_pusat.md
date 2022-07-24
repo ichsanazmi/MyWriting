@@ -1113,7 +1113,7 @@ ___
 
 - [x] 7-10-20
 
-### 5. Yakin Akan Rezeki (1)
+### 5. Yakin Akan Rezeki (2)
 
 ___
 
@@ -1133,7 +1133,7 @@ ___
 
 - [x] 8-10-20
 
-### 6. Merasa Cukup (1)
+### 6. Merasa Cukup (2)
 
 ___
 
@@ -1299,7 +1299,7 @@ ___
 
 - [x] 20-10-20  
 
-### 14. Berharaplah Diterima (1)
+### 14. Berharaplah Diterima (2)
 
 ___
 

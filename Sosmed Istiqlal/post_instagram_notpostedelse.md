@@ -62,7 +62,20 @@ Dinukil dari tweet Ustadz Badrussalam -hafizhahullah- dengan sedikit penyesuaian
 
 Sumber : https://s.id/1bRam
 
-### 6. 
+### 6. Berharaplah Diterima (Okt '20)
+___
+
+Ibnu 'Aun -rahimahullah- berkata,
+"Kamu jangan berpegang dengan banyaknya amal, sesungguhnya kamu tidak tau apakah amal tersebut diterima ataukah tidak, dan kamu jangan merasa terjamin dari ancaman dosa -dosamu, sesungguhnya kamu tidak tau diampuni ataukah tidak, karena seluruh amalmu gaib darimu, kamu tidak tau apa yang Allah lakukan dengannya".
+
+Rasail Ibnu Rajab 4/440.
+Dinukil dari status facebook
+yang ditulis oleh Ustadz Musa Mulyadi Luqman, BA. -Hafizhahullah-
+
+Sumber :
+https://www.facebook.com/musamulyadi/posts/3421645881236358
+
+- [] x-x-x // repost 21-10-20
 
 ### 7. 
 
