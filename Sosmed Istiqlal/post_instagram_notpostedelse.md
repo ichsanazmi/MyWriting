@@ -77,13 +77,68 @@ https://www.facebook.com/musamulyadi/posts/3421645881236358
 
 - [] x-x-x // repost 21-10-20
 
-### 7. 
+### 7. Teman yang Shalih (Okt '20)
+___
+ Nabi -shallallahu ‘alaihi wa sallam- bersabda,
 
-### 8. 
+“Seseorang yang duduk (berteman) dengan orang shalih dan orang yang jelek bagaikan berteman dengan pemilik minyak wangi dan pandai besi. Pemilik minyak wangi tidak akan merugikanmu; engkau bisa membeli (minyak wangi) darinya atau minimal engkau mendapat baunya. Adapun berteman dengan pandai besi, jika engkau tidak mendapati badan atau pakaianmu hangus terbakar, minimal engkau mendapat baunya yang tidak enak.”
 
-### 9. 
+HR. Bukhari, no. 2101
+Dinukil dari Rumaysho.com dalam artikel berjudul "Manfaat Teman yang Baik" dengan sedikit penyesuaian
 
-### 10. 
+Sumber :
+https://rumaysho.com/13311-manfaat-teman-yang-baik.html
+
+- [] x-x-x // repost 23-10-20
+
+### 8. Teman Karib (Okt '20)
+___
+Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
+
+“Seseorang akan mencocoki kebiasaan teman karibnya. Oleh karenanya, perhatikanlah siapa yang akan menjadi teman karib kalian.”
+
+HR. Abu Daud, no. 4833; Tirmidzi, no. 2378; dan Ahmad, 2:344. Al-Hafizh Abu Thahir mengatakan bahwa sanad hadits ini shahih
+Dinukil dari Rumaysho.com dalam artikel berjudul "Manfaat Teman yang Baik" dengan sedikit penyesuaian
+
+Sumber :
+https://rumaysho.com/13311-manfaat-teman-yang-baik.html
+
+- [] x-x-x // repost 26-10-20
+
+### 9. Nikmat berupa Sahabat (Okt '20)
+___
+Umar ibn Khattab -Radhiallahu 'anhu- berkata,
+
+“Tidaklah seseorang diberikan kenikmatan setelah Islam, yang lebih baik daripada kenikmatan memiliki saudara (semuslim) yang saleh. Apabila engkau dapati salah seorang sahabat yang saleh maka pegang lah erat-erat.”
+
+Quutul Qulub 2/17
+Dinukil dari Muslim.or.id dalam artikel berjudul "Persahabatan yang sampai ke surga selamanya"
+dengan sedikit penyesuaian
+
+Sumber :
+https://muslim.or.id/45173-persahabatan-yang-sampai-ke-surga-selamanya.html
+
+- [] x-x-x // repost 27-10-20
+
+### 10. Jangan Mengeluh (Nov '20)
+___
+
+Imam Ibnu Qayyim -rahimahullah- bersyair,
+Jika engkau tertimpa musibah, maka bersabarlah
+Dengan kesabaran yang mulia, karena Allah lebih tahu yang baik bagimu
+Jika engkau mengeluh kepada Bani Adam, sesungguhnya
+Engkau telah mengadukan Allah Ar Rahim kepada makhluk yang tidak bisa memberi rahmah
+
+Madarijus Salikin, 2/160
+Dinukil dari laman KangAswad dalam artikel yang berjudul "Jangan Mengeluh Kepada Manusia"
+yang ditulis Ustadz Yulian Purnama, S.Kom -Hafizhahullah-
+
+read more :
+https://kangaswad.wordpress.com/2020/04/09/jangan-mengeluh-kepada-manusia/
+
+___
+
+- [x] 9-11-20
 
 ### 11. 
 

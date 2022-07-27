@@ -1337,7 +1337,7 @@ ___
 
 - [x] 22-10-20 / repost 24-07-20
 
-### 16. Teman yang Shalih
+### 16. Teman yang Shalih (1)
 
 ___
 
@@ -1358,7 +1358,7 @@ ___
 
  [x] 23-10-20
 
-### 17. Teman Karib
+### 17. Teman Karib (1)
 
 ___
 
@@ -1379,7 +1379,7 @@ ___
 
  [x] 26-10-20
 
-### 18. Nikmat berupa Sahabat
+### 18. Nikmat berupa Sahabat (1)
 
 ___
 
