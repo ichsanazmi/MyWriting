@@ -65,7 +65,7 @@ Checklist Keberangkatan Jamaah FCI
 
 - [x] 10 Oktober 2022 // Mariani // Lion air // 65 pax // humaidy
 
-- [ ] 16 Oktober 2022 // Haidir + Jamaah pak firman (Umroh 2x Jumat plus tour thoif) // Saudia // 20 pax // humaidi
+- [x] 16 Oktober 2022 // Haidir + Jamaah pak firman (Umroh 2x Jumat plus tour thoif) // Saudia // 20 pax // humaidi
 
 - [ ] 14 November 2022 // Busyiri (Turki) // Turkish Airlines // 45 pax // ?
 
