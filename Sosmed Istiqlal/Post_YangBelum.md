@@ -28,8 +28,6 @@ sumber: https://muslim.or.id/30547-tanda-amalan-di-bulan-ramadhan-diterima.html
 
 18. Seperti Puasa Sepanjang Tahun (Belum | Agustus '20)
 
-
-
 Dari ‘Abdullah bin ‘Amr bin Al ‘Ash, Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
 صَوْمُ ثَلاَثَةِ أَيَّامٍ صَوْمُ الدَّهْرِ كُلِّهِ

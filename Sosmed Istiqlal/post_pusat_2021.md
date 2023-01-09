@@ -330,7 +330,9 @@ yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 ---
 
 ### 18. Berputar Arah (September '20)
+
 ---
+
 Disebutkan bahwa diantara penyebab terjadinya intikas (berbalik keadaan) adalah :
 Rindu masa lalu dan tidak menghancurkan jejaknya
 
@@ -3484,7 +3486,6 @@ Muttafaqun ‘alaih
 Dinukil dari Rumaysho dalam artikel "Jangan menjelek-jelekan makanan" dengan sedikit penyesuaian
 
 Sumber : https://rumaysho.com/6777-jangan-menjelek-jelekkan-makanan.html
-
 
 - [x] 17-12-21 toa-heftiba-_hqV-h2sQHM-unsplash.jpg
 

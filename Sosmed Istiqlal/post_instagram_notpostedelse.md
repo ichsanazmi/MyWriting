@@ -53,7 +53,9 @@ Ustadz Musyaffa' ad-Dariny
 read more : https://www.facebook.com/addariny.abuabdillah/posts/2657767444338156
 
 ### 5. Untitled
+
 ___
+
 Ibnu Rojab -rahimahullah- berkata,
 “Seorang hamba apabila istikhoroh kepada Allah hendaklah ia ridha dengan pilihan Allah untuknya. Baik sesuai atau tidak sesuai dengan keinginannya. Karena ia tidak tahu mana yang terbaik. Dan Allah adil dalam pilihan-Nya.”
 
@@ -63,6 +65,7 @@ Dinukil dari tweet Ustadz Badrussalam -hafizhahullah- dengan sedikit penyesuaian
 Sumber : https://s.id/1bRam
 
 ### 6. Berharaplah Diterima (Okt '20)
+
 ___
 
 Ibnu 'Aun -rahimahullah- berkata,
@@ -78,7 +81,9 @@ https://www.facebook.com/musamulyadi/posts/3421645881236358
 - [] x-x-x // repost 21-10-20
 
 ### 7. Teman yang Shalih (Okt '20)
+
 ___
+
  Nabi -shallallahu ‘alaihi wa sallam- bersabda,
 
 “Seseorang yang duduk (berteman) dengan orang shalih dan orang yang jelek bagaikan berteman dengan pemilik minyak wangi dan pandai besi. Pemilik minyak wangi tidak akan merugikanmu; engkau bisa membeli (minyak wangi) darinya atau minimal engkau mendapat baunya. Adapun berteman dengan pandai besi, jika engkau tidak mendapati badan atau pakaianmu hangus terbakar, minimal engkau mendapat baunya yang tidak enak.”
@@ -92,7 +97,9 @@ https://rumaysho.com/13311-manfaat-teman-yang-baik.html
 - [] x-x-x // repost 23-10-20
 
 ### 8. Teman Karib (Okt '20)
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
 “Seseorang akan mencocoki kebiasaan teman karibnya. Oleh karenanya, perhatikanlah siapa yang akan menjadi teman karib kalian.”
@@ -106,7 +113,9 @@ https://rumaysho.com/13311-manfaat-teman-yang-baik.html
 - [] x-x-x // repost 26-10-20
 
 ### 9. Nikmat berupa Sahabat (Okt '20)
+
 ___
+
 Umar ibn Khattab -Radhiallahu 'anhu- berkata,
 
 “Tidaklah seseorang diberikan kenikmatan setelah Islam, yang lebih baik daripada kenikmatan memiliki saudara (semuslim) yang saleh. Apabila engkau dapati salah seorang sahabat yang saleh maka pegang lah erat-erat.”
@@ -121,6 +130,7 @@ https://muslim.or.id/45173-persahabatan-yang-sampai-ke-surga-selamanya.html
 - [] x-x-x // repost 27-10-20
 
 ### 10. Jangan Mengeluh (Nov '20)
+
 ___
 
 Imam Ibnu Qayyim -rahimahullah- bersyair,
@@ -140,18 +150,20 @@ ___
 
 - [x] 9-11-20
 
-### 11. 
+### 11.
 
-### 12. 
+### 12.
 
-### 13. 
+### 13.
 
-### 14. 
+### 14.
 
-### 15. 
+### 15.
 
 ### 16. Untitled
+
 ___
+
 Nabi pernah mengajarkan doa kepada Abu Bakr radhiyallahu ‘anhu,
 
 اللَّهُمَّ إِنِّى ظَلَمْتُ نَفْسِى ظُلْمًا كَثِيرًا وَلاَ يَغْفِرُ الذُّنُوبَ إِلاَّ أَنْتَ ، فَاغْفِرْ لِى مَغْفِرَةً مِنْ عِنْدِكَ ، وَارْحَمْنِى إِنَّكَ أَنْتَ الْغَفُورُ الرَّحِيمُ
@@ -163,20 +175,30 @@ Dinukil dari Muslim.or.id dalam artikel "Kiat-kiat Agar Doa Dikabulkan Bag. 7" d
 
 Sumber: https://muslim.or.id/68045-kiat-kiat-agar-doa-dikabulkan-bag-7.html
 
-### 17. 
+### 17.
 
-### 18. 
+### 18.
 
-### 19. 
+### 19.
 
-### 20. 
-### 21. 
+### 20.
+
+### 21.
+
 ### 22.
+
 ### 23.
+
 ### 24.
+
 ### 25.
+
 ### 26.
+
 ### 27.
+
 ### 28.
+
 ### 29.
-### 30.  
+
+### 30.

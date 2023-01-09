@@ -5,7 +5,9 @@
 ___
 
 ### 1. Memenuhi Kebutuhan Seorang Muslim
+
 ___
+
 Rasulullah -shalallahu alaihi wa sallam- bersabda,
 
 "Barangsiapa yang berjalan bersama saudaranya yang muslim untuk memenuhi kebutuhannya sampai terpenuhi untuknya, maka Allah akan meneguhkan kakinya pada hari ketika kaki-kaki tergelincir."
@@ -18,7 +20,9 @@ Sumber : https://t.me/wawasan_muslim/9272
 - [x] 3-1-22 rolf-blicher-godfrey-Pqhzts9gpEc-unsplash
 
 ### 2. Harapan atau Angan ? (September '20)
+
 ___
+
 Syaikh Abdul Aziz ar-Rajihi menjelaskan,
 
 "Harapan itu disertai dengan mengerahkan kesungguhan dan bertawakal dengan sebaik-baiknya. Namun ia berubah menjadi angan-angan tatkala upayanya dilakukan dengan bermalas-malasan"
@@ -31,7 +35,9 @@ Sumber : https://muslim.or.id/58455-untuk-apa-kamu-hidup.html
 - [x] 4-1-22  / repost 11-9-20 pexels-daria-shevtsova-3794732
 
 ### 3. Berharaplah Diterima (Okt '20)
+
 ___
+
 Ibnu 'Aun -rahimahullah- berkata,
 
 "Kamu jangan berpegang dengan banyaknya amal, sesungguhnya kamu tidak tau apakah amal tersebut diterima ataukah tidak, dan kamu jangan merasa terjamin dari ancaman dosa -dosamu, sesungguhnya kamu tidak tau diampuni ataukah tidak, karena seluruh amalmu gaib darimu, kamu tidak tau apa yang Allah lakukan dengannya".
@@ -45,7 +51,9 @@ https://www.facebook.com/musamulyadi/posts/3421645881236358
 - [x] 5-1-22 / repost 21-10-20 pexels-rahul-pandit-1212487
 
 ### 4. Fitnah Wanita
+
 ___
+
 Sa'id bin Al-Musayyib -rahimahullah- berkata,
 
 "Usiaku telah delapan puluh tahun dan tidak ada yang paling aku takutkan selain dari fitnah perempuan" Ketika itu penglihatan beliau hampir hilang
@@ -58,7 +66,9 @@ read more : https://www.facebook.com/musamulyadi/posts/4671457482921852
 - [x] 6-1-22 pexels-evie-shaffer-2395251
 
 ### 5. Datangi Shalat Dengan Semangat
+
 ___
+
 Ibnu Abbas -radhiyallahu anhuma- berkata,
 
 "Dimakruhkan seseorang pergi mendatangi salat dalam keadaan malas. Oleh karena itu, hendaknya ia mendatangi dalam keadaan wajah yang ceria, besar harapan, dan sangat gembira, karena dia akan bermunajat dengan Allah, sedangkan Allah di hadapannya, Dia akan mengampuninya dan mengabulkannya ketika dia berdoa. Ia pun membaca firman Allah Ta'ala, "Dan apabila mereka (orang-orang munafik) berdiri untuk salat maka mereka berdiri dalam keadaan malas." (Qs. An Nisaa: 142)
@@ -71,7 +81,9 @@ Sumber : https://t.me/wawasan_muslim/8891
 - [x] 7-1-22 mario-la-pergola-myy2_CazPR8-unsplash
 
 ### 6. Angan-Angan Mereka Yang Telah Berada di Kubur
+
 ___
+
 Imam Ibnu Rajab -rahimahullah- berkata,
 
 "Angan-angan orang-orang yang telah meninggal dunia di kuburnya adalah bisa hidup meskipun sesaat agar dapat mengejar yang telah lewat dari mereka berupa tobat dan beramal saleh, dimana penduduk dunia meremehkannya saat hidup di dunia, sehingga usia mereka habis dalam kelalaian dan kesia-siaan, di antara mereka bahkan ada yang mengisinya dengan maksiat. 
@@ -86,7 +98,9 @@ Sumber : https://t.me/wawasan_muslim/9138
 - [x] 10-1-22 pexels-vishnu-r-nair-1105666
 
 ### 7. Membuat Gembira Saudara Seiman (Agustus '20 / judul asli Kegembiraan Saudaramu)
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Seutama-utama amal shalih ialah hendaknya engkau memasukkan kegembiraan kepada saudaramu yang beriman"
 
@@ -97,7 +111,9 @@ yang ditulis oleh Ustadz Fariq bin Gasim Anuz -Hafizhahullah-
 - [x] 11-1-22 / repost  31-08-20 pexels-nastyasensei-2575830
 
 ### 8. Terus Menyebarkan Ilmu
+
 ___
+
 Syaikh Muhammad bin Sholih Al Utsaimin -rahimahullah- berkata,
 
 "Pesanku kepada diriku dan kepada kalian adalah hendaknya kita bersemangat menyebarkan ilmu ke tengah-tengah manusia dan tidak meremehkan sedikit pun daripadanya. Jika engkau mengajarkan kepada seorang satu materi saja, kemudian dia mengamalkannya lalu dia pun menyampaikan kepada yang lain dan seterusnya, maka setiap pahala yang diperoleh karena mengamalkan apa yang engkau sampaikan, engkau akan memperoleh juga pahalanya."
@@ -110,7 +126,9 @@ Sumber : https://t.me/wawasan_muslim/9266
 - [x] 12-1-22 pexels-miguel-á-padriñán-194094
 
 ### 9. Takut Akan Tercabutnya Hidayah
+
 ___
+
 Sebagian orang ada yang merasa rindu dengan awal-awal dulu ketika ia mendapatkan hidayah.
 Namun sayang, betapa sedikit usahanya sekarang untuk mempertahankan hidayah.
 Entah di masa depan nanti, dengan kondisi yang terus seperti ini, tak takutkah dia dengan tercabutnya hidayah?
@@ -123,7 +141,9 @@ Sumber : https://www.facebook.com/boris.tanesia/posts/10214452877536543
 - [x] 13-1-22 pexels
 
 ### 10. Andai Ia Meninggalkan Bau (Agustus '20)
+
 ___
+
 Muhammad bin Wasi’ -rahimahullah- berkata,
 
 “Andaikan dosa itu memiliki bau, tentu tidak ada dari seorang pun yang ingin duduk dekat-dekat denganku.”
@@ -137,7 +157,9 @@ https://rumaysho.com/17633-bisakah-jadi-lebih-baik.html
 - [x] 14-1-22 / repost 04-08-20 pexels-elti-meshau-333850
 
 ### 11. Warisan Para Nabi (Agustus '20)
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 
 “Sesungguhnya para Nabi tidak mewariskan dinar dan dirham, mereka hanyalah mewariskan ilmu. Barangsiapa yang mengambilnya, maka dia telah memperoleh keberuntungan yang banyak."
@@ -150,7 +172,9 @@ Sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 - [x] 17-1-22  / repost 10-8-20 pexels-karolina-grabowska-4207791
 
 ### 12. Mengapa Tidak Merasakan Nikmatnya Ibadah?
+
 ___
+
 Yahya bin Mu'adz -rahimahullah- berkata,
 
 "Sakitnya badan karena penyakit dan sakitnya hati karena dosa. Sebagaimana badan tidak merasakan nikmatnya makan ketika sakit, maka demikian pula hati tidak merasakan manisnya ibadah ketika jatuh ke dalam dosa-dosa."
@@ -163,7 +187,9 @@ Sumber : https://t.me/wawasan_muslim/12074
 - [x] 18-1-22 pexels-nothing-ahead-4640971
 
 ### 13. Terus Beribadah Kepada Allah Sampai Ajal Menjemput
+
 ___
+
 Syaikh Ibnu Utsaimin -rahimahullah- berkata,
 
 "Amal itu tidak berakhir dengan habisnya musim ketaatan, akan tetapi amal berakhir dengan habisnya ajal."
@@ -176,7 +202,9 @@ Sumber : https://t.me/wawasan_muslim/12051
 - [x] 19-1-22 pexels-daniel-frank-688830
 
 ### 14. Ilmu Sebelum Amal (Agustus '20)
+
 ___
+
 'Umar bin 'Abdul 'Aziz -rahimahullah- berkata,
 “Barangsiapa yang beribadah kepada Allah tanpa ilmu, maka dia akan membuat banyak kerusakan daripada mendatangkan kebaikan.”
 
@@ -188,7 +216,9 @@ Sumber : https://rumaysho.com/1626-lalai-untuk-belajar-islam.html
 - [x] 20-1-22 // repost 11-08-20 pexels-bakr-magrabi-3203659
 
 ### 15. Tawakkal Kepada Allah (Agustus '20)
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 "Seandainya kalian benar-benar bertawakal kepada Allah, sungguh Allah akan memberikan kalian rezeki sebagaimana burung mendapatkan rezeki. Burung tersebut pergi di waktu pagi dalam keadaan lapar dan kembali di waktu sore dalam keadaan kenyang.”
 
@@ -200,7 +230,9 @@ Sumber : https://rumaysho.com/25326-kunci-rezeki-tawakal-kepada-allah-hadits-jam
 - [ ] 21-1-22 // repost 12-08-20 pexels-tim-mossholder-959911
 
 ### 16. Sebab - Sebab Kebahagiaan (Agustus '20)
+
 ___
+
 Kebahagiaan timbul dari kuatnya tauhid seseorang kepada Allah, besarnya ketergantungan hatinya pada Rabbnya,
 dia yakin bahwa kebahagiaannya Allah yang jamin
 
@@ -211,7 +243,9 @@ Tonton selengkapnya : https://www.youtube.com/watch?v=NW59PUoiWOo
 - [x] 24-1-22 // repost 14-08-20 pexels-sem-steenbergen-3053486
 
 ### 17. Adab Menghadiri Shalat Jum'at (Agustus '20)
+
 ___
+
 Rasulullah -shallallahu 'alaihi wasallam- bersabda,
 “Tidaklah seorang laki-laki mandi pada hari Jum’at, lalu bersuci semaksimal mungkin, memakai wewangian miliknya atau minyak wangi keluarganya, lalu keluar rumah menuju masjid, dia tidak memisahkan dua orang pada tempat duduknya, lalu dia shalat sebanyak yang dia mampu dan diam mendengarkan khutbah imam, kecuali dia akan diampuni dosa-dosanya yang ada antara Jum’at itu dan Jum’at yang lainnya.”
 
@@ -223,9 +257,12 @@ Sumber : https://muslim.or.id/58161-memperbanyak-shalat-sunnah-sebelum-datangnya
 - [x] 25-1-22 // repost 21-08-20 pexels-meruyert-gonullu-6033982
 
 ### 18. Sebab Ditutupnya Pintu Taufik Dari Seseorang
+
 ___
+
 Syaqiq bin Ibrahim -rahimahullah- berkata,
 Pintu Taufik ditutup dari seseorang karena 6 hal:
+
 1. Mereka sibuk dengan nikmat Allah tetapi lupa mensyukurinya.
 2. Mereka senang dengan ilmu tetapi tidak mau mengamalkannya.
 3. Mereka segera berbuat dosa tetapi tidak segera bertobat.
@@ -241,7 +278,9 @@ Sumber : https://t.me/wawasan_muslim/12113
 - [x] 26-1-22 pexels-george-becker-792032
 
 ### 19. Takwa dan Tawadhu
+
 ___
+
 Ibnu Umar -radhiyallahu anhuma- berkata, 
 "Takwa itu adalah ketika engkau tidak merasa bahwa dirimu lebih baik daripada orang lain."
 
@@ -253,7 +292,9 @@ Sumber : https://t.me/wawasan_muslim/12153
 - [x] 27-1-22 pexels-sebastian-voortman-411207
 
 ### 20. Sebab Terhalangnya Ibadah
+
 ___
+
 Ibnu Mas'ud -Radhiallahu 'anhu- pernah ditanya,
 "Mengapa Kami Tidak Mampu Melakukan Shalat Malam?".
 Beliau menjawab,
@@ -282,7 +323,9 @@ ___
 ## Februari 22 (done || QC)
 
 ### 1. Penunjuk Kebaikan (Judul asli Pionir Kebaikan/ oktober '20)
+
 ___
+
 Rasulullah -shallallahu ’alaihi wa sallam- bersabda,
 
 “Barangsiapa melakukan suatu amalan kebaikan lalu diamalkan oleh orang sesudahnya, maka akan dicatat baginya ganjaran semisal ganjaran orang yang mengikutinya dan sedikitpun tidak akan mengurangi ganjaran yang mereka peroleh. Sebaliknya, barangsiapa melakukan suatu amalan kejelekan lalu diamalkan oleh orang sesudahnya, maka akan dicatat baginya dosa semisal dosa orang yang mengikutinya, tanpa mengurangi dosanya sedikit pun.”
@@ -295,7 +338,9 @@ Sumber : https://rumaysho.com/22043-bulughul-maram-akhlak-menjadi-pionir-kebaika
 - [x] 1-2-22 // repost repost 6-10-20 pexels-cottonbro-5967048
 
 ### 2. Cinta Dunia
+
 ___
+
 Malik bin Dinar -rahimahullah- berkata,
 "Sesungguhnya apabila badan sakit maka tidak akan mempan padanya makanan, minuman, tidur, dan rehat. Seperti itulah hati, apabila terpaut cinta dunia maka nasehat tidak akan mempan."
 
@@ -320,7 +365,9 @@ Sumber : https://www.facebook.com/photo?fbid=3229195297148085&set=a.696709553730
 - [x] 3-2-22 / repost 1-9-20 pexels-cottonbro-4069291
 
 ### 4. Pahala Besar Di Balik Musibah
+
 ___
+
 Syaikhul Islam Ibnu Taimiyah -rahimahullah- berkata,
 
 "Apabila ujian semakin besar, maka bagi seorang mukmin yang saleh menjadi sebab tingginya derajat dan besarnya pahala."
@@ -333,7 +380,9 @@ Sumber : https://t.me/wawasan_muslim/12006
 - [x] 7-2-22 pexels-burst-373914
 
 ### 5. Semakin Menjauh Atau mendekat?
+
 ___
+
 Ibnul Qoyyim Al Jauziyah -rahimahullah- berkata,
 "Dari hal yang ajaib adalah anda mengenaliNya namun tidak mencintaiNya…
 Anda mendengar panggilanNya namun respon anda selalu terlambat…
@@ -354,7 +403,9 @@ sumber : https://ilmuassyarie.com/semakin-menjauh-atau-mendekat/
 - [x] 8-2-22 pexels-daria-shevtsova-3793308
 
 ### 6. Semangat Menyebarkan Ilmu
+
 ___
+
 Syaikh Ibnu Baz -rahimahullah- berkata,
 
 "Engkau wajib semangat menyebarkan ilmu dengan sungguh-sungguh dan sekuat tenaga, jangan sampai mereka yang berada di atas kebatilan lebih semangat dalam menyampaikan kebatilan mereka, dan hendaknya engkau juga bersemangat untuk memberikan manfaat kepada kaum muslimin terkait dengan agama dan dunia mereka."
@@ -367,7 +418,9 @@ Sumber : https://t.me/wawasan_muslim/12002
 - [x] 9-2-22 pexels-pixabay-372748
 
 ### 7. Tadabbur Al Qur'an Kunci Hidayah
+
 ___
+
 Ibnu Hubairah -rahimahullah- berkata,
 
 "Termasuk tipu daya setan adalah membuat jauh hamba-hamba Allah dari mentadaburi Al-Quran, karena diketahui bahwa petunjuk akan datang ketika seseorang mentadaburi Al-Quran."
@@ -380,7 +433,9 @@ Sumber : https://t.me/wawasan_muslim/12028
 - [x] 10-2-22 pexels-ahmet-polat-4463896
 
 ### 8. Andai Mereka Tahu
+
 ___
+
 Jika saya tinggalkan dunia hitam ini lalu saya mau kemana? Jika saya keluar dari bidang haram ini lalu saya mau kerja dimana? Jika saya tinggalkan geng saya dengan segala maksiatnya, memangnya ada yang mau berteman dengan saya?
 
 Andai mereka tahu bahwa Pencipta dan Pemilik kehidupan ini telah berfirman:
@@ -411,7 +466,9 @@ Sumber : http://www.salamdakwah.com/artikel/4375-andai-mereka-tahu
 - [x] 11-2-22 pexels-pixabay-531321
 
 ### 9. Jangan Lalai Dalam Menuntut Ilmu Agama
+
 ___
+
 Ada sebuah hadits yang perlu kita renungi bersama, karena hal ini menyangkut nama baik kita di mata Allah ta'ala.
 Nabi -shallallahu 'alaihi wasallam- bersabda,
 "Sesungguhnya Allah ta'ala membenci setiap orang yang menguasai ilmu dunia namun bodoh tentang ilmu akhirat." 
@@ -431,11 +488,15 @@ Ustadz Muhammad Nuzul Dzikri, Lc. -hafizhahullah-
 Dinukil dari laman SalamDakwah dengan sedikit penyesuaian
 
 Sumber : http://www.salamdakwah.com/artikel/30-jangan-lalai-dalam-menuntut-ilmu-agama
+
 ___
+
 - [x] 14-2-22 watch-4638673
 
 ### 10. Tetap Bersemangat Sebagaimana Saat Ramadhan
+
 ___
+
 Dikatakan kepada Bisyr Al-Hafi, suatu kaum, mereka beribadah dan bersungguh-sungguh melakukan amalan ibadah di bulan Ramadhan. Akan tetapi, ketika Ramadhan berakhir mereka pun meninggalkan amalan ibadah tersebut. 
 Lantas beliau -rahimahullah- berkata ,
 "Sejelek-jelek kaum adalah mereka yang hanya mengenal Allah Ta'ala di bulan Ramadhan."
@@ -448,7 +509,9 @@ Sumber : http://www.salamdakwah.com/artikel/2798-sejelek-jelek-kaum-mengenal-all
 - [x] 15-2-22 pexels-kévin-dorg-2881260
 
 ### 11. Maaf, Sebab Kemuliaan
+
 ___
+
 Syaikhul Islam ibnu Taimiyah -rahimahullah- berkata,
 
 “Tidak ada seorangpun yang balas dendam untuk dirinya kecuali akan menimbulkan kehinaan pada dirinya. Bila ia memaafkan maka Allah memuliakannya. Dan ini yang dikabarkan oleh Nabi -shollallahu ‘alaihi wasallam-: “Tidaklah Allah menambahkan untuk hambanya yang memaafkan kecuali kemuliaan.”
@@ -459,11 +522,15 @@ Jami’ Masaail 1/170.
 Dinukil dari status facebook Ustadz Badrusalam -hafizhahullah- dengan sedikit penyesuaian
 
 Sumber : https://s.id/16HE6
+
 ___
+
 - [x] 16-2-22 han-chenxu-YdAqiUkUoWA-unsplash
 
 ### 12. Gembira Atas Nikmat Berdoa
+
 ___
+
 Syaikh Ibnu Sa'diy -rahimahullah- berkata,
 
 "Barang siapa yang diberi taufik untuk banyak berdoa, maka hendaknya dia bergembira dengan dekatnya dikabulkan doa."
@@ -472,11 +539,15 @@ Al Fawakih Asy Syahiyyah hal. 36.
 Dinukil dari kanal Wawasan Muslim dengan sedikit penyesuaian
 
 sumber : https://t.me/wawasan_muslim/12195
+
 ___
+
 - [x] 17-2-22 chris-liu-R0mWlPiK1hw-unsplash
 
 ### 13. Bergembiralah wahai orang yang bertaubat!
+
 ___
+
 Yahya bin Mu'adz -rahimahullah- berkata,
 
 "Orang yang bertaubat memiliki kebanggaan yang tidak bisa disaingi, yaitu kegembiraan Allah terhadap taubatnya."
@@ -485,11 +556,15 @@ Hilyatul Auliya 10/59
 Dinukil dari kanal Wawasan Muslim dengan sedikit penyesuaian
 
 sumber : https://t.me/wawasan_muslim/12159
+
 ___
+
 - [x] 18-2-22 nathan-dumlao-OHzkfrv9Ycw-unsplash
 
 ### 14. Menangis Ketika Tertinggal Shalat Jama'ah (Judul asli Tertinggal Shalat Jama'ah // September '20)
+
 ___
+
 Muhammad ibn Al Mubarak -rahimahullah- berkata,
 
 "Said bin Abdul Aziz* ketika tertinggal dari shalat berjamaah, maka ia menangis."
@@ -500,13 +575,17 @@ Dinukil dari kanal Telegram Wawasan Muslim
 dengan sedikit tambahan faidah dari web tulisanterkini.com
 
 read more :
+
 - https://t.me/wawasan_muslim/6420
+
 - https://tulisanterkini.com/artikel/keislaman/ahlaq/128-said-bin-abdul-aziz-.html
 
 - [x] 21-2-22 // repost 25-9-20 zara-walker-2JqzgXA8W2E-unsplash
 
 ### 15. Datang Sebelum Adzan
+
 ___
+
 Sufyan bin Uyainah -rahimahullah- mengatakan,
 "Jangan seperti budak yang buruk, tidak datang kecuali setelah dipanggil. Datanglah ke masjid sebelum adzan". Ada yang mengatakan, "Diantara bentuk menghormati sholat adalah datang sebelum iqomah dikumandangkan" 
 
@@ -517,8 +596,10 @@ Sumber : https://s.id/16HDw
 
 - [x] 22-2-22 kheldoun-imad-uT31hwUykQQ-unsplash
 
-### 16. Bahaya Melihat dan Kagum Dengan Ibadah 
+### 16. Bahaya Melihat dan Kagum Dengan Ibadah
+
 ___
+
 Sa'id bin Jubair -radhiallahu 'anhu- berkata,
 
 "Seorang hamba mengamalkan kebaikan namun masuk neraka karenanya, dan seorang berbuat keburukan namun masuk surga karenanya."
@@ -533,7 +614,9 @@ Sumber : https://s.id/-18QXr
 - [x] 23-2-22 pexels-gizem-mat-10133872
 
 ### 17. Tidak Ada Qobliyah dan Ba'diyah Ied
+
 ___
+
 Ibnu ‘Abbas -Radhiallahu 'anhu- berkata,
 
 “Rasulullah -shallallahu ‘alaihi wa sallam- pernah keluar pada hari Idul Adha atau Idul Fithri, lalu beliau mengerjakan shalat ‘ied dua raka’at, namun beliau tidak mengerjakan shalat qobliyah maupun ba’diyah ‘ied.”
@@ -567,8 +650,10 @@ Bulan yang agung ini akan segera meninggalkan kita. Bulan dimana yang telah mend
 
 - [x] 28-2-22
 
-##  Maret 22 (done)
+## Maret 22 (done)
+
 ---
+
 ### 1. Meski Seteguk Air
 
 Rasulullah -Shallallahu 'Alaihi wasallam- bersabda,
@@ -606,7 +691,9 @@ Sumber : https://muslim.or.id/1382-keutamaan-puasa-sunnah-6-hari-di-bulan-syawwa
 - [x] 3-3-22
 
 ### 4. Jangan Pukul Rata
+
 ___
+
 "Kalau urusan kebaikan maka anggaplah orang lain lebih darimu, dan kalau urusan keburukan maka jangan sama ratakan semua orang itu sama buruknya dengan dirimu"
 Ustadz Musa Mulyadi Luqman, BA -hafizhahullah-
 
@@ -658,7 +745,9 @@ read more : https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hi
 - [x] 9-3-22
 
 ### 8. Malas Untuk Berdoa
+
 ___
+
 Rasulullah -shallallaahu 'alaihi wa sallam- bersabda,
 
 "Orang yang paling lemah adalah orang yang malas untuk berdoa"
@@ -875,17 +964,21 @@ pantaskah kita merasa tidurnya kita sama dengan tidurnya mereka yang memanfaatka
 - [x] 31-3-22
 
 ## Mei 22 (done || QC)
+
 ```
 “ Kutip ˮ
 ```
+
 ___
 
-### 1. Hanyalah Kumpulan Hari 
+### 1. Hanyalah Kumpulan Hari
+
 ___
+
 Al-Hasan Al-Bashri -rahimahullah- berkata,
 
 “Wahai manusia, sesungguhnya kalian hanyalah kumpulan hari. Tatkala satu hari itu hilang, maka akan hilang pula sebagian darimu.ˮ
- 
+
 Hilyatul Auliya', 2/148.
 Dinukil dari kanal telegram MaaHaadza, dengan sedikit perubahan
 
@@ -896,7 +989,9 @@ Sumber : https://t.me/MaaHaadzaa/17447
 ___
 
 ### 2. Jebakan Berupa Nikmat (Des '20)
+
 ___
+
 Rasulullah -Shallallahu 'Alaihi Wasallam- bersabda,
 
 “Bila kamu melihat Allah memberi pada hamba dari (perkara) dunia yang diinginkannya, padahal dia terus berada dalam kemaksiatan kepada-Nya, maka (ketahuilah) bahwa hal itu adalah istidraj (jebakan berupa nikmat yang disegerakan) dari Allah.”
@@ -912,6 +1007,7 @@ https://rumaysho.com/10828-istidraj-jebakan-berupa-limpahan-rezeki-karena-bermak
 ___
 
 ### 3. Di Kuasai Oleh Ucapan (Judul asli Menguasai Ucapan // Des '20)
+
 ___
 
 ada kalimat bijak mengatakan,
@@ -932,7 +1028,9 @@ https://www.youtube.com/watch?v=TSi2PaqEGg8
 ___
 
 ### 4. Kekayaan Sejati (Des '20)
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
 “Yang namanya kaya (ghina’), bukanlah dengan banyaknya harta (atau banyaknya kemewahan dunia). Namun yang namanya ghina’ adalah hati yang selalu merasa cukupˮ
@@ -947,13 +1045,15 @@ Sumber : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 ___
 
 ### 5. 3 Tanda Kebahagiaan (Judul asli Tanda Kebahagiaan / Desember '20 )
+
 ___
+
 Syaikh Muhammad At-Tamimy -rahimahullah- berkata tentang tanda kebahagiaan :
 
 1. Jika diberi kenikmatan, dia bersyukur
 2. Jika diuji dengan ditimpa musibah, dia bersabar
 3. dan jika melakukan dosa, dia beristighfar(bertaubat)
-Maka tiga hal ini adalah tanda kebahagiaan
+   Maka tiga hal ini adalah tanda kebahagiaan
 
 Matn Qowaidul Arba'
 Dinukil dari laman Muslim.or.id dalam artikel "tanda-tanda kebahagiaan yang sejati" dengan sedikit penyesuaian
@@ -965,7 +1065,9 @@ Sumber : https://muslim.or.id/59823-tanda-tanda-kebahagiaan-yang-sejati.html
 ___
 
 ### 6. Ibadah Berupa Memberi Nafkah (November '20)
+
 ___
+
 Syaikh Muhammad bin Shalih al-Utsaimin -rahimahullah- berkata :
 “Sebagian manusia ketika memberikan nafkah kepada keluarganya, ia tidak merasa bahwa ia sedang beribadah kepada Allah dengan nafkah ini. Ketika datang seorang yang miskin lalu ia memberikan satu riyal, maka ia merasa sedang beribadah kepada Allah.”
 
@@ -974,13 +1076,15 @@ Dinukil dari laman Muslim.or.id dalam artikel "Memberi nafkah kepada anak istri 
 
 Sumber :
 https://muslim.or.id/58957-memberi-nafkah-kepada-anak-istri-juga-ibadah-yang-agung.html
- 
+
 - [x] 9-5-22 / florian-klauer-mk7D-4UCfmg-unsplash
 
 ___
 
 ### 7. Hati Yang Lembut dan Penuh Kasih Sayang (Judul asli Nikmat yang Besar / Nov '20)
+
 ___
+
 Syaikh Sulaiman Ar-Ruhaili -hafizhahullah- berkata,
 “Salah satu nikmat yang terbesar dari Allah kepada anda adalah Allah menjadikan hati anda lembut dan penuh kasih sayang sehingga anda berinteraksi baik dengan orang yang dekat maupun orang yang jauh, baik dengan orang yang baik agamanya maupun dengan orang yang menyimpang, sikap anda tetap sesuai dengan tuntutan syariat walaupun sebenarnya hawa nafsu anda menyelisihinya.ˮ
 
@@ -994,7 +1098,9 @@ https://kangaswad.wordpress.com/2013/12/18/sikap-lemah-lembut-adalah-nikmat-yang
 ___
 
 ### 8. Pengingat Tatkala Ingin Bermaksiat (Judul asli Maksiat / Nov '20)
+
 ___
+
 Bilal bin Sa'ad -rahimahullah- berkata ,
 "Janganlah engkau melihat kecilnya maksiat tetapi lihatlah kepada siapa engkau bermaksiat.”
 
@@ -1009,7 +1115,9 @@ https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.ht
 ___
 
 ### 9. Jangan Merasa Aman (Nov '20)
+
 ___
+
 Ibnu 'Abbas -radhiallahu anhu- berkata,
 “Wahai pelaku dosa, janganlah merasa aman dari jeleknya akibat dosa, karena dosa yang lebih besar bisa jadi mengiringinya/mengikutinya, lebih besar dari dosa yang telah engkau lakukan (sekarang).”
 
@@ -1024,7 +1132,9 @@ https://muslim.or.id/42219-bukan-besarnya-dosa-tetapi-kepada-siapa-bermaksiat.ht
 ___
 
 ### 10. Menangislah
+
 ___
+
 Ibnul Jauzi -rahimahullah- berkata,
 
 “Wahai orang yg banyak dosa tapi sedikit nangis, menangislah atas tidak menangisnya dirimu. 
@@ -1039,8 +1149,10 @@ Sumber : https://s.id/19OMm
 
 ___
 
-### 11. Sang Peniru Ulung 
+### 11. Sang Peniru Ulung
+
 ___
+
 “Kalau ingin enteng dalam mendidik anak, didik diri kita dulu. Anak-anak kita itu peniru ulung, kalau kita bisa jadi contoh yang baik, anak akan mengikuti insyaAllahˮ
 
 Ustadz Wira Bachrun -Hafizhahullah-
@@ -1054,7 +1166,9 @@ sumber : https://s.id/-19T87
 ___
 
 ### 12 . Maksimal dalam Beramal di Awal Dzulhijjah
+
 ___
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda,
 “Tidak ada hari dimana suatu amal salih lebih dicintai Allah melebihi amal salih yang dilakukan di sepuluh hari ini (sepuluh hari pertama Dzulhijjah, pen.).”
 
@@ -1069,10 +1183,13 @@ Dinukil dari laman Konsultasi Syariah dalam artikel "Inilah Amalan Bulan Dzulhij
 Sumber : https://konsultasisyariah.com/32228-inilah-amalan-bulan-dzulhijjah-yang-perlu-anda-ketahui.html
 
 - [x] 17-5-22 / madrosah-sunnah-YwVo6oTtgYE-unsplash
+
 ___
 
 ### 13. Puasa 'Arafah (Juli '20)
+
 ___
+
 Nabi -Shallallahu ‘alaihi wa sallam- bersabda,
 “Puasa Arafah (9 Dzulhijjah) dapat menghapuskan dosa setahun yang lalu dan setahun akan datang..”
 
@@ -1082,10 +1199,13 @@ Dinukil dari laman Muslim.or.id dalam artikel "Kemuliaan dan Keistimewaan Hari A
 Sumber : https://muslim.or.id/18529-kemuliaan-dan-keistimewaan-hari-arafah.html
 
 - [x] 18-5-22 / Repost 29-07-20 masjid-pogung-dalangan-pUxPMYP2ykI-unsplash
+
 ___
 
 ### 14. Dijauhkan dari Neraka Sejauh Jarak 70 tahun (Judul Asli Dijauhkan dari Neraka / Juli '20)
+
 ___
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Tidaklah seorang hamba berpuasa satu hari di jalan Allah kecuali Allah akan menjauhkan wajahnya dari api neraka (dengan puasa itu) sejauh 70 tahun jarak perjalanan"
 
@@ -1095,10 +1215,13 @@ Dinukil dari laman Muslim.or.id dalam artikel "Puasa Sunnah" dengan sedikit peny
 Sumber : https://muslim.or.id/294-puasa-sunnah.html
 
 - [x] 19-5-22 / Repost 28-07-20 wolfgang-hasselmann-pVr6wvUneMk-unsplash
+
 ___
 
 ### 15. Puasa Senin Kamis (Juli '20)
+
 ___
+
 Rasulullah -Shallallahu 'alaihi wasallam- bersabda :
 "Amal-amal ditampakkan pada hari senin dan kamis, maka aku suka jika ditampakkan amalku dan aku dalam keadaan berpuasa"
 
@@ -1108,10 +1231,13 @@ Dinukil dari laman Muslim.or.id dalam artikel "Puasa Senin Kamis" dengan sedikit
 Sumber : https://muslim.or.id/17854-puasa-senin-kamis.html
 
 - [x] 20-5-22 // charlesdeluvio-VkmDIP2KOmM-unsplash
+
 ___
 
 ### 16. Bahaya Meninggalkan Shalat
+
 ___
+
 Imam Ibnul Qayyim -rahimahullah- berkata,
 
 "Kaum muslimin tidak berbeda pendapat, bahwa meninggalkan salat fardhu dengan sengaja merupakan dosa yang sangat besar dan bahkan sebagai dosa besar yang sangat besar, bahkan dosanya di sisi Allah lebih besar daripada dosa membunuh manusia, merampas harta, berzina, mencuri, dan meminum minuman keras, dan bahwa pelakunya siap menerima hukuman Allah dan kemurkaan-Nya serta kehinaan dari-Nya di dunia dan di akhirat."
@@ -1126,7 +1252,9 @@ Sumber : https://t.me/wawasan_muslim/12563
 ___
 
 ### 17. Taman-Taman Surga di Dunia
+
 ___
+
 Ibnul Qayyim rahimahullah berkata,
 
 "Barang siapa yang ingin menempati taman-taman surga di dunia, maka singgahilah majlis-majlis ilmu, karena ia termasuk taman-taman surga."
@@ -1136,12 +1264,14 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
 Sumber : https://t.me/wawasan_muslim/12582
 
-- [X] 24-5-22 // masjid-maba-rLOvfbd9r7U-unsplash
+- [x] 24-5-22 // masjid-maba-rLOvfbd9r7U-unsplash
 
 ___
 
 ### 18. Tatkala Melihat Orang Terkena Musibah
+
 ___
+
 Rasulullah -shallallahu ‘alaihi wa sallam- bersabda,
 
 الْحَمْدُ لِلَّهِ الَّذِى عَافَانِى مِمَّا ابْتَلاَكَ بِهِ وَفَضَّلَنِى عَلَى كَثِيرٍ مِمَّنْ خَلَقَ تَفْضِيلاً 
@@ -1157,12 +1287,14 @@ Dinukil dari Rumaysho dalam artikel "Doa Ketika Melihat Yang Lain Tertimpa Musib
 
 Sumber : https://rumaysho.com/14975-doa-ketika-melihat-yang-lain-tertimpa-musibah-atau-penyakit.html
 
-- [X] 25-5-22 // josh-seff-9Q5VqURZ7C4-unsplash
+- [x] 25-5-22 // josh-seff-9Q5VqURZ7C4-unsplash
 
 ___
 
 ### 19. Tidak Bertambah Amalan
+
 ___
+
 Hasan Al-Bashri -rahimahullah- berkata,
 “Tiada yang pernah ku sesali selain keadaan ketika matahari tenggelam, ajalku berkurang (usia bertambah), namun amalanku tidak bertambah”
 
@@ -1176,7 +1308,9 @@ Sumber : https://www.youtube.com/watch?v=k185nPZYOR0
 ___
 
 ### 20. Pertolongan Allah
+
 ___
+
 “Pertolongan tuh bukan dari kepiawaian antum, engga, dari Allah. Sekecil apapun, (itu) dari Allah. siapa kita kalau bukan karena Allah.”
 Ustadz Muhammad Halid Syar’ie -hafizhahullah-
 
@@ -1189,7 +1323,9 @@ Sumber : https://www.youtube.com/watch?v=h0ggebFyRBY
 ___
 
 ### 21. Orang-orang yang lebih dulu ke surga
+
 ___
+
 Syaikh As Sa'di -rahimahullah- berkata,
 "Barang siapa yang bersegera kepada kebaikan di dunia ini, maka dialah orang yang bersegera menuju surga di akhirat."
 
@@ -1203,7 +1339,9 @@ Sumber : https://t.me/wawasan_muslim/12454
 ___
 
 ### 22. Bersyukur Dahulu (Sep '20)
+
 ___
+
 Alhamdulillah (yaitu) memuji Allah dengan mengingatkan kita atas nikmat Allah yang sangat banyak dan sangat jarang kita syukuri. Kita perlu banyak mengingat nikmat Allah yang sangat banyak karena inilah kunci utama kebahagiaan yaitu : “Bersyukur dulu baru bisa bahagia, Bukan menunggu bahagia dulu baru bersyukur”
 
 Dinukil dari Muslimafiyah.com dalam artikel berjudul "Penjelasan Makna Doa dan Dzikir Sehari-Hari (1)" dengan sedikit penyesuaian
