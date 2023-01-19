@@ -7,6 +7,7 @@
 004 : Baca Nanti
 005 : Install
 006 : Belajar TSL
+007 : memorable
 ```
 
 ## 17 Januari 2023
@@ -31,3 +32,5 @@
 - Baca Quran : -
 - Lari : -
 - [] #004 [WMEFoto_BagenFC - Google Drive](https://drive.google.com/drive/folders/18b1Lo-7wACvIhWJnDABbOzfkSi897Vb7)
+- #007 Kopi *manusia* 
+- [] #004 https://muhajirprojectstore.com/
