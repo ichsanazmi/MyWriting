@@ -8,6 +8,7 @@
 005 : Install
 006 : Belajar TSL
 007 : memorable
+U #00X : Urgent
 ```
 
 ## 17 Januari 2023
@@ -34,3 +35,9 @@
 - [] #004 [WMEFoto_BagenFC - Google Drive](https://drive.google.com/drive/folders/18b1Lo-7wACvIhWJnDABbOzfkSi897Vb7)
 - #007 Kopi *manusia* 
 - [] #004 https://muhajirprojectstore.com/
+
+## 20 Januari 2023
+
+- Subuh : tertinggal 1 rakat
+- [] #004 [Uncompilable](https://uncompilable.com/)
+- []U #004 daftar kasisolusi
