@@ -1,7 +1,7 @@
 ---
 title: dailyJournal
 created: '1970-01-01T00:00:00.000Z'
-modified: '2023-01-24T21:59:12.217Z'
+modified: '2023-01-26T07:52:53.267Z'
 ---
 
 # Daily Journal
@@ -47,3 +47,31 @@ U #00X : Urgent
 - Subuh : tertinggal 1 rakat
 - [] #004 [Uncompilable](https://uncompilable.com/)
 - []U #004 daftar kasisolusi
+
+## 21-23 Januari 2023
+
+- do nothing special
+
+## 24 Januari 2023
+
+- #002 Packaging dokumen klaim asuransi
+
+## 25 Januari 2023
+
+- #002 tidak masuk kerja
+
+## 26 Januari 2023
+
+- #002
+```
+- kirim dokumen ke asuransi bumida
+- kirim 50 buku doa ke pak hasibuan
+- #002 [] jilid laporan umroh
+- #002 [] urus asuransi
+- #002 [] download invoice dan pak fatoni
+- #002 [] Hubungi cs voffice
+-- #002 [] tanya kantor depan, suite 
+- #002 [] bikin poster umroh patambah logo pak yudi
+- #002 [] tanya pak firman, jamaah yg gantiin bapaknya dapat perlengkapan baru atau tidak, jamaah yg lama ada tambahan perlengkapan atau tidak
+```
+- #004 baca hijra atau bsi syariah
