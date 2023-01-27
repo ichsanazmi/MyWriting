@@ -1,7 +1,7 @@
 ---
 title: dailyJournal
 created: '1970-01-01T00:00:00.000Z'
-modified: '2023-01-26T07:52:53.267Z'
+modified: '2023-01-27T09:18:12.890Z'
 ---
 
 # Daily Journal
@@ -67,11 +67,18 @@ U #00X : Urgent
 - kirim dokumen ke asuransi bumida
 - kirim 50 buku doa ke pak hasibuan
 - #002 [] jilid laporan umroh
-- #002 [] urus asuransi
+- #002 [x] urus asuransi
 - #002 [] download invoice dan pak fatoni
 - #002 [] Hubungi cs voffice
 -- #002 [] tanya kantor depan, suite 
 - #002 [] bikin poster umroh patambah logo pak yudi
 - #002 [] tanya pak firman, jamaah yg gantiin bapaknya dapat perlengkapan baru atau tidak, jamaah yg lama ada tambahan perlengkapan atau tidak
 ```
-- #004 baca hijra atau bsi syariah
+- #004 [] baca hijra atau bsi syariah
+
+## 27 Januari 2023
+
+- #002 kirim berkas keperluan asuransi, no resi 073910000909423
+- #004 [] Cari tentang QEMU, ventoy, fydeos, openfyde
+- #004 [] cari freelancer selainsribu
+- #004 [] cari vegan burger, kalav perumnas3 https://linktr.ee/kalav
