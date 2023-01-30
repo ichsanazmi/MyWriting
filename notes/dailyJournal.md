@@ -10,11 +10,12 @@ modified: '2023-01-27T09:18:12.890Z'
 001 : Sholat
 002 : Kerjaan
 003 : Quran
-004 : Baca Nanti
+004 : To Do
 005 : Install
 006 : Belajar TSL
 007 : memorable
 U #00X : Urgent
+008 : Catatan Pribadi
 ```
 
 ## 17 Januari 2023
@@ -23,7 +24,7 @@ U #00X : Urgent
 - Baca Quran : 8 Halaman / Al Qasas 20-85
 - Lari : 1.98 Km / 7:33
 - [x] #005 https://notable.app/ 
-- [] #005 min dan fifo browser di linux
+- [x] #005 min dan fifo browser di linux
 - [] #005 https://weektodo.me/
 
 ## 18 Januari 2023
@@ -82,3 +83,15 @@ U #00X : Urgent
 - #004 [] Cari tentang QEMU, ventoy, fydeos, openfyde
 - #004 [] cari freelancer selainsribu
 - #004 [] cari vegan burger, kalav perumnas3 https://linktr.ee/kalav
+
+## 28 Januari 2023
+
+- #007 Selesai Belajar Dev-ops dasar+ sertifikat https://www.dicoding.com/certificates/1OP85R5YVPQK
+- #004 [] Download pdf bugarians
+- #004 [] Revitalize font dari web learnui https://www.learnui.design/blog
+- #004 [] isi profile sribu
+
+## 29 Januari 2023
+
+- #004 [] Download materi BWA https://drive.google.com/drive/folders/1SdTcZAoH9DxunW7m36T6GewhIL1oXpK6
+- #004 [] Migrasi foto futsal di nomor xl ke onedrive

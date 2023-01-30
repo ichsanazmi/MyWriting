@@ -13,7 +13,7 @@ Dinukil dari kanal Telegram Wawasan Muslim dengan sedikit penyesuaian.
 
 Sumber : https://t.me/wawasan_muslim/12418
 
-- [] 1-6-22 // 
+- [] 1-6-22 // hunter-so-xJDqTvhYn0o-unsplash
 
 ___
 
