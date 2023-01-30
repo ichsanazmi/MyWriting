@@ -95,3 +95,9 @@ U #00X : Urgent
 
 - #004 [] Download materi BWA https://drive.google.com/drive/folders/1SdTcZAoH9DxunW7m36T6GewhIL1oXpK6
 - #004 [] Migrasi foto futsal di nomor xl ke onedrive
+
+## 30 Januari 2023
+
+- Design Logo Pompom
+
+##
