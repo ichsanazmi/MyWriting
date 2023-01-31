@@ -99,5 +99,8 @@ U #00X : Urgent
 ## 30 Januari 2023
 
 - Design Logo Pompom
+- #002 Terima kalender bu tuni bumida
 
-##
+## 31 Januari 2023
+
+- #002 Input data jamaah bekasi 5 pak yudi, 19 bantergebang
