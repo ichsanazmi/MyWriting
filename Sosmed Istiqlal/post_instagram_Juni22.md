@@ -29,7 +29,7 @@ Dinukil dari Muslim.or.id dalam artikel "Agar Aku Sukses Menuntut Ilmu Bag-7..."
 
 Sumber : https://muslim.or.id/54491-agar-aku-sukses-menuntut-ilmu-bag-7-optimalkan-masa-muda-untuk-belajar.html
 
-- [] 2-6-22 // repost 15-9-20
+- [] 2-6-22 // repost 15-9-20 fedoryan-akmal-stY_Bnzpecg-unsplash
 
 ___
 
@@ -47,11 +47,11 @@ Dinukil dari Rumaysho.com dalam artikel "Berbohong dalam Candaan" dengan sedikit
 read more :
 https://rumaysho.com/10672-berbohong-dalam-candaan.html
 
-- [] 3-6-22 // repost 29-9-20
+- [] 3-6-22 // repost 29-9-20 jon-tyson-zoG585VYsV8-unsplash
 
 ___
 
-### 4. Untitled
+### 4. Jangan Ujub
 
 ___
 
@@ -63,11 +63,11 @@ Dinukil dari Tweet Ustadz Badrussalam -hafizhahullah- dengan sedikit penyesuaian
 
 Sumber : https://s.id/1bQI3
 
-- [] 6-6-22
+- [] 6-6-22 elijah-hiett-KCzCfkic-ig-unsplash
 
 ___
 
-### 5. Untitled
+### 5. Adab Di Hari Jum'at
 
 ___
 
@@ -80,11 +80,11 @@ Dinukil dari Rumaysho dalam artikel "Hukum Berbicara Ketika Khutbah Jumat" denga
 
 Sumber : https://rumaysho.com/2090-hukum-berbicara-ketika-khutbah-jumat.html
 
-- [] 7-6-22
+- [] 7-6-22 masjid-pogung-dalangan-MN8maI43Lgk-unsplash
 
 ___
 
-### 6. Untitled
+### 6. Doa Nabi Yunus
 
 ___
 
@@ -101,11 +101,11 @@ Dinukil dari Muslim.or.id dalam artikel berjudul "Cara Mengobati Hati Yang Sempi
 
 Sumber : https://muslim.or.id/67832-cara-mengobati-hati-yang-sempit-dan-depresi.html
 
-- [] 8-6-22
+- [] 8-6-22 giga-khurtsilava-5kwVYW8ZIHo-unsplash
 
 ___
 
-### 7. Untitled
+### 7. Bergegas Dalam Kebaikan
 
 ___
 
@@ -117,7 +117,7 @@ Dinukil dari tweet Ustadz Badrussalam -hafizhahullah- dengan sedikit penyesuaian
 
 Sumber : https://s.id/1bQQ8
 
-- [] 9-6-22
+- [] 9-6-22 david-becker-V862kywlKkw-unsplash
 
 ___
 
