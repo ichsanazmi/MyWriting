@@ -104,3 +104,29 @@ U #00X : Urgent
 ## 31 Januari 2023
 
 - #002 Input data jamaah bekasi 5 pak yudi, 19 bantergebang
+
+## 1 Februari 2023
+
+- #002U [] Data seragam pak mukrib
+
+```
+Izin ralat :
+Ukuran Baju Calon Tamu Allah Ramadhon 1444 H.
+------------
+1. Mukrib Achmad  Dachlan XL
+2. Siti Khusnah XL
+3. Muklis Riyadi XL
+4. Sri Utami XXL
+5. Azis Fatchurozi L
+6. Lilik Ngatiani  ( XL )
+7. Moch. Soleh Alfan. L
+8. Eny Suharti XL
+10. Widayatin L
+11. Eny Hidayati  XL
+12. Asmaniah L
+13. Galih Primaditya H. XXL
+14. Zus Intan Berlian L
+15. Taufik Akbar: L
+16. Octa Dyatna Puri Rahayu LD: 110 ( XL 
+```
+- #004 [] Ebook bugarians di folder ichsan
