@@ -23,9 +23,6 @@ U #00X : Urgent
 - Subuh : Masbuk 1 Rakaat
 - Baca Quran : 8 Halaman / Al Qasas 20-85
 - Lari : 1.98 Km / 7:33
-- [x] #005 https://notable.app/ 
-- [x] #005 min dan fifo browser di linux
-- [] #005 https://weektodo.me/
 
 ## 18 Januari 2023
 
@@ -37,17 +34,11 @@ U #00X : Urgent
 ## 19 Januari 2023
 
 - Subuh : Masbuk 1 rakaat
-- Baca Quran : -
-- Lari : -
-- [] #004 [WMEFoto_BagenFC - Google Drive](https://drive.google.com/drive/folders/18b1Lo-7wACvIhWJnDABbOzfkSi897Vb7)
 - #007 Kopi *manusia* 
-- [] #004 https://muhajirprojectstore.com/
 
 ## 20 Januari 2023
 
 - Subuh : tertinggal 1 rakat
-- [] #004 [Uncompilable](https://uncompilable.com/)
-- []U #004 daftar kasisolusi
 
 ## 21-23 Januari 2023
 
@@ -63,38 +54,21 @@ U #00X : Urgent
 
 ## 26 Januari 2023
 
-- #002
-```
 - kirim dokumen ke asuransi bumida
 - kirim 50 buku doa ke pak hasibuan
-- #002 [] jilid laporan umroh
-- #002 [x] urus asuransi
-- #002 [] download invoice dan pak fatoni
-- #002 [] Hubungi cs voffice
--- #002 [] tanya kantor depan, suite 
-- #002 [] bikin poster umroh patambah logo pak yudi
-- #002 [] tanya pak firman, jamaah yg gantiin bapaknya dapat perlengkapan baru atau tidak, jamaah yg lama ada tambahan perlengkapan atau tidak
-```
-- #004 [] baca hijra atau bsi syariah
 
 ## 27 Januari 2023
 
 - #002 kirim berkas keperluan asuransi, no resi 073910000909423
-- #004 [] Cari tentang QEMU, ventoy, fydeos, openfyde
-- #004 [] cari freelancer selainsribu
-- #004 [] cari vegan burger, kalav perumnas3 https://linktr.ee/kalav
 
 ## 28 Januari 2023
 
 - #007 Selesai Belajar Dev-ops dasar+ sertifikat https://www.dicoding.com/certificates/1OP85R5YVPQK
-- #004 [] Download pdf bugarians
-- #004 [] Revitalize font dari web learnui https://www.learnui.design/blog
-- #004 [] isi profile sribu
+
 
 ## 29 Januari 2023
 
-- #004 [] Download materi BWA https://drive.google.com/drive/folders/1SdTcZAoH9DxunW7m36T6GewhIL1oXpK6
-- #004 [] Migrasi foto futsal di nomor xl ke onedrive
+-
 
 ## 30 Januari 2023
 
@@ -107,26 +81,9 @@ U #00X : Urgent
 
 ## 1 Februari 2023
 
-- #002U [] Data seragam pak mukrib
+- 
 
-```
-Izin ralat :
-Ukuran Baju Calon Tamu Allah Ramadhon 1444 H.
-------------
-1. Mukrib Achmad  Dachlan XL
-2. Siti Khusnah XL
-3. Muklis Riyadi XL
-4. Sri Utami XXL
-5. Azis Fatchurozi L
-6. Lilik Ngatiani  ( XL )
-7. Moch. Soleh Alfan. L
-8. Eny Suharti XL
-10. Widayatin L
-11. Eny Hidayati  XL
-12. Asmaniah L
-13. Galih Primaditya H. XXL
-14. Zus Intan Berlian L
-15. Taufik Akbar: L
-16. Octa Dyatna Puri Rahayu LD: 110 ( XL 
-```
-- #004 [] Ebook bugarians di folder ichsan
+## 2 Februari 2023
+
+
+## 3 Februari 2023
