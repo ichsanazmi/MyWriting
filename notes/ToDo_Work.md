@@ -57,9 +57,12 @@ RP/JKTQR05TA/JKTQR05TA            AA/SU  10JAN23/1332Z   SE7KPN
 - Iwan *5 (Double 2 room,Quord 1 room), *3 (Double 2 room ,Quord 2 room)
 - TM Hasibuan (4 Double, 11 quad 1 room buat 3 klrg HSB 1 Room kurang 1 L)
 
-Ket . Yg perempuan 2 orang tambah 2pax dari grup pak h.firman
-
 - Double tambah 2,5 juta, Triple 1,5 juta
+
+- Hotel aseel ajyad hotel (mk 19-24) 
+- diyar al salam silver (md 24-28)
+
+syal, buku doa, bantal leher, sabuk, kain ihrom, mukena, seragam fci
 
 # Note
 
