@@ -18,8 +18,9 @@
 - [] urus itinerary (h-1 aja)
 - [] rapihin folder umroh jadi (N_YYYYY_XX) N nomor urut keberangkatan, yyy_XX = ex 23FEB2023_Hasibuan
 - [] cari nomor jamaah bekasi yang harus dikabari
-- [] antar paspor bekasi
+- [x] antar paspor bekasi
 - [] kabarin tanggal keberangkatan ke jamaah bekasi di KB
+- [] cek expired passport bekasi    
 
 # note (khusus feb 23)
 
@@ -61,6 +62,26 @@ RP/JKTQR05TA/JKTQR05TA            AA/SU  10JAN23/1332Z   SE7KPN
 
 - Hotel aseel ajyad hotel (mk 19-24) 
 - diyar al salam silver (md 24-28)
+
+pak iwan = 10 PAX BELOM DAPAT perlengkapan umroh 
+PERMPUAN 7 
+UKURAN BAJU 
+XXL : 1
+XXXL : 1
+L : 1
+M : 3
+SEPSIAL 1 TOLONG DI BUAT KAN .
+LINGKAR DADA 98 
+PANJANG 143 
+LAKI-LAKI 3 SET .
+UKURAN BAJU :
+XL = 2
+ANAK 12 TAHUN = 1
+Yg 7 pax awal yg SDH dapat koper ihram, seragam,pempuan
+Baju Belum, Ukuran baju laki2 
+XL = 2
+L= 4
+Perempuan 2 pax SDH dapat koper dan baju seragam dan mukena
 
 syal, buku doa, bantal leher, sabuk, kain ihrom, mukena, seragam fci
 
