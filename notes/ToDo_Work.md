@@ -12,7 +12,7 @@
 - [x] minta scan rapih dari paspor jamaah
 - [] urus roomlist
 - [] urus manifest tiket
-- [] urus polis asuransi (tanya apakah harus)
+- [] urus polis asuransi ()
 - [] urus siskopatuh
 - [] urus banner feb23
 - [] urus itinerary (h-1 aja)
@@ -20,7 +20,8 @@
 - [] cari nomor jamaah bekasi yang harus dikabari
 - [x] antar paspor bekasi
 - [] kabarin tanggal keberangkatan ke jamaah bekasi di KB
-- [] cek expired passport bekasi    
+- [] cek expired passport bekasi   
+- [] atur format kekurangan perlengkapan 
 
 # note (khusus feb 23)
 
@@ -70,7 +71,7 @@ XXL : 1
 XXXL : 1
 L : 1
 M : 3
-SEPSIAL 1 TOLONG DI BUAT KAN .
+SPeSIAL 1 TOLONG DI BUAT KAN .
 LINGKAR DADA 98 
 PANJANG 143 
 LAKI-LAKI 3 SET .
@@ -90,7 +91,6 @@ syal, buku doa, bantal leher, sabuk, kain ihrom, mukena, seragam fci
 - umur 50 cukup imigrasi, gaperlu kemenag
 - tiket visa buku kuning
 - stabilo di namanya di tiket
-- hotel pak busyiri tetap double
 - uang masuk kiai (turki= 225+500+400) (9 des 100+350)
 - next, kursi roda harus di laporin
 - madinah ke jeddah 8 jam
@@ -124,9 +124,35 @@ Ukuran Baju Calon Tamu Allah Ramadhon 1444 H.
 
 - Irla Khaeru May Berkah (KMB) Tiket (+62 877-7416-4414)
 - Jamaah Bekasi
+
+```
 +62 813-8339-7848 (atin)
 +62 878-8140-0665 (pak ahmad)
 +62 831-4474-2175 (Pak Supardi)
 +62 818-0676-6818 (bu suryani)
 +62 812-9679-979 (bu atun)
 +62 822-9708-2168 ( bu ade yunita)
+```
+
+```
+- Syarat baru
+1. Ktp 
+2. Kk
+3. Akte lahir/bk nikah/ijazah
+
+Perpanjang
+1. Ktp
+2. Papsor lama
+
+Anak2
+1. Ktp orang tua
+2. Kk
+3. Bk nikah ortu
+4. Akte lahir anak
+Tarif 
+Paspor hilang 
+2500
+
+Rusak 
+2000
+```

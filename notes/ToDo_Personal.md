@@ -12,6 +12,7 @@
 - [] bikin post "kalau ketemu saya"
 - [] foto blek
 - [] isi formulir digitalent malam ini
+- [] Design Logo Pompom
 
 # Baca Nanti
 
