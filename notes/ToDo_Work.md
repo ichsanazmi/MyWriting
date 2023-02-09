@@ -18,7 +18,6 @@
 - [] urus itinerary (h-1 aja)
 - [] rapihin folder umroh jadi (N_YYYYY_XX) N nomor urut keberangkatan, yyy_XX = ex 23FEB2023_Hasibuan
 - [] cari nomor jamaah bekasi yang harus dikabari
-- [x] antar paspor bekasi
 - [] kabarin tanggal keberangkatan ke jamaah bekasi di KB
 - [] cek expired passport bekasi   
 - [] atur format kekurangan perlengkapan 
@@ -156,3 +155,4 @@ Paspor hilang
 Rusak 
 2000
 ```
+- Asuransi bumida ASPU tidak support umroh + tour negara lain, cuma support transit
