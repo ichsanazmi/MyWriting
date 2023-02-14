@@ -10,8 +10,8 @@
 - [] tanya pak firman terkait perlengkapan (pak khaidir blm sama sekali, pak iwan gatau, pak hasibuan gatau)
 - [] rekap ktp dan paspor pak haidir
 - [x] minta scan rapih dari paspor jamaah
-- [] urus roomlist
-- [] urus manifest tiket
+- [URGENT] urus roomlist
+- [URGENT] urus manifest tiket
 - [] urus polis asuransi ()
 - [] urus siskopatuh
 - [] urus banner feb23
@@ -21,6 +21,7 @@
 - [] kabarin tanggal keberangkatan ke jamaah bekasi di KB
 - [] cek expired passport bekasi   
 - [] atur format kekurangan perlengkapan 
+- [URGENT] Print revisi kwitansi pak andi
 
 # note (khusus feb 23)
 
