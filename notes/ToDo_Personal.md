@@ -13,6 +13,7 @@
 - [] foto blek
 - [] isi formulir digitalent malam ini
 - [] Design Logo Pompom
+- [] share poster sma
 
 # Baca Nanti
 
