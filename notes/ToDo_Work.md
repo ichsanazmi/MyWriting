@@ -5,86 +5,12 @@
 - [] Hubungi cs voffice
 - [] tanya kantor depan, suite 
 - [] bikin poster umroh patambah logo pak yudi
-- [] tanya pak firman, jamaah yg gantiin bapaknya dapat perlengkapan baru atau tidak, jamaah yg lama ada tambahan perlengkapan atau tidak
-- [] tanya masing2 jamaah terkait kelengkapan (scan passport yang fotonya beres, pasfoto, vaksin covid, ktp/kk,
-- [] tanya pak firman terkait perlengkapan (pak khaidir blm sama sekali, pak iwan gatau, pak hasibuan gatau)
-- [] rekap ktp dan paspor pak haidir
-- [x] minta scan rapih dari paspor jamaah
-- [URGENT] urus roomlist
-- [URGENT] urus manifest tiket
-- [] urus polis asuransi ()
-- [] urus siskopatuh
-- [] urus banner feb23
-- [] urus itinerary (h-1 aja)
-- [] rapihin folder umroh jadi (N_YYYYY_XX) N nomor urut keberangkatan, yyy_XX = ex 23FEB2023_Hasibuan
-- [] cari nomor jamaah bekasi yang harus dikabari
-- [] kabarin tanggal keberangkatan ke jamaah bekasi di KB
-- [] cek expired passport bekasi   
-- [] atur format kekurangan perlengkapan 
-- [URGENT] Print revisi kwitansi pak andi
+- [] tanya masing2 jamaah terkait kelengkapan (scan passport yang fotonya beres, pasfoto, vaksin covid, ktp/kk
+- [] buat itinerary pak mukrib
+- [] rekap paspor pak dodo
+- [] rekap paspor bu erna
 
-# note (khusus feb 23)
 
-RP/JKTQR0101/JKTQR0101            RM/RC   5JAN23/1249Z   RNDLUR
-0. 40IDJKT/PPINA/UMRAHSPE/ARRAYYAN/GRP  NM: 0
-1  QR 957 G 18FEB 6 CGKDOH HK40      3  1820 2320   1A/E
-2  QR1190 G 19FEB 7 DOHJED HK40         0835 1115   1A/E
-3  QR1185 G 01MAR 3 JEDDOH HK40      1  0440 0655   1A/E
-4  QR 954 G 01MAR 3 DOHCGK HK40         0835 2110   1A/E
-
-RP/JKTQR0101/JKTQR0101            RM/RC  16JAN23/0805Z   VBB6IR
-0.  9IDJKT/PPINA/UMRAHSPE/ARRAYYAN/GRP  NM: 0
-1  QR 957 G 18FEB 6 CGKDOH HK9       3  1820 2320   1A/E
-2  QR1190 G 19FEB 7 DOHJED HK9          0835 1115   1A/E
-3  QR1185 G 01MAR 3 JEDDOH HK9       1  0440 0655   1A/E
-4  QR 954 G 01MAR 3 DOHCGK HK9          0835 2110   1A/E
-
-RP/JKTQR05TA/JKTQR05TA            AA/SU  10JAN23/1332Z   SE7KPN
-0. 40IDJKT/GRP/UMRAHSPE/ARRAYYAN  NM: 0
-1  QR 957 G 18FEB 6 CGKDOH HK40      3  1820 2320   1A/E
-2  QR1184 G 19FEB 7 DOHJED HK40         0050 0330   1A/E
-3  QR1187 G 28FEB 2 JEDDOH HK40      1  1830 2045   1A/E
-4  QR 956 G 01MAR 3 DOHCGK HK40         0205 1440   1A/E
-
-- pak hasibuan (51, 5 masih proses passport, blm di foto nama tambahan)
-- pak iwan (18 pax, 1 masih proses tapi udah ada fotonya)
-- pak khaidir (21 pax, beberapa belum)
-- Bantar gebang (?)
-- Pak Firman blm ada data sama sekali
-= total 91
-
-- perlengkapan pak khaidir blm sama sekali
-
-- haidir (6 quad, 3 room masih kurang masing2 1 orang, 1 room P, 2 Room L)
-- Iwan *5 (Double 2 room,Quord 1 room), *3 (Double 2 room ,Quord 2 room)
-- TM Hasibuan (4 Double, 11 quad 1 room buat 3 klrg HSB 1 Room kurang 1 L)
-
-- Double tambah 2,5 juta, Triple 1,5 juta
-
-- Hotel aseel ajyad hotel (mk 19-24) 
-- diyar al salam silver (md 24-28)
-
-pak iwan = 10 PAX BELOM DAPAT perlengkapan umroh 
-PERMPUAN 7 
-UKURAN BAJU 
-XXL : 1
-XXXL : 1
-L : 1
-M : 3
-SPeSIAL 1 TOLONG DI BUAT KAN .
-LINGKAR DADA 98 
-PANJANG 143 
-LAKI-LAKI 3 SET .
-UKURAN BAJU :
-XL = 2
-ANAK 12 TAHUN = 1
-Yg 7 pax awal yg SDH dapat koper ihram, seragam,pempuan
-Baju Belum, Ukuran baju laki2 
-XL = 2
-L= 4
-Perempuan 2 pax SDH dapat koper dan baju seragam dan mukena
-
-syal, buku doa, bantal leher, sabuk, kain ihrom, mukena, seragam fci
 
 # Note
 
