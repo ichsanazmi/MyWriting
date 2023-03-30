@@ -8,12 +8,11 @@
 - [x] Revitalize font dari web learnui  https://www.learnui.design/blog
 - [] Download materi BWA https://drive.google.com/drive/folders/1SdTcZAoH9DxunW7m36T6GewhIL1oXpK6
 - [] Migrasi foto futsal di nomor xl ke onedrive
-- [] isi dokumen digitalent
-- [] bikin post "kalau ketemu saya"
 - [] foto blek
-- [] isi formulir digitalent malam ini
 - [] Design Logo Pompom
 - [] share poster sma
+- [] ke perpusnas
+- [] 
 
 # Baca Nanti
 
@@ -23,6 +22,8 @@
 - [] cari freelancer selainsribu
 - [] cari vegan burger, kalav perumnas3 https://linktr.ee/kalav
 - [] Ebook bugarians di folder ichsan
+- [] baca buku di perpusnas https://opac.perpusnas.go.id/DetailOpac.aspx?id=1204016
+- []
 
 
 # Install
@@ -30,3 +31,7 @@
 - [x] #005 https://notable.app/ 
 - [x] #005 min dan fifo browser di linux
 - [] #005 https://weektodo.me/
+
+# Beli
+
+- [] Buku Muslim Preneur
