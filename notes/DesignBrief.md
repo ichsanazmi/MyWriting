@@ -20,7 +20,8 @@ Deadline:
 Start 28 Jan 23 - 3 Feb 23 
 - [] Designed on time
 - [] Posted on Sosmed
-- [] Github link
+- [] mockup : shirt, kotak makan, plank nama
+- [] web design
 
 bikin cv
 cari logo india food

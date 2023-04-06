@@ -34,4 +34,4 @@
 
 # Beli
 
-- [] Buku Muslim Preneur
+- [x] Buku Muslim Preneur
