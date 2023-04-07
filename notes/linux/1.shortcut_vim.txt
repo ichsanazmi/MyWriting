@@ -12,7 +12,7 @@ dd hapus satu line, 2dd hapus 2 line
 U buat apa sih
 ctrl+r untuk ngeundo undo
 gg=G untuk auto indent text
-yy untuk copy satu baris y$ untuk copy setelah cursor
+yy untuk copy satu baris, y$ untuk copy setelah cursor, ye untuk copy satu kata
 p untuk paste setelah cursor P untuk sebelum cursor
 ctrl+y+, untuk trigger emmet (plugin mattn/emmet-vim)
 ctrl+down untuk seleksi multi cursor via plugin
