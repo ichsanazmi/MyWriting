@@ -1,0 +1,21 @@
+# Qutebrowser related shortcut
+
+```
+
+- j,k,l,h sama kayak vim
+- scroll ke ujung bawah, shift+g
+- scroll ke ujung atas, GG
+- scroll satu layar keatas (ctrl+b) kebawah (ctrl+f)
+- pencarian (/)
+- zoom (shift+=)
+- zoom out (-)
+- zoom to default (=)
+- masuk mode passthrough (ctrl+v) kepake di misalnya freecode
+- copy url tab ini (yy)
+- mundur satu halaman sesuai history (shift+h) maju satu (shift+l)
+- edit url sekarang (go) ke newtab (gO) ke background tab (xo)
+- load url dari clipboard ke halaman sekarang (PP) ke new tab (shift+p+p) ke new window (wp)
+- tampilin hint dari link website (f) untuk di buka ke tab baru (shift+f), ke background tab (;b)
+- save page html (gd)
+- :set auto_save.session true
+

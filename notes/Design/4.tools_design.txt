@@ -1,0 +1,6 @@
+Offline editor
+- Inkscape (vector,svg,multiplatform,foss)
+- Gimp (bitmap,multiplatform,foss)
+- Citramanik (inkspace exporter, multi function export plugin)
+
+Online editor
