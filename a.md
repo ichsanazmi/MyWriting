@@ -120,3 +120,13 @@ random tools
 - https://analyze.intezer.com/scan?tab=connect_sources
 - https://www.behance.net/gallery/158005839/Fitthree?tracking_source=search_projects%7Cpackaging
 - https://www.producthunt.com/discussions/what-are-your-best-resources-on-seo
+- https://wekan.github.io/
+- https://github.com/LinuxForGeeks/Silaty
+- https://apps.kde.org/artikulate/
+- https://github.com/gabutakut/gabutdm
+- https://jami.net/
+- https://www.omglinux.com/warp-free-file-transfer-app/
+- https://www.omglinux.com/reminders-app-for-linux/
+- https://www.omglinux.com/smile-emoji-picker-for-linux/
+- https://www.omglinux.com/curtail-app-adds-svg-support/
+- https://github.com/NayamAmarshe/please
