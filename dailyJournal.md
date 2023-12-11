@@ -1,7 +1,7 @@
 # Daily Journal
 
- 
- ## 11 Dec 2023 // 27 Jumadil Awwal 1443
+ 🐝
+  ## 11 Dec 2023 // 27 Jumadil Awwal 1443
  
 **Work**
 [10:00-x] - Start [LP70] 
@@ -25,6 +25,6 @@ note :
 ---
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEwNTQxOTA4NSwtMTIyMzA0ODk4NSwxNT
+eyJoaXN0b3J5IjpbLTU0NzIyMzQ2MSwtMTIyMzA0ODk4NSwxNT
 MxNTYzNTg1LDMwMzI0ODgzOSwtMTM2NDY4MzkzOV19
 -->
