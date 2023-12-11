@@ -13,7 +13,7 @@ note :
 ```
 ---
  ## 12 Dec 2023 // 28 Jumadil Awwal 1443
-
+ 
 **Work**
 
 **Non Work**
@@ -24,6 +24,6 @@ note :
 ---
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMzQ5MTQ2MjksLTEyMjMwNDg5ODUsMT
-UzMTU2MzU4NSwzMDMyNDg4MzksLTEzNjQ2ODM5MzldfQ==
+eyJoaXN0b3J5IjpbLTc0MzE5OTEyMywtMTIyMzA0ODk4NSwxNT
+MxNTYzNTg1LDMwMzI0ODgzOSwtMTM2NDY4MzkzOV19
 -->
