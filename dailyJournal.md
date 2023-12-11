@@ -11,8 +11,7 @@
 note : 
 
 ```
-[^ads2]: footnote
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTUzMTU2MzU4NSwzMDMyNDg4MzksLTEzNj
-Q2ODM5MzldfQ==
+eyJoaXN0b3J5IjpbLTEyMjMwNDg5ODUsMTUzMTU2MzU4NSwzMD
+MyNDg4MzksLTEzNjQ2ODM5MzldfQ==
 -->
