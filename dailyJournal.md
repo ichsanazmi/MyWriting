@@ -1,7 +1,7 @@
 # Daily Journal
 
- <center> ***11 Dec 2023 // 27 Jumadil Awwal 1443*** <center>
- 
+ <center><h1> 11 Dec 2023 // 27 Jumadil Awwal 1443</h1></center>
+
 ### Work
 - [10:00-x] - Start [LP70] 
 - Nginep di MJH
@@ -38,8 +38,8 @@ note :
 ---
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMyNTM0NDY5OSwtMTUzODA4NjE0MSwtND
-I2MzE4NzExLDEzNTQ3NjAzMTksLTc0MzE5OTEyMywxMzE0MTQx
-ODA1LC0xMjIzMDQ4OTg1LDE1MzE1NjM1ODUsMzAzMjQ4ODM5LC
-0xMzY0NjgzOTM5XX0=
+eyJoaXN0b3J5IjpbLTEwNTkzODE5ODUsLTE1MzgwODYxNDEsLT
+QyNjMxODcxMSwxMzU0NzYwMzE5LC03NDMxOTkxMjMsMTMxNDE0
+MTgwNSwtMTIyMzA0ODk4NSwxNTMxNTYzNTg1LDMwMzI0ODgzOS
+wtMTM2NDY4MzkzOV19
 -->
