@@ -7,12 +7,9 @@
 - Nginep di MJH
 ---
 ### Non Work
-- Ganti Oli
 ---
 ### Belajar
-s
-
----
+`sss`
 ``` 
 note : 
 
@@ -33,8 +30,8 @@ note :
 ---
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1MTM3NzI3NjYsLTQyNjMxODcxMSwxMz
-U0NzYwMzE5LC03NDMxOTkxMjMsMTMxNDE0MTgwNSwtMTIyMzA0
-ODk4NSwxNTMxNTYzNTg1LDMwMzI0ODgzOSwtMTM2NDY4MzkzOV
-19
+eyJoaXN0b3J5IjpbMTA1NzM0ODI0MywtNDI2MzE4NzExLDEzNT
+Q3NjAzMTksLTc0MzE5OTEyMywxMzE0MTQxODA1LC0xMjIzMDQ4
+OTg1LDE1MzE1NjM1ODUsMzAzMjQ4ODM5LC0xMzY0NjgzOTM5XX
+0=
 -->
