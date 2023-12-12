@@ -2,11 +2,17 @@
 
  ## 11 Dec 2023 // 27 Jumadil Awwal 1443
  
-**Work**
+### Work
 - [10:00-x] - Start [LP70] 
 - Nginep di MJH
-**Non Work**
+---
+### Non Work
 - Ganti Oli
+---
+### Belajar
+s
+
+---
 ``` 
 note : 
 
@@ -19,6 +25,7 @@ note :
 - []
 **Non Work**
 - 
+- 
 ``` 
 note : 
 
@@ -26,7 +33,8 @@ note :
 ---
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQyNjMxODcxMSwxMzU0NzYwMzE5LC03ND
-MxOTkxMjMsMTMxNDE0MTgwNSwtMTIyMzA0ODk4NSwxNTMxNTYz
-NTg1LDMwMzI0ODgzOSwtMTM2NDY4MzkzOV19
+eyJoaXN0b3J5IjpbLTE1MTM3NzI3NjYsLTQyNjMxODcxMSwxMz
+U0NzYwMzE5LC03NDMxOTkxMjMsMTMxNDE0MTgwNSwtMTIyMzA0
+ODk4NSwxNTMxNTYzNTg1LDMwMzI0ODgzOSwtMTM2NDY4MzkzOV
+19
 -->
