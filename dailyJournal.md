@@ -8,12 +8,12 @@
 - Nginep di MJH
 ```
 
-### Non Work 🕶
+###  🕶 Non Work 
 ```
 - Ganti Oli
 ```
 
-### Belajar 📕
+### 📕 Belajar
 ``` 
 note : 
 ```
@@ -27,13 +27,13 @@ note :
 - [07:19] Start
 - Nginep di MJH
 ```
-#
-### Non Work
+
+###  🕶 Non Work
 ```
 - Ganti Oli
 ```
 
-### Belajar 📕
+### 📕 Belajar 
 ``` 
 note : 
 ```
@@ -41,7 +41,7 @@ note :
 
 <!--stackedit_data:
 eyJwcm9wZXJ0aWVzIjoiZXh0ZW5zaW9uczpcbiAgcHJlc2V0Oi
-BnZm1cbiIsImhpc3RvcnkiOlsxNTUxMjI0ODY2LDE2NDE1NjI5
+BnZm1cbiIsImhpc3RvcnkiOlstNDY3NzY5MDg2LDE2NDE1NjI5
 MjcsMzc3MjEyNTU4LDE4MzY5MjQxNjIsMTQ2OTI4OTY0OSwtMT
 UzODA4NjE0MSwtNDI2MzE4NzExLDEzNTQ3NjAzMTksLTc0MzE5
 OTEyMywxMzE0MTQxODA1LC0xMjIzMDQ4OTg1LDE1MzE1NjM1OD
