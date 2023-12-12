@@ -6,7 +6,7 @@
 - [10:00-x] - Start [LP70] 
 - Nginep di MJH
 **Non Work**
-- Gan
+- Ganti Oli
 ``` 
 note : 
 
@@ -26,7 +26,7 @@ note :
 ---
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0NTg1NTg5NiwxMzU0NzYwMzE5LC03ND
+eyJoaXN0b3J5IjpbLTQyNjMxODcxMSwxMzU0NzYwMzE5LC03ND
 MxOTkxMjMsMTMxNDE0MTgwNSwtMTIyMzA0ODk4NSwxNTMxNTYz
 NTg1LDMwMzI0ODgzOSwtMTM2NDY4MzkzOV19
 -->
