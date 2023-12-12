@@ -1,6 +1,6 @@
 # Daily Journal
 
-##11 Dec 2023 // 27 Jumadil Awwal 1443
+## 11 Dec 2023 // 27 Jumadil Awwal 1443
 
 ### Work
 - [10:00-x] - Start [LP70] 
@@ -12,7 +12,11 @@
 
 
 ### Belajar
-`sss`
+<table>
+<tr>
+<td></td>
+</tr>
+</table>
 
 Markdown converts text to HTML.
 
@@ -38,7 +42,7 @@ note :
 ---
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYzMzE0MTkwMywtMTUzODA4NjE0MSwtND
+eyJoaXN0b3J5IjpbMTQ2OTI4OTY0OSwtMTUzODA4NjE0MSwtND
 I2MzE4NzExLDEzNTQ3NjAzMTksLTc0MzE5OTEyMywxMzE0MTQx
 ODA1LC0xMjIzMDQ4OTg1LDE1MzE1NjM1ODUsMzAzMjQ4ODM5LC
 0xMzY0NjgzOTM5XX0=
