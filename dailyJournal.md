@@ -1,18 +1,21 @@
 # Daily Journal
 
 ## 27 Jumadil Awwal 1443 - 11 Dec 2023
+
 ### Work
+```
 - [10:00-x] - Start [LP70] 
 - Nginep di MJH
-<br>
+```
 
 ### Non Work
+```
 - Ganti Oli
-
+```
 
 ### Belajar
-
 ``` 
+- 
 note : 
 - vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla vla
 - ssfs
@@ -35,9 +38,9 @@ note :
 
 <!--stackedit_data:
 eyJwcm9wZXJ0aWVzIjoiZXh0ZW5zaW9uczpcbiAgcHJlc2V0Oi
-BnZm1cbiIsImhpc3RvcnkiOlstMjE0NDA5Nzc0NSwxODM2OTI0
-MTYyLDE0NjkyODk2NDksLTE1MzgwODYxNDEsLTQyNjMxODcxMS
-wxMzU0NzYwMzE5LC03NDMxOTkxMjMsMTMxNDE0MTgwNSwtMTIy
-MzA0ODk4NSwxNTMxNTYzNTg1LDMwMzI0ODgzOSwtMTM2NDY4Mz
-kzOV19
+BnZm1cbiIsImhpc3RvcnkiOlszNzcyMTI1NTgsMTgzNjkyNDE2
+MiwxNDY5Mjg5NjQ5LC0xNTM4MDg2MTQxLC00MjYzMTg3MTEsMT
+M1NDc2MDMxOSwtNzQzMTk5MTIzLDEzMTQxNDE4MDUsLTEyMjMw
+NDg5ODUsMTUzMTU2MzU4NSwzMDMyNDg4MzksLTEzNjQ2ODM5Mz
+ldfQ==
 -->
