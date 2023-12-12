@@ -5,11 +5,19 @@
 ### Work
 - [10:00-x] - Start [LP70] 
 - Nginep di MJH
----
+<br>
+
 ### Non Work
----
+- Ganti Oli
+
+
 ### Belajar
 `sss`
+
+Markdown converts text to HTML.
+
+*[HTML]: HyperText Markup Language
+
 ``` 
 note : 
 
@@ -30,8 +38,8 @@ note :
 ---
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA1NzM0ODI0MywtNDI2MzE4NzExLDEzNT
-Q3NjAzMTksLTc0MzE5OTEyMywxMzE0MTQxODA1LC0xMjIzMDQ4
-OTg1LDE1MzE1NjM1ODUsMzAzMjQ4ODM5LC0xMzY0NjgzOTM5XX
-0=
+eyJoaXN0b3J5IjpbLTE1MzgwODYxNDEsLTQyNjMxODcxMSwxMz
+U0NzYwMzE5LC03NDMxOTkxMjMsMTMxNDE0MTgwNSwtMTIyMzA0
+ODk4NSwxNTMxNTYzNTg1LDMwMzI0ODgzOSwtMTM2NDY4MzkzOV
+19
 -->
