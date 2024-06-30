@@ -1,11 +1,12 @@
-### Pertemuan 11
+## Pertemuan 11
 
 [Youtube](https://youtube.com/live/y0M7xWXbxms?authuser=0)
+
 [PDF](https://drive.google.com/file/d/1BfOjpEIdny8Ifg92WLUPxSc9rtwBygws/view?usp=classroom_web&authuser=0)
 
-```
+### Catatan
 Blockquote Using badges from well-known services shows your project is keeping up with good practices for testing, security, and more. It tells developers you care about quality.Using badges from well-known services shows your project is keeping up with good practices for testing, security, and more. It tells developers you care about quality.Using badges from well-known services shows your project is keeping up with good practices for testing, security, and more. It tells developers you care about quality.Using badges from well-known services shows your project is keeping up with good practices for testing, security, and more. It tells developers you care about quality.
-```
+
 ---
 
 Heading 	# H1
